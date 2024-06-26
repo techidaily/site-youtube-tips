@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] In 2024, Green Walls in Grey Buildings  A Step Towards Eco-Cities\""
-date: 2024-06-22 23:48:56
-updated: 2024-06-25 12:29:33
+date: 2024-06-25T17:48:20.024Z
+updated: 2024-06-26T17:48:20.024Z
 tags:
   - ai video
   - ai youtube
@@ -16,9 +16,7 @@ thumbnail: https://thmb.techidaily.com/4db798dc8e85e2daadf391573bc5ef81d7d7a8b53
 
 ## Green Walls in Grey Buildings: A Step Towards Eco-Cities
 
-# How to Edit YouTube Channel Description
-
-![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+# How to Edit YouTube Channel Description ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
 
@@ -64,9 +62,7 @@ thumbnail: https://thmb.techidaily.com/4db798dc8e85e2daadf391573bc5ef81d7d7a8b53
  This is actually a process that is pretty much straightforward, provided that you know how it can be done. Here are the simple steps that you should follow:
 
 * Open your YouTube account.
-* Click on My Channel
-
-![Find My Channel ](https://images.wondershare.com/filmora/article-images/edit-youtube-channel-desc-1.jpg)
+* Click on My Channel ![Find My Channel](https://images.wondershare.com/filmora/article-images/edit-youtube-channel-desc-1.jpg)
 
 * Activate the "Customize the layout of your channel" option by entering the Setting button on the right corner of your Subscribe icon.
 
@@ -74,11 +70,9 @@ thumbnail: https://thmb.techidaily.com/4db798dc8e85e2daadf391573bc5ef81d7d7a8b53
 
 * Click on "About."
 
-![Edit YouTube Channel Description - About ](https://images.wondershare.com/filmora/article-images/edit-youtube-channel-desc-3.jpg)
+![Edit YouTube Channel Description - About](https://images.wondershare.com/filmora/article-images/edit-youtube-channel-desc-3.jpg)
 
-* Then you can edit the channel description here
-
-![Edit YouTube Channel Description ](https://images.wondershare.com/filmora/article-images/edit-youtube-channel-desc-4.jpg)
+* Then you can edit the channel description here ![Edit YouTube Channel Description](https://images.wondershare.com/filmora/article-images/edit-youtube-channel-desc-4.jpg)
 
 **Note:** In the newer YouTube version, click the option "CUSTOMIZE CHANNEL" and then you can change your channel description by clicking the About Tab.
 
@@ -97,7 +91,7 @@ thumbnail: https://thmb.techidaily.com/4db798dc8e85e2daadf391573bc5ef81d7d7a8b53
 
  Here we have also found out some useful tips for YouTube video description:
 
-![YouTube description ](https://images.wondershare.com/filmora/article-images/youtube-description.jpg)
+![YouTube description](https://images.wondershare.com/filmora/article-images/youtube-description.jpg)
 
 #### 1. Take full advantage of the First Line
 
@@ -132,3 +126,22 @@ Follow @Richard Bennett
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-tips.techidaily.com/24-breaking-personal-barriers-in-yt-content-creation/"><u>In 2024, Breaking Personal Barriers in YT Content Creation</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/outubes-quick-tunes-essential-insights-for-short-video-fans/"><u>[New] YouTube's Quick Tunes  Essential Insights for Short Video Fans</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ize-traffic-essential-youtube-seo-equipment-for-2024/"><u>Maximize Traffic - Essential YouTube SEO Equipment for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/5-youtube-openings-elevate-your-contents-impact-for-2024/"><u>Top 15 YouTube Openings  Elevate Your Content's Impact for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-2024-approved-explore-the-pinnacle-of-editing-android-edition/"><u>[Updated] 2024 Approved  Explore the Pinnacle of Editing  Android Edition</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/hould-you-pay-for-unlimited-youtube-in-2024/"><u>[New] Should You Pay for Unlimited YouTube, In 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-the-art-of-turning-youtube-media-on-its-head/"><u>[New] In 2024, The Art of Turning YouTube Media on Its Head</u></a></li>
+<li><a href="https://fake-location.techidaily.com/how-to-change-netflix-location-to-get-more-country-version-on-oppo-a78-drfone-by-drfone-virtual-android/"><u>How to Change Netflix Location to Get More Country Version On Oppo A78 | Dr.fone</u></a></li>
+<li><a href="https://article-files.techidaily.com/updated-in-2024-top-editing-efforts-10-text-innovations/"><u>[Updated] In 2024, Top Editing Efforts  10 Text Innovations</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/expert-tips-best-10-ae-text-setups-for-2024/"><u>Expert Tips  Best 10 AE Text Setups for 2024</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/updated-in-depth-dive-perfecting-the-art-of-green-screen-with-kinemaster/"><u>[Updated] In-Depth Dive  Perfecting the Art of Green Screen with Kinemaster</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/how-to-fix-oem-unlock-missing-on-xiaomi-redmi-note-12-pro-5g-by-drfone-android/"><u>How To Fix OEM Unlock Missing on Xiaomi Redmi Note 12 Pro 5G?</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/new-in-2024-quick-and-reliable-image-captures-pcs-top-5-apps/"><u>[New] In 2024, Quick and Reliable Image Captures  PC's Top 5 Apps</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/new-crafting-chronological-displacement-effects/"><u>[New] Crafting Chronological Displacement Effects</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/in-2024-express-yourself-accessibility-available-for-free/"><u>In 2024, Express Yourself, Accessibility Available for Free</u></a></li>
+</ul></div>

@@ -1,7 +1,7 @@
 ---
 title: "Crafting a Striking Online Presence with Perfect YT Dimensions for 2024"
-date: 2024-06-25 11:11:20
-updated: 2024-06-26 12:15:44
+date: 2024-06-25T18:12:53.534Z
+updated: 2024-06-26T18:12:53.534Z
 tags:
   - ai video
   - ai youtube
@@ -49,21 +49,15 @@ For the best results on all devices, your YouTube banner size should be:
 
 #### **YouTube Channel Art/Banner Dimensions Displayed on TVs**
 
- 2560 x 1440 px
+ 2560 x 1440 px ![entire banner size](https://images.wondershare.com/filmora/article-images/entire-banner-size1.jpg)
 
- ![entire banner size](https://images.wondershare.com/filmora/article-images/entire-banner-size1.jpg)
-
-YouTube will display your entire channel art on TVs
-
- ![tv dimension display](https://images.wondershare.com/filmora/article-images/tv-dimension-display2.jpg)
+YouTube will display your entire channel art on TVs ![tv dimension display](https://images.wondershare.com/filmora/article-images/tv-dimension-display2.jpg)
 
 Here’s what our YouTube channel art example would look like on a TV.
 
 #### **YouTube Channel Art/Banner Dimensions Displayed on Smaller Desktop Monitors and Mobile Phones**
 
- 1546 x 423 px
-
- ![desktop minimum dimension](https://images.wondershare.com/filmora/article-images/desktop-minimum-mobile3.jpg)
+ 1546 x 423 px ![desktop minimum dimension](https://images.wondershare.com/filmora/article-images/desktop-minimum-mobile3.jpg)
 
 On small desktop monitors and mobile devices, YouTube will display less than 20% of your entire channel art, the center area measuring a width of 1546 pixels and a height of 423 pixels. You want to make sure that your text and logo make it into this part.
 
@@ -73,9 +67,7 @@ Here’s what our YouTube channel art example would look like on a mobile phone.
 
 #### **YouTube Channel Art/Banner Dimensions Displayed on Tablets**
 
-1855 x 423 px
-
-![tablet dimension](https://images.wondershare.com/filmora/article-images/tablet-dimension5.jpg)
+1855 x 423 px ![tablet dimension](https://images.wondershare.com/filmora/article-images/tablet-dimension5.jpg)
 
 On tablet devices, YouTube will display around 20% more of your channel art, just to the sides of your smaller desktop monitor and mobile device area.
 
@@ -85,9 +77,7 @@ Here’s what our YouTube channel art example would look like on a tablet device
 
 #### **YouTube Channel Art/Banner Dimensions Displayed on Larger Desktop Monitors**
 
- 2560 x 423 px
-
- ![desktop max dimension](https://images.wondershare.com/filmora/article-images/desktop-max-dimension7.jpg)
+ 2560 x 423 px ![desktop max dimension](https://images.wondershare.com/filmora/article-images/desktop-max-dimension7.jpg)
 
 On larger desktop monitors, YouTube will display the entire width of your channel art but not the upper and lower part.
 
@@ -149,3 +139,22 @@ Follow @Richard Bennett
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-tips.techidaily.com/ed-whats-your-potential-income-from-youtube-sponsored-videos/"><u>[Updated] What's Your Potential Income From YouTube Sponsored Videos?</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/7-best-apps-to-go-live-on-youtube-from-iphone-or-android-for-2024/"><u>FREE 7 Best Apps to Go Live on YouTube From iPhone or Android for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/budget-channels-to-big-brands-youtube-sponsorships-demystified/"><u>From Budget Channels to Big Brands  YouTube Sponsorships Demystified</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-winter-vibes-selecting-heated-background-ideas/"><u>[Updated] Winter Vibes  Selecting Heated Background Ideas</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/024-approved-how-to-create-a-youtube-music-playlist/"><u>[New] 2024 Approved  How to Create a YouTube Music Playlist</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/approved-unlock-insights-into-video-popularity-via-rank-trackers/"><u>2024 Approved  Unlock Insights Into Video Popularity via Rank Trackers</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/approved-mastering-youtube-studio-ultimate-video-edits-techniques/"><u>2024 Approved  Mastering YouTube Studio  Ultimate Video Edits Techniques</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-2024-approved-enhance-your-instagram-stories-with-a-blend-of-pictures-a-beginners-guide/"><u>[New] 2024 Approved  Enhance Your Instagram Stories with a Blend of Pictures  A Beginner's Guide</u></a></li>
+<li><a href="https://discord-videos.techidaily.com/ultimate-guide-to-cool-and-captivating-disco-tags-for-2024/"><u>Ultimate Guide to Cool and Captivating Disco Tags for 2024</u></a></li>
+<li><a href="https://location-social.techidaily.com/why-your-whatsapp-location-is-not-updating-and-how-to-fix-on-motorola-moto-g84-5g-drfone-by-drfone-virtual-android/"><u>Why Your WhatsApp Location is Not Updating and How to Fix On Motorola Moto G84 5G | Dr.fone</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/how-infinix-smart-7-mirror-screen-to-pc-drfone-by-drfone-android/"><u>How Infinix Smart 7 Mirror Screen to PC? | Dr.fone</u></a></li>
+<li><a href="https://fake-location.techidaily.com/complete-tutorial-to-use-vpna-to-fake-gps-location-on-tecno-phantom-v-fold-drfone-by-drfone-virtual-android/"><u>Complete Tutorial to Use VPNa to Fake GPS Location On Tecno Phantom V Fold | Dr.fone</u></a></li>
+<li><a href="https://discord-videos.techidaily.com/new-2024-approved-direct-linking-spotifys-journey-into-discord/"><u>[New] 2024 Approved  Direct Linking  Spotify's Journey Into Discord</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-in-2024-streaming-gopro-on-social-platforms-a-step-by-step-guide/"><u>[New] In 2024, Streaming GoPro on Social Platforms  A Step-by-Step Guide</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/new-resounding-beats-audio-studio-mac/"><u>[New] Resounding Beats  Audio Studio Mac</u></a></li>
+</ul></div>

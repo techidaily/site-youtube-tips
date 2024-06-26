@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] In 2024, YouTube Banner Tactics  Dos and Don'ts for Optimal Visibility\""
-date: 2024-06-18 15:15:32
-updated: 2024-06-21 12:52:32
+date: 2024-06-25T18:28:21.532Z
+updated: 2024-06-26T18:28:21.532Z
 tags:
   - ai video
   - ai youtube
@@ -16,9 +16,7 @@ thumbnail: https://thmb.techidaily.com/7486378233cc28bc02135cae36845cee27a44d59f
 
 ## YouTube Banner Tactics: Dos and Don'ts for Optimal Visibility
 
-# How To Make Good YouTube Banner - Dos and Don’ts
-
-![](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+# How To Make Good YouTube Banner - Dos and Don’ts ![](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
 
@@ -51,7 +49,7 @@ When choosing great photos for your background, pick ones that are high quality 
 
 Using patterns for the background of your channel banner can help your channel look super creative and stand out from others. However, if you use a pattern that is chaotic and hard on the eyes, you may not attract many subscribers. When using patterns, choose patterns that are not heavy in color and have too many lines or shapes. There should be an evenness to the shapes and negative space within the pattern itself. Try to stay away from patterns that are 3D which can conflict with the viewer’s eyesight and make them dizzy.
 
-![ YouTube Channel Banner Background](https://images.wondershare.com/filmora/article-images/youtube-channel-banner-background.jpg)
+![YouTube Channel Banner Background](https://images.wondershare.com/filmora/article-images/youtube-channel-banner-background.jpg)
 
 ## Part 2: Should I Use My Face?
 
@@ -71,7 +69,7 @@ It is always best to use a current photo of yourself. Many times viewers will go
 
 ## Part 3: What Should I Write on My Banner?
 
-![ YouTube Channel Banner writing](https://images.wondershare.com/filmora/article-images/youtube-channel-banner-write.jpg)
+![YouTube Channel Banner writing](https://images.wondershare.com/filmora/article-images/youtube-channel-banner-write.jpg)
 
 #### _Do: Include Your Channel Name_
 
@@ -91,7 +89,7 @@ Social media accounts are important to include in your channel art because we li
 
 Including social media icons in your channel art lets people know where they can find you. Another good reason to include your current social media in your banner is that sometimes you might join a new platform or quit an old one. You may be using Twitter for months and then decide that you like Facebook better. Your current social media handles keep subscribers from having to guess which one to follow you on.
 
-![ YouTube Channel Banner Safe Area](https://images.wondershare.com/filmora/article-images/youtube-channel-banner-safe-area.jpg)
+![YouTube Channel Banner Safe Area](https://images.wondershare.com/filmora/article-images/youtube-channel-banner-safe-area.jpg)
 
 _Make sure everything important fits in the safe area!_
 
@@ -127,7 +125,7 @@ Now that you know how to make a good YouTube banner, what will you do next?
 
 ## Touch Up YouTube Videos with Filmora
 
-[Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/)features lots of utilities for both video and audio editing. You can change the video speed or change the aspect ratio easily. Besides, there are plentiful filters, elements, effects and overlays built, so you can use them without costing any extra fee.
+[Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/) features lots of utilities for both video and audio editing. You can change the video speed or change the aspect ratio easily. Besides, there are plentiful filters, elements, effects and overlays built, so you can use them without costing any extra fee.
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
@@ -154,3 +152,27 @@ Follow @Richard Bennett
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-tips.techidaily.com/aptivate-and-enchant-explore-the-best-creative-reactions-on-yt-for-2024/"><u>[New] Captivate and Enchant  Explore the Best Creative Reactions on YT for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-in-2024-free-and-easy-building-attractive-youtube-intros-without-expense/"><u>[Updated] In 2024, Free & Easy  Building Attractive YouTube Intros without Expense</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-surge-to-subscriber-success-with-strategic-tactics/"><u>[Updated] Surge to Subscriber Success with Strategic Tactics</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ize-view-count-best-yt-thumbnail-sizes-for-2024/"><u>Maximize View Count  Best YT Thumbnail Sizes for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-quick-calculator-your-video-monetization/"><u>[New] In 2024, Quick Calculator  Your Video Monetization</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-finding-your-next-big-idea-in-iconography-at-these-6-places/"><u>[Updated] Finding Your Next Big Idea in Iconography at These 6 Places</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-the-faces-to-watch-top-cosmetic-creatives/"><u>[Updated] The Faces to Watch  Top Cosmetic Creatives</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-unleashing-potential-a-treasury-of-youtube-themes-for-channels/"><u>[Updated] Unleashing Potential  A Treasury of YouTube Themes for Channels</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/24-the-12-step-youtube-seo-guide-for-beginners-who-want-more-views/"><u>In 2024, The 12-Step YouTube SEO Guide for Beginners Who Want More Views</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-in-2024-maximizing-traffic-with-effective-youtube-titles/"><u>[Updated] In 2024, Maximizing Traffic with Effective YouTube Titles</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/new-navigating-through-youtubes-top-favorite-shorters/"><u>[New] Navigating Through YouTube’s Top Favorite Shorters</u></a></li>
+<li><a href="https://voice-adjusting.techidaily.com/updated-mastering-soundscapes-best-background-noise-cancellers-for-2024/"><u>Updated Mastering Soundscapes Best Background Noise Cancellers for 2024</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-snap-tales-with-flair-unearth-over-120-ingenious-titles-for-your-unique-snapchat-chronicles/"><u>[New] Snap Tales with Flair  Unearth over 120 Ingenious Titles for Your Unique Snapchat Chronicles</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/in-2024-quick-tips-for-easy-youtube-thumbnail-acquisition-zero-price/"><u>In 2024, Quick Tips for Easy YouTube Thumbnail Acquisition – Zero Price</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/levate-video-flair-advanced-techniques-in-youtube-studio-editor-for-2024/"><u>[New] Elevate Video Flair  Advanced Techniques in YouTube Studio Editor for 2024</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/2024-approved-how-to-remove-black-bars-from-youtube-videos/"><u>2024 Approved  How to Remove Black Bars From YouTube Videos</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-can-you-transfer-files-from-honor-magic-6-to-iphone-151413-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How Can You Transfer Files From Honor Magic 6 To iPhone 15/14/13? | Dr.fone</u></a></li>
+<li><a href="https://ai-video-apps.techidaily.com/updated-2024-approved-webs-best-vertical-video-editors-a-2023-review/"><u>Updated 2024 Approved Webs Best Vertical Video Editors A 2023 Review</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/updated-delving-deep-into-ios-video-recording-capabilities/"><u>[Updated] Delving Deep Into IO's Video Recording Capabilities</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/24-exploring-genres-a-collection-of-15-innovative-musician-focused-videos/"><u>In 2024, Exploring Genres  A Collection of 15 Innovative Musician-Focused Videos</u></a></li>
+</ul></div>

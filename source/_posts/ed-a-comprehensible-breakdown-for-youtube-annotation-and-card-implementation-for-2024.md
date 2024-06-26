@@ -1,7 +1,7 @@
 ---
 title: "[Updated] A Comprehensible Breakdown for YouTube Annotation and Card Implementation for 2024"
-date: 2024-06-23 21:22:23
-updated: 2024-06-24 12:15:40
+date: 2024-06-25T18:24:18.454Z
+updated: 2024-06-26T18:24:18.454Z
 tags:
   - ai video
   - ai youtube
@@ -49,21 +49,15 @@ The main difference between annotation and cards is their outlook. Cards are mor
 
 YouTube **Cards** are similar to annotations but more interactive. They allow the owner of the video to add images and other links. A small box appears, clicking on which will activate the cards.
 
-* Click on the "Video Manager" tab
-
-![](https://images.wondershare.com/filmora/article-images/video-manager-in-youtube.jpg)
+* Click on the "Video Manager" tab ![](https://images.wondershare.com/filmora/article-images/video-manager-in-youtube.jpg)
 
 * Click "Edit" tab under the video screen shot you want to add the card on
-* Click on the "Cards" tab
-
-![](https://images.wondershare.com/filmora/article-images/youtube-cards01.png)
+* Click on the "Cards" tab ![](https://images.wondershare.com/filmora/article-images/youtube-cards01.png)
 
 * On the right panel click on "Add Card" drop down menu and select the type of card you want to add
 * Click on the create button which will open the corresponding video
 * Once you finish the subsequent information required click create card
-* Select the timeline for the playhead to appear which leads to the card slide
-
-![](https://images.wondershare.com/filmora/article-images/add-cards-to-youtube-video.jpg)
+* Select the timeline for the playhead to appear which leads to the card slide ![](https://images.wondershare.com/filmora/article-images/add-cards-to-youtube-video.jpg)
 
 * Apply changes and exit
 
@@ -73,14 +67,10 @@ YouTube Annotation is addition of a text layer, link or hotspots over your video
 
 * Click on the video manager tab
 * Click edit tab under the video screen shot you want to add the annotation on
-* Click on the "End screen & Annotation" tab
-
-![](https://images.wondershare.com/filmora/article-images/add-annotations-to-youtube-video.jpg)
+* Click on the "End screen & Annotation" tab ![](https://images.wondershare.com/filmora/article-images/add-annotations-to-youtube-video.jpg)
 
 * On the right panel click on "+ Add Element" and select the kind of annotation you want to add
-* Adjust the position of Annotation, you can drag the rectangle to locate it at any position of the video, move the slide to set the start and end time of the annotation
-
-![](https://images.wondershare.com/filmora/article-images/add-annotation-to-youtube-1.jpg)
+* Adjust the position of Annotation, you can drag the rectangle to locate it at any position of the video, move the slide to set the start and end time of the annotation ![](https://images.wondershare.com/filmora/article-images/add-annotation-to-youtube-1.jpg)
 
 * Apply changes
 
@@ -141,3 +131,26 @@ Follow @Richard Bennett
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-tips.techidaily.com/ed-perfecting-your-presentations-youtube-and-google-slides-for-2024/"><u>[Updated] Perfecting Your Presentations  YouTube and Google Slides for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-2024-approved-steps-to-produce-empowerment-driven-livestreams/"><u>[Updated] 2024 Approved  Steps to Produce Empowerment-Driven Livestreams</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-online-gaming-earnings-in-the-future/"><u>[Updated] Online Gaming Earnings in the Future</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/nlocking-video-potential-the-art-of-youtube-live-360-streaming/"><u>[New] Unlocking Video Potential  The Art of YouTube Live 360 Streaming</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-smartphone-cinematography-mastery-designing-impactful-youtube-thumbnails-for-2024/"><u>[Updated] Smartphone Cinematography Mastery  Designing Impactful YouTube Thumbnails for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/024-approved-transform-your-videos-first-impression-with-these-fonts/"><u>[New] 2024 Approved  Transform Your Video's First Impression with These Fonts</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-the-art-of-youtube-editing-a-compreenasive-guidebook/"><u>[New] In 2024, The Art of YouTube Editing  A Compreenasive Guidebook</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/024-approved-understanding-and-executing-essential-mukbang-elements/"><u>[New] 2024 Approved  Understanding and Executing Essential Mukbang Elements</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/tless-conversions-selecting-the-10-prime-flv-to-youtubes-options/"><u>Effortless Conversions  Selecting the 10 Prime Flv to YouTubes Options</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-4-feasible-ways-to-fake-location-on-facebook-for-your-samsung-galaxy-m54-5g-drfone-by-drfone-virtual-android/"><u>In 2024, 4 Feasible Ways to Fake Location on Facebook For your Samsung Galaxy M54 5G | Dr.fone</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/new-the-art-of-recording-your-steam-gaming-sessions/"><u>[New] The Art of Recording Your Steam Gaming Sessions</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/2024-approved-tapping-into-youtubes-affiliate-income-streams/"><u>2024 Approved  Tapping Into YouTube's Affiliate Income Streams</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-how-to-reset-a-locked-itel-p40plus-phone-by-drfone-android/"><u>In 2024, How to Reset a Locked Itel P40+ Phone</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/new-in-2024-game-based-youtube-earning-guide/"><u>[New] In 2024, Game-Based YouTube Earning Guide</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/1716069200311-updated-2024-approved-offline-android-delights-top-screen-free-game-list-you-must-play/"><u>[Updated] 2024 Approved  Offline Android Delights  Top Screen-Free Game List You Must Play!</u></a></li>
+<li><a href="https://voice-adjusting.techidaily.com/updated-2024-approved-verse-vane-eliminator-fabricate-original-track-foundations/"><u>Updated 2024 Approved Verse Vane Eliminator Fabricate Original Track Foundations</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/new-sticker-free-showcase-crafting-cleansed-tiktok-videos/"><u>[New] Sticker-Free Showcase  Crafting Cleansed TikTok Videos</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/new-in-2024-exploring-the-leading-10-streaming-and-broadcast-tools/"><u>[New] In 2024, Exploring the Leading 10 Streaming & Broadcast Tools</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/updated-an-insiders-look-at-tiktok-element-hierarchy/"><u>[Updated] An Insider's Look at TikTok Element Hierarchy</u></a></li>
+</ul></div>

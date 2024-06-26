@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Mastering Shots  A Vlogger’s Lens Compendium\""
-date: 2024-06-22 20:46:59
-updated: 2024-06-23 12:22:45
+date: 2024-06-25T18:08:25.637Z
+updated: 2024-06-26T18:08:25.637Z
 tags:
   - ai video
   - ai youtube
@@ -16,9 +16,7 @@ thumbnail: https://thmb.techidaily.com/06b4f561e77b6da888e1e3e26d3fff8eafe69267e
 
 ## Mastering Shots: A Vlogger’s Lens Compendium
 
-# A Vlogger's Guide To Camera Lenses
-
-![](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+# A Vlogger's Guide To Camera Lenses ![](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
 
@@ -101,9 +99,7 @@ This table shows you the focal lengths needed to achieve the same shot between c
 | Telephoto                   | 100mm      | 63mm  | 50mm      |
 | Telephoto                   | 200mm      | 125mm | 100mm     |
 
-### Aperture
-
- ![Camera lenses Aperture](https://images.wondershare.com/filmora/article-images/camera-lenses-aperture.jpg)
+### Aperture ![Camera lenses Aperture](https://images.wondershare.com/filmora/article-images/camera-lenses-aperture.jpg)
 
  The next thing to consider when you’re looking for a lens is the aperture, the hole (often adjustable) within the lens that lets light in. Aperture for camera lenses is measured in f-stops (f/1.4, f/1.8, f/2.0) - the smaller the f-stop number, the larger the aperture (bigger hole letting even more light in).
 
@@ -164,3 +160,24 @@ Follow @Richard Bennett
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-unleashing-potential-the-ultimate-pathway-to-effective-youtube-banners/"><u>[New] In 2024, Unleashing Potential  The Ultimate Pathway to Effective YouTube Banners</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/up-your-video-game-expert-endorsed-cost-free-intro-creators/"><u>Step Up Your Video Game  Expert-Endorsed, Cost-Free Intro Creators</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/approved-sourav-joshis-income-tactics-the-future-of-monetizing-content/"><u>2024 Approved  Sourav Joshi's Income Tactics  The Future of Monetizing Content</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-in-2024-key-players-in-asmr-youtube-world/"><u>[Updated] In 2024, Key Players in ASMR YouTube World</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-the-step-by-step-process-to-embed-timestamps-on-youtube-links-for-2024/"><u>[Updated] The Step-by-Step Process to Embed Timestamps on YouTube Links for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-pioneering-proficiency-the-complete-guide-to-music-and-media-fusion-on-youtube/"><u>[Updated] Pioneering Proficiency  The Complete Guide to Music & Media Fusion on YouTube</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-2024-approved-acquire-high-quality-sounds-for-media-creators/"><u>[Updated] 2024 Approved  Acquire High-Quality Sounds for Media Creators</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/67962671-2024-approved-elevate-your-videos-with-complimentary-banners-here/"><u>2024 Approved  Elevate Your Videos with Complimentary Banners, Here!</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/downscaling-from-newmacos-sierra-to-prior-os-el-capitan/"><u>Downscaling From Newmacos Sierra To Prior OS - El Capitan</u></a></li>
+<li><a href="https://ai-video-apps.techidaily.com/transform-your-memories-into-a-beautiful-video-for-2024/"><u>Transform Your Memories Into a Beautiful Video for 2024</u></a></li>
+<li><a href="https://facebook-video-files.techidaily.com/updated-in-2024-taking-control-of-your-digital-footprint-new-facebook-guide/"><u>[Updated] In 2024, Taking Control of Your Digital Footprint  New Facebook Guide</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/updated-comprehensive-overview-of-whatsapp-voice-calls/"><u>[Updated] Comprehensive Overview of WhatsApp Voice Calls</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-play-hevc-h-265-video-on-motorola-defy-2-by-aiseesoft-video-converter-play-hevc-video-on-android/"><u>How to play HEVC H.265 video on Motorola Defy 2?</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-top-10-fingerprint-lock-apps-to-lock-your-oppo-f25-pro-5g-phone-by-drfone-android/"><u>In 2024, Top 10 Fingerprint Lock Apps to Lock Your Oppo F25 Pro 5G Phone</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/updated-2024-approved-iobit-screen-recorder-review-and-alternative/"><u>[Updated] 2024 Approved  IObit Screen Recorder Review and Alternative</u></a></li>
+<li><a href="https://smart-video-editing.techidaily.com/updated-2024-approved-top-rated-green-screen-software-for-mobile-devices-free-download/"><u>Updated 2024 Approved Top-Rated Green Screen Software for Mobile Devices Free Download</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-2024-approved-boosting-income-via-social-media-snapchats-methods/"><u>[Updated] 2024 Approved  Boosting Income via Social Media  Snapchat's Methods</u></a></li>
+</ul></div>

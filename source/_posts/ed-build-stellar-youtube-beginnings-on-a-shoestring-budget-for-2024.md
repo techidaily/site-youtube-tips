@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Build Stellar YouTube Beginnings on a Shoestring Budget for 2024"
-date: 2024-06-23 10:46:21
-updated: 2024-06-25 11:54:16
+date: 2024-06-25T17:35:41.813Z
+updated: 2024-06-26T17:35:41.813Z
 tags:
   - ai video
   - ai youtube
@@ -16,9 +16,7 @@ thumbnail: https://thmb.techidaily.com/6f7d0e2a43b07618a84ad4bb4532a87360d4eb5cc
 
 ## Build Stellar YouTube Beginnings on a Shoestring Budget
 
-# How to Create YouTube Intros & End Cards - Free and Easy
-
-![](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
+# How to Create YouTube Intros & End Cards - Free and Easy ![](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 ##### Shanoon Cox
 
@@ -50,7 +48,7 @@ When your intro video is longer than five seconds viewers are more likely to cli
 
 Whether it is better to put your intro at the very beginning of your video, or after you introduce your topic, will depend on your viewers. You may want to try it both ways and then look at your retention report (found in your YouTube Creator Studio under Analytics) to see which works best for you.
 
-#### [Top Intro Sites](https://tools.techidaily.com/wondershare/filmora/download/)
+#### Top Intro Sites
 
 There are a few different sites where you can download animated intros, customized to include your username or logo. Here are two of the best:
 
@@ -93,7 +91,7 @@ You should also have a subscribe link somewhere in your end card, ideally a very
 
 Some creators will leave their end cards at that and play music overtop, but it can be even more effective to include a voiceover where you ask viewers to subscribe and watch your other videos.
 
-#### [How To Make an End Card](https://tools.techidaily.com/wondershare/filmora/download/)
+#### How To Make an End Card
 
 1. Choose a static background. You may want to download an end card template or create one in a drawing program. If you do, make sure to include calls to action like ‘Watch more!’ and ‘Subscribe’.
 2. Drag your background into your timeline at the end of your video.
@@ -133,3 +131,22 @@ Follow @Shanoon Cox
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-tips.techidaily.com/nlocking-creative-potential-embedding-online-videos-in-slideshows-for-2024/"><u>[New] Unlocking Creative Potential  Embedding Online Videos in Slideshows for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ting-video-visibility-through-thumbnails-for-2024/"><u>Elevating Video Visibility Through Thumbnails for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/wiftly-expand-your-youtube-following-for-minimal-cost/"><u>[New] Swiftly Expand Your YouTube Following for Minimal Cost</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-2024-approved-how-to-save-money-with-the-right-youtube-tv-plan/"><u>[Updated] 2024 Approved  How to Save Money with the Right YouTube TV Plan</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/24-essential-templates-and-makers-insights-for-end-credits/"><u>In 2024, Essential Templates & Makers' Insights for End Credits</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/urating-the-perfect-soundtrack-youtubes-best-audio-sites-ranked/"><u>[New] Curating the Perfect Soundtrack  YouTube's Best Audio Sites Ranked</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-dynamic-website-content-incorporating-youtube-playlists-for-2024/"><u>[Updated] Dynamic Website Content  Incorporating YouTube Playlists for 2024</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/updated-highest-quality-capture-software-showdown/"><u>[Updated] Highest Quality Capture Software Showdown</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/epic-12-action-recorders-equipped-with-precision-gps-coordinates/"><u>Epic 12 Action Recorders Equipped With Precision GPS Coordinates</u></a></li>
+<li><a href="https://ai-video-tools.techidaily.com/new-how-to-remove-filmora-watermark-after-exporting-read-this-article-to-find-out-the-details-of-removing-the-filmora-watermark-even-without-paying-for-2024/"><u>New How to Remove Filmora Watermark After Exporting? Read This Article to Find Out the Details of Removing the Filmora Watermark Even without Paying for 2024</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/2024-approved-simple-steps-for-android-voice-recording-no-root/"><u>2024 Approved  Simple Steps for Android Voice Recording (No Root)</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/updated-mastering-the-craft-a-step-by-step-approach-to-slow-motion-on-tiktok/"><u>[Updated] Mastering the Craft  A Step-by-Step Approach to Slow Motion on TikTok</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-reasons-why-pokemon-gps-does-not-work-on-vivo-v30-drfone-by-drfone-virtual-android/"><u>In 2024, Reasons why Pokémon GPS does not Work On Vivo V30? | Dr.fone</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/2024-approved-mastering-the-art-of-crafting-compelling-content-in-60-second-videos/"><u>2024 Approved  Mastering the Art of Crafting Compelling Content in 60-Second Videos</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-2024-approved-digital-legacy-preservation-saving-fb-video-conversations/"><u>[New] 2024 Approved  Digital Legacy Preservation  Saving FB Video Conversations</u></a></li>
+</ul></div>

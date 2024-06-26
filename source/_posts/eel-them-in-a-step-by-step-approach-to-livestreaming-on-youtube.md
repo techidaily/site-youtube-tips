@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Reel Them In  A Step-by-Step Approach to Livestreaming on Youtube\""
-date: 2024-06-23 20:14:55
-updated: 2024-06-25 10:18:12
+date: 2024-06-25T18:03:21.925Z
+updated: 2024-06-26T18:03:21.925Z
 tags:
   - ai video
   - ai youtube
@@ -16,9 +16,7 @@ thumbnail: https://thmb.techidaily.com/2fabafc66fe8d6c738eceaf2d94bef9969abb79ce
 
 ## Reel Them In: A Step-by-Step Approach to Livestreaming on Youtube
 
-# How to live streaming 360 video to youtube
-
-![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+# How to live streaming 360 video to youtube ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
 
@@ -31,33 +29,33 @@ thumbnail: https://thmb.techidaily.com/2fabafc66fe8d6c738eceaf2d94bef9969abb79ce
 
 **Step 1:** First of all you need to get ready with your Ricoh Theta S 360 camera unit.
 
-**Step 2:** Now visit the [official website](https://theta360.com/en/support/download/ ) of Theta 360 in order to download your dedicated live streaming application.
+**Step 2:** Now visit the [official website](https://theta360.com/en/support/download/) of Theta 360 in order to download your dedicated live streaming application.
 
-![ official website](https://images.wondershare.com/filmora/article-images/official-website.jpg)
+![official website](https://images.wondershare.com/filmora/article-images/official-website.jpg)
 
 **Step 3:** Get your application and install it on your Mac or PC as per need.
 
 **Step 4:** It is time to plug in to your Ricoh Theta S 360 camera using your PC.
 
-![ Richoh Theta](https://images.wondershare.com/filmora/article-images/richoh-theta.jpg)
+![Richoh Theta](https://images.wondershare.com/filmora/article-images/richoh-theta.jpg)
 
 **Step 5:** Now select your device ‘Ricoh Theta S’ and then hit Okay.
 
-![ click OK](https://images.wondershare.com/filmora/article-images/click-ok.jpg)
+![click OK](https://images.wondershare.com/filmora/article-images/click-ok.jpg)
 
 **Step 6:**  You will find option to register to application with your respective device. Select and hit register.
 
-![Click register ](https://images.wondershare.com/filmora/article-images/click-register.jpg)
+![Click register](https://images.wondershare.com/filmora/article-images/click-register.jpg)
 
 **Step 7:** As soon as your registration process is complete then un-plug your USB cable.
 
 **Step 8:** It is time to turn the Ricoh Theta device to Live Mode; you simple need to press the top power and lower video button simultaneously to directly switch to the live mode.
 
-![ bottom video](https://images.wondershare.com/filmora/article-images/bottom-video.jpg)
+![bottom video](https://images.wondershare.com/filmora/article-images/bottom-video.jpg)
 
 **Step 9:** Once your device enters into Live Stream mode then a Led will start blinking on your device that represents your device is live at this moment.
 
-![led ](https://images.wondershare.com/filmora/article-images/led.jpg)
+![led](https://images.wondershare.com/filmora/article-images/led.jpg)
 
 **Step 10:** Now you need to plug in the USB cable again with your computer.
 
@@ -65,47 +63,47 @@ thumbnail: https://thmb.techidaily.com/2fabafc66fe8d6c738eceaf2d94bef9969abb79ce
 
 **Step 12:** Go to create scene option and then switch to create sources.
 
-![Create scene ](https://images.wondershare.com/filmora/article-images/create-scene.jpg)
+![Create scene](https://images.wondershare.com/filmora/article-images/create-scene.jpg)
 
 **Step 13:** Select video capture device as your source from drop down menu.
 
-![device as ](https://images.wondershare.com/filmora/article-images/device-as.jpg)
+![device as](https://images.wondershare.com/filmora/article-images/device-as.jpg)
 
 **Step 14:** Now from available list select Theta UVC as your active video capture source.
 
-![Theta UVC ](https://images.wondershare.com/filmora/article-images/theta-uvc.jpg)
+![Theta UVC](https://images.wondershare.com/filmora/article-images/theta-uvc.jpg)
 
 **Step 15:** You need to adjust screen as per your requirements.
 
-![screen ](https://images.wondershare.com/filmora/article-images/screen.jpg)
+![screen](https://images.wondershare.com/filmora/article-images/screen.jpg)
 
 **Step 16:** Now move to YouTube and then hit New Live Events option.
 
-![new live events ](https://images.wondershare.com/filmora/article-images/new-live-events.jpg)
+![new live events](https://images.wondershare.com/filmora/article-images/new-live-events.jpg)
 
 **Step 17:** Complete the basic information.
 
-![basic info ](https://images.wondershare.com/filmora/article-images/basic-info.jpg)
+![basic info](https://images.wondershare.com/filmora/article-images/basic-info.jpg)
 
 **Step 18:** You need to move to advanced settings now; select 360 live stream option and then create event.
 
 **Step 19:** Now complete the ingesting settings and finally select create new stream option.
 
-![new stream option ](https://images.wondershare.com/filmora/article-images/new-stream-option.jpg)
+![new stream option](https://images.wondershare.com/filmora/article-images/new-stream-option.jpg)
 
 **Step 20:** As soon as your event is created then you will be able to find your stream name on screen, copy it and simply paste it on OBS window.
 
-![ingesting settings ](https://images.wondershare.com/filmora/article-images/ingesting-settings.jpg)
+![ingesting settings](https://images.wondershare.com/filmora/article-images/ingesting-settings.jpg)
 
 **Step 21:** It is time to return to OBS settings and then you need to paste that copied name on stream key option.
 
-![paste to obs ](https://images.wondershare.com/filmora/article-images/paste-to-obs.jpg)
+![paste to obs](https://images.wondershare.com/filmora/article-images/paste-to-obs.jpg)
 
 **Step 22:** Once all above settings are complete then click start stream option from your OBS window and you will soon be able to find your 360 live on YouTube.
 
-![stream key ](https://images.wondershare.com/filmora/article-images/stream-key.jpg)
+![stream key](https://images.wondershare.com/filmora/article-images/stream-key.jpg)
 
-![360 live ](https://images.wondershare.com/filmora/article-images/360-live.jpg)
+![360 live](https://images.wondershare.com/filmora/article-images/360-live.jpg)
 
 ## 2.Live Stream from Allie 360 Camera to YouTube on Mobile
 
@@ -120,23 +118,23 @@ thumbnail: https://thmb.techidaily.com/2fabafc66fe8d6c738eceaf2d94bef9969abb79ce
 
 **Step 4:** As soon as you have downloaded your app then simply turn on the Bluetooth, Wi-Fi and air plane mode on your device.
 
-![air plane mode ](https://images.wondershare.com/filmora/article-images/air-plane-mode.jpg)
+![air plane mode](https://images.wondershare.com/filmora/article-images/air-plane-mode.jpg)
 
 **Step 5:** Simply open your Allie application and then connect your camera.
 
-![allie app ](https://images.wondershare.com/filmora/article-images/allie-app.jpg)
+![allie app](https://images.wondershare.com/filmora/article-images/allie-app.jpg)
 
 **Step 6:** Now users need to hit stream icon on screen.
 
-![  icon on ](https://images.wondershare.com/filmora/article-images/icon-on.jpg)
+![icon on](https://images.wondershare.com/filmora/article-images/icon-on.jpg)
 
 **Step 7:** You will be asked to fill the necessary information about your video. It is also possible to make adjustments regarding video quality. Once you are done with all required settings then hit Submit option.
 
-![click submit ](https://images.wondershare.com/filmora/article-images/click-submit.jpg)
+![click submit](https://images.wondershare.com/filmora/article-images/click-submit.jpg)
 
 **Step 8:** Soon your video will become live; note that you can also share your live video via SNS platform with other viewers.
 
-![SNS platform ](https://images.wondershare.com/filmora/article-images/sns-platform.jpg)
+![SNS platform](https://images.wondershare.com/filmora/article-images/sns-platform.jpg)
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
@@ -161,3 +159,26 @@ Follow @Richard Bennett
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-tips.techidaily.com/ver-inspirational-hiring-vids-1-10/"><u>Discover Inspirational Hiring Vids #1-10</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-unleash-creativity-with-these-8-mirrorless-cams-for-video/"><u>[Updated] Unleash Creativity with These 8 Mirrorless Cams For Video</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/24-mastering-audio-and-visual-quality-in-youtube-videos/"><u>In 2024, Mastering Audio & Visual Quality in YouTube Videos</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-the-ideal-outlet-where-to-post-your-videos-for-2024/"><u>[Updated] The Ideal Outlet  Where to Post Your Videos for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-harness-high-quality-banners-free-for-content-developers-for-2024/"><u>[Updated] Harness High-Quality Banners – Free for Content Developers for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ptimizing-channel-branding-to-skyrocket-subscriber-numbers/"><u>[New] Optimizing Channel Branding to Skyrocket Subscriber Numbers</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-premium-startings-top-16-youtube-videos-that-thrive-in-popularity/"><u>[New] In 2024, Premium Startings  Top 16 YouTube Videos That Thrive in Popularity</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/approved-step-by-step-methodology-assembling-youtube-playlists/"><u>2024 Approved  Step-by-Step Methodology  Assembling YouTube Playlists</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-in-2024-dissecting-video-ranking-algorithms-on-youtube/"><u>[Updated] In 2024, Dissecting Video Ranking Algorithms on YouTube</u></a></li>
+<li><a href="https://smart-video-editing.techidaily.com/updated-2024-approved-the-visual-difference-how-aspect-ratio-impacts-your-youtube-videos-style/"><u>Updated 2024 Approved The Visual Difference How Aspect Ratio Impacts Your YouTube Videos Style</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/2024-approved-cutting-edge-the-6-leading-video-apps-for-macos-big-sur/"><u>2024 Approved  Cutting Edge  The 6 Leading Video Apps for macOS Big Sur</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-list-of-pokemon-go-joysticks-on-oneplus-11r-drfone-by-drfone-virtual-android/"><u>In 2024, List of Pokémon Go Joysticks On OnePlus 11R | Dr.fone</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-full-guide-on-mirroring-your-realme-gt-5-pro-to-your-pcmac-drfone-by-drfone-android/"><u>In 2024, Full Guide on Mirroring Your Realme GT 5 Pro to Your PC/Mac | Dr.fone</u></a></li>
+<li><a href="https://facebook-video-files.techidaily.com/new-leading-edge-strategies-in-fb-advertising/"><u>[New] Leading Edge Strategies in FB Advertising</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-2024-approved-infographic-insights-small-business-video-mastery/"><u>[Updated] 2024 Approved  Infographic Insights  Small Business Video Mastery</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/new-seconds-needed-for-playback-20mb-video-example/"><u>[New] Seconds Needed for Playback - 20Mb Video Example</u></a></li>
+<li><a href="https://video-content-creator.techidaily.com/new-in-2024-exploring-splice-video-editor-a-thorough-examination-of-its-strengths-and-weaknesses/"><u>New In 2024, Exploring Splice Video Editor A Thorough Examination of Its Strengths and Weaknesses</u></a></li>
+<li><a href="https://discord-videos.techidaily.com/updated-in-2024-voice-modding-on-discord-a-step-by-step-guide/"><u>[Updated] In 2024, Voice Modding on Discord  A Step-by-Step Guide</u></a></li>
+<li><a href="https://techidaily.com/simple-ways-to-get-lost-videos-back-from-vivo-x100-pro-by-fonelab-android-recover-video/"><u>Simple ways to get lost videos back from Vivo X100 Pro</u></a></li>
+</ul></div>

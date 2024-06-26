@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Optimize Video Quality  Turning ON AV1 in YouTube Settings\""
-date: 2024-06-21 11:38:14
-updated: 2024-06-24 12:16:21
+date: 2024-06-25T17:24:55.377Z
+updated: 2024-06-26T17:24:55.377Z
 tags:
   - ai video
   - ai youtube
@@ -24,17 +24,13 @@ Do you notice that many YouTube videos have been streamed in AV1? **YouTube AV1*
 
 Do you wonder how to turn on **AV1 settings on YouTube**? For your information, AV1 is a video codec that is developed by a consortium of companies. It offers you advanced compression, enabling you to do smoother HD streaming and data savings for the video. Google also has already implemented AV1 use on YouTube. To turn on AV1 settings on YouTube, here are the steps:
 
-##### Step1Go to playback and performance
-
-![youtube settings](https://images.wondershare.com/filmora/article-images/2022/11/av1-settings-on-youtube-2.jpg)
+##### Step1Go to playback and performance ![youtube settings](https://images.wondershare.com/filmora/article-images/2022/11/av1-settings-on-youtube-2.jpg)
 
 * To turn on the AV1 settings, go to your YouTube account, after that click "Playback and Performance".
 * In the AV1 settings. Besides "Auto (Recommended)", there are other two options, which are "Prefer AV1 for SD" and also "Always prefer SD".
 * "Always Prefer AV1" uses the codec whenever it is available for a video while "Prefer AV1 for SD" limits it to SD videos. There are two options to avoid low-performance devices when AV1 videos are played on YouTube. You can select "Always Prefer AV1" to see if your device performance is good enough when you play videos on YouTube that support AV1.
 
-##### Step2Test if the AV1 settings are already enabled in your video
-
-![av1 settings](https://images.wondershare.com/filmora/article-images/2022/11/av1-settings-on-youtube-3.jpg)
+##### Step2Test if the AV1 settings are already enabled in your video ![av1 settings](https://images.wondershare.com/filmora/article-images/2022/11/av1-settings-on-youtube-3.jpg)
 
 You may ask how to confirm your YouTube videos are playing with AV1 Codec. Well, you can search playlist on YouTube with the keywords "[4K, 5K, and 8K videos with the new AV1 Codec](https://www.youtube.com/playlist?list=PLRJRxnLlXbB0ETtMprpLypZs68duRS1t1)". You can test it by playing one of the videos. You have to right-click on the media player and then select "Stats for nerd". If it shows the av01 codec there, then the AV1 settings are enabled already.
 
@@ -114,3 +110,26 @@ For today, YouTube encodes all the videos with the VP9 codec, but for some reaso
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-tips.techidaily.com/ed-streamline-your-yt-content-with-background-softening-tricks-for-2024/"><u>[Updated] Streamline Your YT Content with Background Softening Tricks for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/approved-step-by-step-to-subscription-the-youtube-partner-program-route/"><u>2024 Approved  Step-by-Step to Subscription  The YouTube Partner Program Route</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/outube-copyright-concerns-for-recording-screens/"><u>[New] YouTube Copyright Concerns for Recording Screens</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-step-by-step-approach-to-crafting-youtube-intros/"><u>[New] In 2024, Step-by-Step Approach to Crafting YouTube Intros</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/xcellence-exchange-global-creators-for-2024/"><u>[New] Excellence Exchange  Global Creators for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ring-youtube-profits-ajeys-guidebook-for-2024/"><u>Mastering YouTube Profits  Ajey's Guidebook for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-the-playbook-for-parallel-pursuit-of-youtube-videos/"><u>[Updated] The Playbook for Parallel Pursuit of Youtube Videos</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-unleashing-the-power-of-youtube-to-mp3-conversion/"><u>[New] In 2024, Unleashing the Power of YouTube-to-MP3 Conversion</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/approved-the-youtube-studio-masterclass-elevating-your-edits/"><u>2024 Approved  The YouTube Studio Masterclass  Elevating Your Edits</u></a></li>
+<li><a href="https://extra-information.techidaily.com/prime-dialogue-draft-directory/"><u>Prime Dialogue Draft Directory</u></a></li>
+<li><a href="https://ai-editing-video.techidaily.com/new-best-15-subtitle-apps-2023-windows-mac-iphone-android-and-online/"><u>New Best 15 Subtitle Apps 2023 Windows, Mac, iPhone, Android & Online</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/2024-approved-prime-platforms-crafting-3d-animation-art/"><u>2024 Approved  Prime Platforms  Crafting 3D Animation Art</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/updated-2024-approved-unveiling-the-best-screen-recording-experience-on-windows/"><u>[Updated] 2024 Approved  Unveiling the Best Screen Recording Experience on Windows</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-how-to-unlock-samsung-galaxy-a05-phone-without-password-by-drfone-android/"><u>In 2024, How To Unlock Samsung Galaxy A05 Phone Without Password?</u></a></li>
+<li><a href="https://voice-adjusting.techidaily.com/updated-enhancing-musical-journeys-implementing-softening-effects-in-soundtracks/"><u>Updated Enhancing Musical Journeys Implementing Softening Effects in Soundtracks</u></a></li>
+<li><a href="https://ai-video-tools.techidaily.com/new-in-2024-unlock-pro-quality-edits-top-1080p-video-editing-software/"><u>New In 2024, Unlock Pro-Quality Edits Top 1080P Video Editing Software</u></a></li>
+<li><a href="https://tiktok-video-files.techidaily.com/new-guide-to-perfect-everyday-tiktok-footage-expert-advice/"><u>[New] Guide to Perfect Everyday TikTok Footage  Expert Advice</u></a></li>
+<li><a href="https://some-tips.techidaily.com/new-transform-your-youtube-views-with-smart-zoom-practices/"><u>[New] Transform Your YouTube Views with Smart Zoom Practices</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-rescue-lost-music-from-honor-100-by-fonelab-android-recover-music/"><u>How to Rescue Lost Music from Honor 100</u></a></li>
+</ul></div>

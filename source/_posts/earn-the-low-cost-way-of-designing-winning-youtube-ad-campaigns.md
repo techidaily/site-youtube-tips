@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Learn the Low-Cost Way of Designing Winning YouTube Ad Campaigns\""
-date: 2024-06-17 11:38:45
-updated: 2024-06-20 10:55:46
+date: 2024-06-25T18:28:57.392Z
+updated: 2024-06-26T18:28:57.392Z
 tags:
   - ai video
   - ai youtube
@@ -16,9 +16,7 @@ thumbnail: https://thmb.techidaily.com/0a337b8d498c7856f1553f3aec6dd0a0ba10469da
 
 ## Learn the Low-Cost Way of Designing Winning YouTube Ad Campaigns
 
-# How to Create Video Ads for Free in YouTube Video Builder
-
-![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+# How to Create Video Ads for Free in YouTube Video Builder ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
 
@@ -84,53 +82,53 @@ Once you have access to the Beta version of **YouTube Video Builder**, you can s
 
 After signing in to your **YouTube Video Builder** account, on the main interface, click **Select Layout** from the navigation bar at the right if not already selected, pick a layout that best suits your needs, and click **Use Layout**.
 
-![ YouTube Video Builder ](https://images.wondershare.com/filmora/article-images/youtube-video-builder-select-layout.jpg)
+![YouTube Video Builder](https://images.wondershare.com/filmora/article-images/youtube-video-builder-select-layout.jpg)
 
 Next, from the **Color & Logo** section, choose the base (background) and text colors using their corresponding tools from under the **Brand colors** section.
 
-![Create video with YouTube Video Builder ](https://images.wondershare.com/filmora/article-images/youtube-video-builder-select-color-logo.jpg)
+![Create video with YouTube Video Builder](https://images.wondershare.com/filmora/article-images/youtube-video-builder-select-color-logo.jpg)
 
 After this, insert an image of your brand logo in the block under the **Logos** category.
 
-![Create video with YouTube Video Builder ](https://images.wondershare.com/filmora/article-images/youtube-video-builder-insert-brand-logo.jpg)
+![Create video with YouTube Video Builder](https://images.wondershare.com/filmora/article-images/youtube-video-builder-insert-brand-logo.jpg)
 
 #### Step 2: Add the Ingredients
 
 When you are on the **Images & Text** section of the navigation bar, pick the high-definition photos from the **Storyboard** at the bottom, and add them to the **Image 1**, **Image 2**, and **Image 3** boxes accordingly.
 
-![Create video with YouTube Video Builder ](https://images.wondershare.com/filmora/article-images/youtube-video-builder-insert-images-texts.jpg)
+![Create video with YouTube Video Builder](https://images.wondershare.com/filmora/article-images/youtube-video-builder-insert-images-texts.jpg)
 
 Now, scroll down to the **Text** section, and add the relevant content in the available text input fields. Make sure to add a compelling **Call to action** text to give the viewers a free passage to connect with you.
 
-![Create video with YouTube Video Builder with CTA ](https://images.wondershare.com/filmora/article-images/youtube-video-builder-call-to-action-texts.jpg)
+![Create video with YouTube Video Builder with CTA](https://images.wondershare.com/filmora/article-images/youtube-video-builder-call-to-action-texts.jpg)
 
 #### Step 3: Make Cosmetic Manipulations
 
 From the **Pick a Font** section of the navigation bar, click the **Google Fonts catalog** link to search for a unique font, and once found, type its name in the available field to use that font.
 
-![Create video with YouTube Video Builder - change font ](https://images.wondershare.com/filmora/article-images/youtube-video-builder-pickup-video-text-fonts.jpg)
+![Create video with YouTube Video Builder - change font](https://images.wondershare.com/filmora/article-images/youtube-video-builder-pickup-video-text-fonts.jpg)
 
 Alternatively, you can leave the default one selected. When on the **Select Music** section, choose your preferred background music from the drop-down list that is present under the section.
 
-![Create video with YouTube Video Builder with music ](https://images.wondershare.com/filmora/article-images/youtube-video-builder-select-music-for-video.jpg)
+![Create video with YouTube Video Builder with music](https://images.wondershare.com/filmora/article-images/youtube-video-builder-select-music-for-video.jpg)
 
 Finally, click **Create video**, and wait while **YouTube Video Builder** takes you to the **Preview, Save, Share** section, and generates your video.
 
-![ YouTube Video Builder Video create video  ](https://images.wondershare.com/filmora/article-images/youtube-video-builder-create-video.jpg)
+![YouTube Video Builder Video create video](https://images.wondershare.com/filmora/article-images/youtube-video-builder-create-video.jpg)
 
 #### Step 4: Save the Video and Begin Promotion
 
 After the video is generated, play to preview the film. If everything looks good, click **Save video**.
 
-![ YouTube Video Builder Video Preview and Save  ](https://images.wondershare.com/filmora/article-images/youtube-video-builder-save-preview-video.jpg)
+![YouTube Video Builder Video Preview and Save](https://images.wondershare.com/filmora/article-images/youtube-video-builder-save-preview-video.jpg)
 
 On the next page, click **Copy** to copy the video link, and share it with your friends, colleagues, and family members for their feedback.
 
-![ YouTube Video Builder Video Copy Link  ](https://images.wondershare.com/filmora/article-images/youtube-video-builder-copy-link.jpg)
+![YouTube Video Builder Video Copy Link](https://images.wondershare.com/filmora/article-images/youtube-video-builder-copy-link.jpg)
 
 Next, scroll down to get to the **Create Campaign** section of the navigation bar, and from the left screen, click **Create campaign** to begin a campaign to promote your brand and/or product(s).
 
-![ YouTube Video Builder Video Create Campaign ](https://images.wondershare.com/filmora/article-images/youtube-video-builder-create-campaign.jpg)
+![YouTube Video Builder Video Create Campaign](https://images.wondershare.com/filmora/article-images/youtube-video-builder-create-campaign.jpg)
 
 #### Part 5: Tips for Making Good Video Ads with YouTube Video Builder
 
@@ -171,3 +169,24 @@ Follow @Richard Bennett
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-the-ultimate-guide-to-youtube-fame-with-spectacular-music-videos/"><u>[New] In 2024, The Ultimate Guide to YouTube Fame with Spectacular Music Videos</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/-for-livelihood-mastering-youtubes-true-numbers/"><u>Views for Livelihood  Mastering YouTube's True Numbers</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/024-approved-redefining-your-viewing-experience-youtube-playlist-shuffle/"><u>[New] 2024 Approved  Redefining Your Viewing Experience  YouTube Playlist Shuffle</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-instructional-guide-modify-comment-accessibility-on-youtube/"><u>[New] In 2024, Instructional Guide  Modify Comment Accessibility on YouTube</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-boosting-your-online-presence-a-step-by-step-guide-to-viral-youtube-shorts-for-2024/"><u>[Updated] Boosting Your Online Presence  A Step-by-Step Guide to Viral YouTube Shorts for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/el-identity-made-simple-discover-the-10-best-banner-maker-apps-for-2024/"><u>Channel Identity Made Simple  Discover the 10 Best Banner Maker Apps for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-lush-looks-and-flawless-filters-building-your-vlog-empire/"><u>[Updated] Lush Looks and Flawless Filters  Building Your Vlog Empire</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-2024-approved-charting-the-course-to-prodigy-status-for-ajey-carryminati/"><u>[Updated] 2024 Approved  Charting the Course to Prodigy Status for Ajey (CarryMinati)</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/new-best-practices-in-converting-images-to-videos/"><u>[New] Best Practices in Converting Images to Videos</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/24-say-no-to-latency-turn-on-av1-in-youtube-settings/"><u>In 2024, Say No to Latency  Turn On AV1 in YouTube Settings</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-setup-and-strategies-for-youtube-gamers-live-sessions/"><u>[Updated] Setup and Strategies for YouTube Gamers' Live Sessions</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-skyrocketing-popularity-youtube-visibility-techniques/"><u>[Updated] Skyrocketing Popularity  YouTube Visibility Techniques</u></a></li>
+<li><a href="https://ai-video-apps.techidaily.com/2024-approved-top-movie-making-tools-convert-memories-into-professional-dvds/"><u>2024 Approved Top Movie Making Tools Convert Memories Into Professional DVDs</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-starting-out-on-youtube-top-gear-essentials/"><u>[Updated] Starting Out on YouTube - Top Gear Essentials</u></a></li>
+<li><a href="https://extra-information.techidaily.com/unraveling-the-mysteries-of-smooth-audioshifts/"><u>Unraveling the Mysteries of Smooth Audioshifts</u></a></li>
+<li><a href="https://ios-location-track.techidaily.com/in-2024-how-to-track-apple-iphone-x-location-by-number-drfone-by-drfone-virtual-ios/"><u>In 2024, How to Track Apple iPhone X Location by Number | Dr.fone</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-2024-approved-2023-fix-facebook-videos-not-playing-on-androidiphonechrome/"><u>[Updated] 2024 Approved  2023 | Fix Facebook Videos Not Playing on Android/iPhone/Chrome</u></a></li>
+</ul></div>

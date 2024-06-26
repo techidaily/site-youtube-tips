@@ -1,7 +1,7 @@
 ---
 title: "[New] Masterclass for Viral Talent"
-date: 2024-06-24 23:26:32
-updated: 2024-06-26 12:36:51
+date: 2024-06-25T17:24:00.951Z
+updated: 2024-06-26T17:24:00.951Z
 tags:
   - ai video
   - ai youtube
@@ -16,9 +16,7 @@ thumbnail: https://thmb.techidaily.com/b46dbabb50d5277c1ad28a5993cc958234753eefe
 
 ## Masterclass for Viral Talent
 
-# The YouTube Creator Summit - A Getaway for YouTube's Top Talent
-
-![](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+# The YouTube Creator Summit - A Getaway for YouTube's Top Talent ![](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
 
@@ -43,7 +41,7 @@ The Creator Summit is invite-only, and only 120 YouTubers attended including Gra
 
 ![YouTube Creator Summit Group Photo](https://images.wondershare.com/filmora/article-images/youtube-creator-summit-2017.jpg)
 
-_Will Smith was one of the speakers at the summit. Turns out_ [_he’s a big fan of Lilly Singh_](https://www.youtube.com/watch?v=AGlcsogbAQY)_._
+_Will Smith was one of the speakers at the summit. Turns out_ [_he’s a big fan of Lilly Singh_](https://www.youtube.com/watch?v=AGlcsogbAQY) _._
 
 Thanks to Nick from nickatnyte, for example, we have a pretty clear picture of the kinds of swag YouTube was giving away.
 
@@ -83,7 +81,7 @@ There were numerous custom pins available at different events at the summit. Asi
 
 A denim jacket with a play button on it was also in the box. The idea was that creators would collect pins and display them on their new jackets. At the end of the week, they would have a great souvenir reminding them of every event they attended at the summit.
 
-_![Denim jacket- 2017 YouTube Creator Summit](https://images.wondershare.com/filmora/article-images/youtube-creator-summit-denim-jacket.jpg)_
+_ ![Denim jacket- 2017 YouTube Creator Summit](https://images.wondershare.com/filmora/article-images/youtube-creator-summit-denim-jacket.jpg) _
 
 _Hannah Hart posted this photo from a river cruise she and other YouTubers went on while in New York for the summit._
 
@@ -116,3 +114,26 @@ Follow @Richard Bennett
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-tips.techidaily.com/ed-is-your-content-flourishing-consider-an-mcn-partnership-for-2024/"><u>[Updated] Is Your Content Flourishing? Consider an MCN Partnership for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/24-streamline-your-tv-with-youtube-video-loops/"><u>In 2024, Streamline Your TV with YouTube Video Loops</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-see-the-world-through-different-lenses-3-strategies-for-successful-pov-reactions-on-youtube/"><u>[New] In 2024, See the World Through Different Lenses  3 Strategies for Successful POV Reactions on YouTube</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/el-identity-made-simple-discover-the-10-best-banner-maker-apps-for-2024/"><u>Channel Identity Made Simple  Discover the 10 Best Banner Maker Apps for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-silencing-distractions-enhancing-youtube-videos/"><u>[New] In 2024, Silencing Distractions  Enhancing YouTube Videos</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/approved-breaking-down-the-elements-of-a-youtube-shorts-template/"><u>2024 Approved  Breaking Down the Elements of a YouTube Shorts Template</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-youtube-gaming-pros-choice-of-5-microphones/"><u>[Updated] YouTube Gaming Pros' Choice of 5 Microphones</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-editmaster-suite-for-2024/"><u>[Updated] EditMaster Suite for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-securing-youtube-tracks-at-no-cost-with-security-in-mind/"><u>[Updated] Securing Youtube Tracks at No Cost, with Security in Mind</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/in-2024-a-step-by-step-guide-on-using-adb-and-fastboot-to-remove-frp-lock-from-your-vivo-v29-by-drfone-android/"><u>In 2024, A Step-by-Step Guide on Using ADB and Fastboot to Remove FRP Lock from your Vivo V29</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/updated-quicknetflix-screenshots-a-mac-users-guide/"><u>[Updated] QuickNetflix Screenshots  A Mac User's Guide</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/updated-overcoming-common-gs-pitfalls-in-kinemaster/"><u>[Updated] Overcoming Common GS Pitfalls in KineMaster</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/2024-approved-ditching-new-features-going-back-to-el-capitan/"><u>2024 Approved  Ditching New Features  Going Back to El Capitan</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/paint-jocular-visuals-with-giphy-in-mind/"><u>Paint Jocular Visuals with Giphy in Mind</u></a></li>
+<li><a href="https://techidaily.com/how-to-reset-a-nokia-g22-phone-that-is-locked-drfone-by-drfone-reset-android-reset-android/"><u>How to Reset a Nokia G22 Phone That Is Locked | Dr.fone</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-maximize-networking-with-fb-link-downloader-tools-for-2024/"><u>[New] Maximize Networking with FB Link Downloader Tools for 2024</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/in-2024-things-you-should-know-when-unlocking-total-wireless-of-iphone-x-by-drfone-ios/"><u>In 2024, Things You Should Know When Unlocking Total Wireless Of iPhone X</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-leveraging-view-counts-for-financial-freedom-online/"><u>[New] Leveraging View Counts for Financial Freedom Online</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/expert-tips-on-amplifying-competitive-edge-via-in-game-vocal-change-free-guide-available-for-2024/"><u>Expert Tips on Amplifying Competitive Edge via In-Game Vocal Change (Free Guide Available) for 2024</u></a></li>
+</ul></div>

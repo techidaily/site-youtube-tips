@@ -1,7 +1,7 @@
 ---
 title: "\"The Insider's Guide to On-Screen Text in YouTube Media\""
-date: 2024-06-22 13:10:34
-updated: 2024-06-23 11:27:46
+date: 2024-06-25T17:57:14.453Z
+updated: 2024-06-26T17:57:14.453Z
 tags:
   - ai video
   - ai youtube
@@ -16,9 +16,7 @@ thumbnail: https://thmb.techidaily.com/e2a22d0e1eb69e31073b9f86edc15bd17dc9ed743
 
 ## The Insider's Guide to On-Screen Text in YouTube Media
 
-# How to Add Text to YouTube Video Before or After Uploading
-
-![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+# How to Add Text to YouTube Video Before or After Uploading ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
 
@@ -34,11 +32,11 @@ A great way to emphasize something you say in your vlog is to [have your words a
 
 Before uploading the video to YouTube, it is recommended to add text to the video first. You can add simple texts and captions to videos with the free video editing software. To add more text effects to the video, you can use Filmora, Sony Vegas Movie Studio and Adobe Premiere CC based on your video editing skills and needs. These software programs are great video editors, which can help you input text easily.
 
-#### 1\.  Use [Filmora](https://tools.techidaily.com/wondershare/filmora/download/)to Add text to Videos
+#### 1\.  Use Filmora
 
 There are plenty of Text effects built in Filmora, you can apply motions and animation to texts, titles, subtitles, end credits and openers as well. Each title preset will present different effects. You can add multiple text boxes and place the text to any position in need. Besides writing texts to video, you can select the target font, size and color and customize the text effect in detail as well. To add text to a video in Filmora is easy, just follow the steps below:
 
-![ Add Text to Video ](https://images.wondershare.com/filmora/article-images/filmora-advanced-text-edit-interface.jpg)
+![Add Text to Video](https://images.wondershare.com/filmora/article-images/filmora-advanced-text-edit-interface.jpg)
 
 * Open up Filmora and drag a clip into your timeline. Then, go to   **Text/Credit.**
 * Find a style that you like and drag it into your timeline where you want your text to appear. Make sure your text is selected in your timeline and click the   **Advanced Text Editing** icon, which looks like a pen and paper.
@@ -54,7 +52,7 @@ There are plenty of Text effects built in Filmora, you can apply motions and ani
 
 As a simple video editing software, Windows Movie Maker also allows you to add text to videos. It provides 3 different options for you to add Title, Caption and Credits to the YouTube videos. You can follow the steps below to add text to the video in WMM.
 
-![ add text in WMM ](https://images.wondershare.com/filmora/article-images/add-text-in-wmm.jpg)
+![add text in WMM](https://images.wondershare.com/filmora/article-images/add-text-in-wmm.jpg)
 
 * To start, launch the Windows Movie Maker.
 * After, select import video to insert the video that you want to add text with.
@@ -67,7 +65,7 @@ For the step by step tutorial of adding text to YouTube video, check [How to Add
 
 [Adding text to YouTube videos in Sony Vegas](https://tools.techidaily.com/wondershare/filmora/download/) is not so complicated if you are new to this software. You can adjust the color, size, font and duration of the text effect and add fade in and fade out effects. Follow the steps below to add texts to video in Vegas:
 
-![ Add Text to Video ](https://images.wondershare.com/filmora/article-images/add-text-in-vegas-pro-2.jpg)
+![Add Text to Video](https://images.wondershare.com/filmora/article-images/add-text-in-vegas-pro-2.jpg)
 
 * Launch Sony Vegas Movie Studio.
 * Click the View Menu then select Media Generators.
@@ -94,15 +92,13 @@ Of course, you can only add and edit texts and captions to the video under your 
 
 * Go to [youtube.com](https://www.youtube.com/) then sign in to your account. After sign in your YouTube account, click your avatar and select **Creator Studio** to enter the creator studio interface.
 * Click the **Video Manager** tab and in Videos section you will see all your videos uploaded to YouTube. Select the video that you want to add captions to and then select **Subtitles/CC** after clicking Edit button.
-* Add Captions/Subtitles
-
-![ Add Text to Video ](https://images.wondershare.com/filmora/article-images/add-text-youtube-video-editor.jpg)
+* Add Captions/Subtitles ![Add Text to Video](https://images.wondershare.com/filmora/article-images/add-text-youtube-video-editor.jpg)
 
 While YouTube may have already created the subtitles automatically for your video with its speech recognition technology. If it does, you will see something like Published: English (Automatic) to the right of your video. If the automatically generated subtitles is not correct, you can edit it to improve the accuracy. Select the line that needs modification to make the edits.
 
 If there is no auto-subtitles, you can choose from 3 ways to add subtitles and closed captions to the video: Upload a file, Transcribe and auto-sync and create new subtitles or CC.
 
-![ Add Text to Video ](https://images.wondershare.com/filmora/article-images/3-ways-to-add-youtube-subtitles.jpg)
+![Add Text to Video](https://images.wondershare.com/filmora/article-images/3-ways-to-add-youtube-subtitles.jpg)
 
 **Upload a file:** upload a text transcript or timed subtitles file.
 
@@ -165,3 +161,24 @@ Follow @Richard Bennett
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-tips.techidaily.com/ed-free-fast-and-reliable-download-your-favorite-youtube-content-for-2024/"><u>[Updated] Free, Fast and Reliable  Download Your Favorite YouTube Content for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ltimate-list-10-premium-history-channels-online-for-2024/"><u>[New] Ultimate List  10 Premium History Channels Online for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-professional-footage-with-top-tier-stabilizers/"><u>[Updated] Professional Footage with Top-Tier Stabilizers</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/be-subscriber-chart-the-5-most-subscribed-youtube-channels-for-2024/"><u>YouTube Subscriber Chart - The 5 Most Subscribed YouTube Channels for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/rime-selection-of-websites-for-youtube-video-intro-download/"><u>[New] Prime Selection of Websites for YouTube Video Intro Download</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-prime-tools-turning-youtube-videos-into-text/"><u>[Updated] Prime Tools  Turning YouTube Videos Into Text</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-master-your-mp3-ultimate-guide-to-youtube-converters/"><u>[Updated] Master Your MP3  Ultimate Guide to YouTube Converters</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ustomize-your-youtube-experience-with-altered-pace-for-2024/"><u>[New] Customize Your YouTube Experience with Altered Pace for 2024</u></a></li>
+<li><a href="https://video-capture.techidaily.com/new-2024-approved-e-education-video-logging/"><u>[New] 2024 Approved  E-Education Video Logging</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/from-likes-to-leads-top-30-tactics-for-social-media-success/"><u>From Likes to Leads  Top 30 Tactics for Social Media Success</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/complete-review-and-guide-to-techeligible-frp-bypass-and-more-for-infinix-note-30-by-drfone-android/"><u>Complete Review & Guide to Techeligible FRP Bypass and More For Infinix Note 30</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/updated-in-2024-discover-the-best-video-capture-tools-for-windows-users/"><u>[Updated] In 2024, Discover the Best Video Capture Tools for Windows Users</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/6-youtuber-quizzes-to-know-which-youtuber-you-are/"><u>6 YouTuber Quizzes to Know Which YouTuber You Are</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/2024-approved-elevate-your-youtube-content-editing-in-adobe-premiere/"><u>2024 Approved  Elevate Your YouTube Content  Editing in Adobe Premiere</u></a></li>
+<li><a href="https://fake-location.techidaily.com/does-airplane-mode-turn-off-gps-location-on-samsung-galaxy-a34-5g-drfone-by-drfone-virtual-android/"><u>Does Airplane Mode Turn off GPS Location On Samsung Galaxy A34 5G? | Dr.fone</u></a></li>
+<li><a href="https://location-fake.techidaily.com/5-hassle-free-solutions-to-fake-location-on-find-my-friends-of-poco-x6-pro-drfone-by-drfone-virtual-android/"><u>5 Hassle-Free Solutions to Fake Location on Find My Friends Of Poco X6 Pro | Dr.fone</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/updated-expert-insights-blending-visual-and-auditory-elements-in-windows-photos/"><u>[Updated] Expert Insights  Blending Visual & Auditory Elements in Windows Photos</u></a></li>
+</ul></div>

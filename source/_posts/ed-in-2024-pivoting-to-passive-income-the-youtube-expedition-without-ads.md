@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] In 2024, Pivoting to Passive Income  The YouTube Expedition Without Ads\""
-date: 2024-06-22 16:50:40
-updated: 2024-06-23 11:35:31
+date: 2024-06-25T18:16:28.371Z
+updated: 2024-06-26T18:16:28.371Z
 tags:
   - ai video
   - ai youtube
@@ -16,9 +16,7 @@ thumbnail: https://thmb.techidaily.com/eba0a5b42c98b9f5083f688e46f3bb9b2578fe7a0
 
 ## Pivoting to Passive Income: The YouTube Expedition Without Ads
 
-# How to Make Money on YouTube Without Ads
-
-![](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+# How to Make Money on YouTube Without Ads ![](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
 
@@ -38,7 +36,7 @@ Over thousands of hours of content are uploaded on YouTube every day and people 
 
 ## **What is the YouTube Partner Program (YPP)?**
 
-[YPP enables YouTubers to make money from an advertisement](https://www.filmora.io/community-blog/youtube-monetization---the-ultimate-guide-to-ad-revenue-422.html)that appears before or during their videos.
+[YPP enables YouTubers to make money from an advertisement](https://www.filmora.io/community-blog/youtube-monetization---the-ultimate-guide-to-ad-revenue-422.html) that appears before or during their videos.
 
 ## **How Much Money Can YouTubers Make from Ads?**
 
@@ -58,7 +56,7 @@ This is a general estimate of how much a YouTuber can make from ads once they qu
 
 For new YouTubers, it is getting harder and harder to get to that point where their sole income can be from YouTube ads. Before they can make a penny, they must first qualify.
 
-#### **Monetization Rules (**[**as of January 2018**](https://techcrunch.com/2018/01/16/youtube-tightens-rukles/)**):**
+#### **Monetization Rules (** **as of January 2018**
 
 \- Creators need 1,000 subscribers and 4,000 hours of view time in 12 months before they can turn on monetization
 
@@ -84,11 +82,9 @@ Here are some examples of products and services you can offer:
 
 \- Online course
 
-\- Channel/brand merchandise
+\- Channel/brand merchandise ![YouTuber Jake Paul](https://images.wondershare.com/filmora/article-images/jack-paul1.jpg)
 
- ![YouTuber Jake Paul ](https://images.wondershare.com/filmora/article-images/jack-paul1.jpg)
-
-_YouTuber, Jake Paul uses eCommerce platform_ [_Fanjoy_](https://fanjoy.co/collections/)_to sell his merch._
+_YouTuber, Jake Paul uses eCommerce platform_ [_Fanjoy_](https://fanjoy.co/collections/) _to sell his merch._
 
 #### **Services:**
 
@@ -116,7 +112,7 @@ If you are selling a meditation eBook and guided meditation services, type in so
 
 ![meditation](https://images.wondershare.com/filmora/article-images/meditation3.png)
 
-From there, take your possible keywords and put them into a tool such as [Ubersuggest](https://neilpatel.com/ubersuggest/)to find other related keywords. This will help you create discoverable content that will catch the interest of those who will buy what you are selling.
+From there, take your possible keywords and put them into a tool such as [Ubersuggest](https://neilpatel.com/ubersuggest/) to find other related keywords. This will help you create discoverable content that will catch the interest of those who will buy what you are selling.
 
  **2\. Your content must have value:** You cannot start with the Call to Action or try selling to your audience right away. You must first build trust and prove that what you are selling has value.
 
@@ -168,7 +164,7 @@ The average affiliate commission rate is between 5% to 30%, with a lot of variab
 
 ![affiliate links](https://images.wondershare.com/filmora/article-images/affiliat-link8.jpg)
 
-_Travel YouTuber,_ [_Sorelle Amore_](https://www.youtube.com/user/SorelleIAm)_’s affiliate links to her vlogging gears._
+_Travel YouTuber,_ [_Sorelle Amore_](https://www.youtube.com/user/SorelleIAm) _’s affiliate links to her vlogging gears._
 
  Keep in mind that people are most likely going to take recommendations from people they trust. You wouldn’t buy a computer from a nutritionist and you wouldn’t buy vitamins from a gamer, so consider what you are an expert in and what products you have the most authority to speak about.
 
@@ -204,7 +200,7 @@ Here is the list of 4 popular affiliate marketing networks:
 
 \- [PeerFly](https://peerfly.com/)
 
-You can also partner with brands directly as many of them, such as [Sephora](https://www.sephora.com/affiliates)and [Canon](https://shop.usa.canon.com/shop/en/catalog/affiliate-program), will have their own affiliate program.
+You can also partner with brands directly as many of them, such as [Sephora](https://www.sephora.com/affiliates) and [Canon](https://shop.usa.canon.com/shop/en/catalog/affiliate-program), will have their own affiliate program.
 
 ## **3\. Brand Deal or Sponsorships:**
 
@@ -257,7 +253,7 @@ But how can you approach crowdfunding so it doesn’t look like you are begging?
 
 \- **Project-based:**  Is there a special project you have in mind, get support for it. A longer-form video or one that your fans have been wanting for a while, by highlighting this anticipated project, you can get more backing behind it financially.
 
- From Sept-Oct 2011, the YouTube channel Freddiew (aka RocketJump) went on [Kickstarter to crowdfund](https://www.kickstarter.com/projects/freddiew/video-game-high-school)so they can produce a web series called Video Game High School. In 30 days, they were able to surpass their goal of $75,000 with $273,725 and 5,661 backers. The result is a multiple season web series, the first one published onto YouTube in May 2012.
+ From Sept-Oct 2011, the YouTube channel Freddiew (aka RocketJump) went on [Kickstarter to crowdfund](https://www.kickstarter.com/projects/freddiew/video-game-high-school) so they can produce a web series called Video Game High School. In 30 days, they were able to surpass their goal of $75,000 with $273,725 and 5,661 backers. The result is a multiple season web series, the first one published onto YouTube in May 2012.
 
  Without crowdfunding, the project would unlikely have been produced and published for viewers in such a short amount of time.
 
@@ -275,7 +271,7 @@ If you have a pie in the sky goal, you aren’t going to fully leverage the mess
 
 #### **How Does Patreon Work for YouTubers?**
 
-When it comes to crowdfunding for YouTubers, [Patreon](https://www.patreon.com/)is the platform of choice. While other platforms such as Kickstarter or GoFundMe are focused on entrepreneurial pursuits, large projects, or charitable causes, Patreon is designed to support creatives and reward and incentivize donors.
+When it comes to crowdfunding for YouTubers, [Patreon](https://www.patreon.com/) is the platform of choice. While other platforms such as Kickstarter or GoFundMe are focused on entrepreneurial pursuits, large projects, or charitable causes, Patreon is designed to support creatives and reward and incentivize donors.
 
 ## **Key Takeaways:**
 
@@ -311,3 +307,26 @@ Follow @Richard Bennett
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-tips.techidaily.com/y-pointers-from-script-to-screenplay-for-2024/"><u>Parody Pointers  From Script to Screenplay for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-game-changing-streaming-apps-for-gamers/"><u>[Updated] Game-Changing Streaming Apps for Gamers</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-unlocking-potential-tubebuddy-and-channel-mastery/"><u>[Updated] Unlocking Potential  TubeBuddy & Channel Mastery</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-how-to-create-youtube-channel-in-mobile-personal-and-business/"><u>[Updated] How to Create YouTube Channel in Mobile [Personal & Business]</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-the-science-of-youtube-success-perfect-thumbnails/"><u>[Updated] The Science of YouTube Success  Perfect Thumbnails</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/approved-upgrade-your-youtube-bio-with-pro-templates/"><u>2024 Approved  Upgrade Your Youtube Bio with Pro Templates</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-the-10-funniest-youtube-shorts-video-ideas/"><u>[Updated] The 10 Funniest YouTube Shorts Video Ideas</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/approved-essential-tips-for-smooth-youtube-content-trimming/"><u>2024 Approved  Essential Tips for Smooth YouTube Content Trimming</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/0-unique-video-reaction-strategies-for-online-enthusiasts-for-2024/"><u>[New] 10 Unique Video Reaction Strategies for Online Enthusiasts for 2024</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/updated-in-2024-enhance-visuals-with-better-obs-settings/"><u>[Updated] In 2024, Enhance Visuals with Better OBS Settings</u></a></li>
+<li><a href="https://video-creation-software.techidaily.com/updated-chromecast-without-limits-how-to-play-all-video-formats-2023-edition-for-2024/"><u>Updated Chromecast Without Limits How to Play All Video Formats (2023 Edition) for 2024</u></a></li>
+<li><a href="https://sound-optimizing.techidaily.com/new-in-2024-melodic-compilation-a-comprehensive-guide-to-exclusive-online-sites-for-video-tune-libraries/"><u>New In 2024, Melodic Compilation A Comprehensive Guide to Exclusive Online Sites for Video Tune Libraries</u></a></li>
+<li><a href="https://android-frp.techidaily.com/in-2024-how-to-bypass-samsung-galaxy-s21-fe-5g-2023-frp-in-3-different-ways-by-drfone-android/"><u>In 2024, How To Bypass Samsung Galaxy S21 FE 5G (2023) FRP In 3 Different Ways</u></a></li>
+<li><a href="https://video-ai-editor.techidaily.com/updated-unleash-your-creativity-how-to-flip-a-clip-in-final-cut-pro/"><u>Updated Unleash Your Creativity How to Flip a Clip in Final Cut Pro</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/updated-2024-approved-nailing-your-live-on-facebook-a-recorders-manual/"><u>[Updated] 2024 Approved  Nailing Your Live on Facebook  A Recorder's Manual</u></a></li>
+<li><a href="https://extra-support.techidaily.com/in-2024-motion-graphics-101-key-principles-and-methods/"><u>In 2024, Motion Graphics 101  Key Principles & Methods</u></a></li>
+<li><a href="https://facebook-video-files.techidaily.com/updated-2024-approved-ultimate-7-private-film-access-tools/"><u>[Updated] 2024 Approved  Ultimate 7 Private Film Access Tools</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-data-after-switching-from-oppo-find-x7-ultra-to-latest-samsung-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Data After Switching From Oppo Find X7 Ultra to Latest Samsung | Dr.fone</u></a></li>
+<li><a href="https://audio-shaping.techidaily.com/updated-10-premium-multitrack-audio-editors-that-outshine-audacity-for-2024/"><u>Updated 10 Premium Multitrack Audio Editors That Outshine Audacity for 2024</u></a></li>
+</ul></div>

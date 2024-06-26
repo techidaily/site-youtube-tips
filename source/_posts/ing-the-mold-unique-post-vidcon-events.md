@@ -1,7 +1,7 @@
 ---
 title: "\"Breaking the Mold  Unique Post-VidCon Events\""
-date: 2024-06-20 19:40:34
-updated: 2024-06-23 11:49:17
+date: 2024-06-25T18:12:54.460Z
+updated: 2024-06-26T18:12:54.460Z
 tags:
   - ai video
   - ai youtube
@@ -16,9 +16,7 @@ thumbnail: https://thmb.techidaily.com/8823459ab6574b19c976d6905c67df41ee5da3519
 
 ## Breaking the Mold: Unique Post-VidCon Events
 
-# Beyond VidCon - A Guide to the Most Important YouTube Events
-
-![](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+# Beyond VidCon - A Guide to the Most Important YouTube Events ![](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
 
@@ -42,15 +40,13 @@ Want to be a youtube creator too? Go and get **Wondershare Filmora**, the video 
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://download.wondershare.com/filmora9-mac%5Ffull718.zip)
 
-#### 1. **[VidCon](http://vidcon.com/)**
+#### 1. ** VidCon
 
 **VidCon US:** June (Anaheim, California)
 
 **VidCon Europe (Amsterdam):** March/April
 
-**VidCon Australia:** August/September
-
-![VidCon-On-Spot](https://images.wondershare.com/filmora/VidCon-On-Spot.jpg)
+**VidCon Australia:** August/September ![VidCon-On-Spot](https://images.wondershare.com/filmora/VidCon-On-Spot.jpg)
 
 In 2017 over 30,000 YouTube enthusiasts – from fans to A-list creators – attended VidCon US, and that was thousands of more people than attended in 2016\. It’s hard to imagine that this event – the biggest convention for YouTube and online video – will do anything but grow over the next few years.
 
@@ -70,15 +66,13 @@ The **Industry Track** is for anyone working in online video or video-adjacent i
 
 You have a two-week window (usually the first half of May) to submit your choices.
 
-#### 2. **[PlayList Live](http://www.playlist-live.com/home.php)**
+#### 2. ** PlayList Live
 
 **Orlando, Florida:** April/May
 
 **Tri-State (Secaucus, New Jersey):** September
 
-**Washington DC:** September
-
-![Playlistlive](https://images.wondershare.com/filmora/Playlistlive.jpg)
+**Washington DC:** September ![Playlistlive](https://images.wondershare.com/filmora/Playlistlive.jpg)
 
 Playlist Live is a YouTube event for creators and their supporters that has a particular focus on music. Where VidCon is advertised using images of sunshine, crowded convention halls, and speakers, Playlist Live is advertised with images of city skylines, concerts, and fireworks.
 
@@ -104,15 +98,13 @@ The **Premium Pass** ($250-$404) grants you standard access plus early access fo
 
 There is also business **Passes** with Merch and Deluxe (Business Deluxe can cost up to $330) options for people working in marketing, publicity, production, etc. These passes include access to an extra day of business and industry-specific programming.
 
-#### 3. **[Beautycon Festivals](https://beautycon.com/)**
+#### 3. ** Beautycon Festivals
 
 **Los Angeles:** July
 
 **New York:** April
 
-**London, UK:** November
-
-![beautycon-festivals](https://images.wondershare.com/filmora/beautycon-festivals.jpg)
+**London, UK:** November ![beautycon-festivals](https://images.wondershare.com/filmora/beautycon-festivals.jpg)
 
 Beautycon is an event meant to highlight innovators in the fields of Beauty, Makeup, and Lifestyle. They bring together online creators, fans, celebrities, and brands for two-day festivals full of fun, panel discussions, shopping, and free samples.
 
@@ -140,15 +132,13 @@ These events are customized to the wherever festival is visiting, so you’re al
 
 There is not a steady annual schedule for FanFests, but it has visited these cities in the past: Manila, Mumbai, Seoul, Toronto, Sao Paulo, Jakarta, Tokyo, Jeddah, Bangkok, Ho Chi Minh City, Hong Kong, and Washington, DC.
 
-#### 5. **[RTX](https://www.rtxaustin.com/)**
+#### 5. ** RTX
 
 **Austin, Texas:** August
 
 [**London:**](https://rtxlondon.com/) September
 
-Sydney, Australia: February
-
-![rtx](https://images.wondershare.com/filmora/rtx.jpg)
+Sydney, Australia: February ![rtx](https://images.wondershare.com/filmora/rtx.jpg)
 
 Brought to you by the creators behind Rooster Teeth, RTX is a celebration of internet culture and gaming. It includes exhibitors, live events, panels, and activities targeting gamers. Partners include Twitch and multiple gaming companies.
 
@@ -162,7 +152,7 @@ A **Weekend Plus** ($335) pass gets you everything the Weekend pass gets you plu
 
 The **Platinum** pass is the most expensive at $729, and it includes everything the Weekend Plus pass does plus a priority line for panels, priority seating, and an exclusive party.
 
-#### 6. **[Amplify Live](http://www.thisisamplify.com/blog/cool-for-summer-amplifylive-syd-mel-faqs)**
+#### 6. ** Amplify Live
 
 **Sydney, Australia:** April
 
@@ -182,11 +172,9 @@ For VIP access, you can buy a **Deluxe** pass for $125-$150 AUD.
 
 **Platinum Meet & Greet**, $450 AUD: meet all the headliners and get access to an exclusive VIP area, merch pack, and special entry.
 
-#### 7. **[Summer in the City](https://www.sitc-event.co.uk/)**
+#### 7. ** Summer in the City
 
-**London, UK:** August
-
-![summer-in-the-city](https://images.wondershare.com/filmora/summer-in-the-city.jpg)
+**London, UK:** August ![summer-in-the-city](https://images.wondershare.com/filmora/summer-in-the-city.jpg)
 
 This is the largest online video festival in the UK. It features discussion panels, workshops, and live performances targeted at creators, fans of online video, and industry professionals. YouTubers might hang out on the show floor meeting fans, and there are also Meet and Greet sessions for top creators. All ticket holders can submit online ballots for a chance at Meet and Greet access.
 
@@ -233,3 +221,23 @@ Follow @Richard Bennett
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-tips.techidaily.com/ed-hashtag-wisdom-jumpstart-your-6-figure-youtube-rank/"><u>[Updated] Hashtag Wisdom  Jumpstart Your 6-Figure Youtube Rank</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-mastering-youtube-views-secrets-for-a-million-followers/"><u>[New] In 2024, Mastering Youtube Views  Secrets for a Million Followers</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-in-2024-step-by-step-guide-to-find-youtube-hidden-videos/"><u>[Updated] In 2024, Step-By-Step Guide to Find YouTube Hidden Videos</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/tepping-stones-from-youtube-ads-to-monetary-success/"><u>[New] Stepping Stones From YouTube Ads to Monetary Success</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-transforming-your-film-with-advanced-color-separation-for-2024/"><u>[Updated] Transforming Your Film with Advanced Color Separation for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-7-places-to-find-royalty-free-sound-effects-for-youtube-videos-for-2024/"><u>[Updated] 7 Places to Find Royalty Free Sound Effects for YouTube Videos for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-in-2024-discovering-10-superior-history-educational-videos/"><u>[Updated] In 2024, Discovering 10 Superior History Educational Videos</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/how-can-nokia-c32mirror-share-to-pc-drfone-by-drfone-android/"><u>How Can Nokia C32Mirror Share to PC? | Dr.fone</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/in-2024-ig-upgrade-starts-here-top-tools-for-follower-growth/"><u>In 2024, IG Upgrade Starts Here  Top Tools for Follower Growth</u></a></li>
+<li><a href="https://techidaily.com/how-to-transfer-data-from-apple-iphone-se-to-other-iphone-14-devices-drfone-by-drfone-transfer-data-from-ios-transfer-data-from-ios/"><u>How To Transfer Data From Apple iPhone SE To Other iPhone 14 devices? | Dr.fone</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/2024-approved-the-right-approach-to-partial-youtube-downloads/"><u>2024 Approved  The Right Approach to Partial YouTube Downloads</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-become-a-social-media-vanguard-top-10-pioneering-igtv-techniques-for-marketing-excellence/"><u>[New] Become a Social Media Vanguard  Top 10 Pioneering IGTV Techniques for Marketing Excellence</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/new-guidance-download-tamil-music-as-ringtone-and-how-to-cut-a-song-as-ringtone/"><u>[New] Guidance  Download Tamil Music As Ringtone And How To Cut A Song As Ringtone</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-streamline-and-save-prime-tools-to-plug-into-fb-videos/"><u>[New] Streamline & Save  Prime Tools to Plug Into Fb Videos</u></a></li>
+<li><a href="https://android-frp.techidaily.com/in-2024-a-step-by-step-guide-on-using-adb-and-fastboot-to-remove-frp-lock-from-your-huawei-by-drfone-android/"><u>In 2024, A Step-by-Step Guide on Using ADB and Fastboot to Remove FRP Lock from your Huawei</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/new-must-have-talker-alteration-tech-for-content-makers/"><u>[New] Must-Have Talker Alteration Tech for Content Makers</u></a></li>
+</ul></div>

@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] In 2024, Creating Cost-Effective YouTube Closure Elements\""
-date: 2024-06-23 19:24:58
-updated: 2024-06-24 10:18:16
+date: 2024-06-25T17:21:45.484Z
+updated: 2024-06-26T17:21:45.484Z
 tags:
   - ai video
   - ai youtube
@@ -16,9 +16,7 @@ thumbnail: https://thmb.techidaily.com/c1f2394a481b4500340195e3c4792344b150afff1
 
 ## Creating Cost-Effective YouTube Closure Elements
 
-# How to Create YouTube Intros & End Cards - Free and Easy
-
-![](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
+# How to Create YouTube Intros & End Cards - Free and Easy ![](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 ##### Shanoon Cox
 
@@ -50,7 +48,7 @@ When your intro video is longer than five seconds viewers are more likely to cli
 
 Whether it is better to put your intro at the very beginning of your video, or after you introduce your topic, will depend on your viewers. You may want to try it both ways and then look at your retention report (found in your YouTube Creator Studio under Analytics) to see which works best for you.
 
-#### [Top Intro Sites](https://tools.techidaily.com/wondershare/filmora/download/)
+#### Top Intro Sites
 
 There are a few different sites where you can download animated intros, customized to include your username or logo. Here are two of the best:
 
@@ -93,7 +91,7 @@ You should also have a subscribe link somewhere in your end card, ideally a very
 
 Some creators will leave their end cards at that and play music overtop, but it can be even more effective to include a voiceover where you ask viewers to subscribe and watch your other videos.
 
-#### [How To Make an End Card](https://tools.techidaily.com/wondershare/filmora/download/)
+#### How To Make an End Card
 
 1. Choose a static background. You may want to download an end card template or create one in a drawing program. If you do, make sure to include calls to action like ‘Watch more!’ and ‘Subscribe’.
 2. Drag your background into your timeline at the end of your video.
@@ -133,3 +131,27 @@ Follow @Shanoon Cox
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-tips.techidaily.com/orts-soundtrack-hits-top-10-trending-sounds-for-2024/"><u>YT Shorts Soundtrack Hits  Top 10 Trending Sounds for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-quick-video-growth-top-20-hacks-for-instant-impact/"><u>[Updated] Quick Video Growth  Top 20 Hacks for Instant Impact</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/tive-strategies-in-building-an-irresistible-online-identity-on-youtube-for-2024/"><u>Proactive Strategies in Building an Irresistible Online Identity on YouTube for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-in-2024-discovering-your-youtube-comments-on-various-devices/"><u>[Updated] In 2024, Discovering Your YouTube Comments on Various Devices</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-2024-approved-from-scratch-to-screen-video-editing-with-youtube-and-others/"><u>[Updated] 2024 Approved  From Scratch to Screen  Video Editing with YouTube & Others</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/024-approved-step-by-step-guide-embedding-company-imagery-in-video-posts/"><u>[New] 2024 Approved  Step-by-Step Guide  Embedding Company Imagery in Video Posts</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-2024-approved-unleash-potential-with-optimal-hashtags-for-gaming-vids/"><u>[Updated] 2024 Approved  Unleash Potential with Optimal Hashtags for Gaming Vids</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/aughter-lane-top-7-comedy-content-concepts-for-vloggers/"><u>[New] Laughter Lane  Top 7 Comedy Content Concepts for Vloggers</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-mastering-video-edits-youtube-content-creation-on-windows-for-2024/"><u>[Updated] Mastering Video Edits  YouTube Content Creation on Windows for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-audio-matters-ensuring-excellent-sound-in-your-youtube-shots/"><u>[Updated] Audio Matters  Ensuring Excellent Sound in Your YouTube Shots</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/in-2024-strategies-for-maximizing-your-video-footprint-in-instagram/"><u>In 2024, Strategies for Maximizing Your Video Footprint in Instagram</u></a></li>
+<li><a href="https://howto.techidaily.com/what-to-do-when-infinix-smart-8-pro-has-black-screen-of-death-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>What To Do When Infinix Smart 8 Pro Has Black Screen of Death? | Dr.fone</u></a></li>
+<li><a href="https://ai-voice-clone.techidaily.com/in-2024-how-to-promote-your-tiktok-videos-best-8-strategies/"><u>In 2024, How to Promote Your TikTok Videos Best 8 Strategies</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/how-to-cast-realme-narzo-60-pro-5g-screen-to-pc-using-wifi-drfone-by-drfone-android/"><u>How to Cast Realme Narzo 60 Pro 5G Screen to PC Using WiFi | Dr.fone</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-professional-tips-for-hd-streaming-success-on-social-media-fb/"><u>[Updated] Professional Tips for HD Streaming Success on Social Media (FB)</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/updated-prepping-zones-vr-setup-guide-with-oculus/"><u>[Updated] Prepping Zones  VR Setup Guide with Oculus</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-restore-deleted-vivo-contacts-an-easy-method-explained-by-fonelab-android-recover-contacts/"><u>How to Restore Deleted Vivo Contacts  An Easy Method Explained.</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/ways-to-trade-pokemon-go-from-far-away-on-apple-iphone-12-drfone-by-drfone-virtual-ios/"><u>Ways to trade pokemon go from far away On Apple iPhone 12? | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/ultimate-guide-to-get-the-meltan-box-pokemon-go-for-oppo-reno-11f-5g-drfone-by-drfone-virtual-android/"><u>Ultimate guide to get the meltan box pokemon go For Oppo Reno 11F 5G | Dr.fone</u></a></li>
+<li><a href="https://ai-video-apps.techidaily.com/new-in-2024-mac-movie-creation-a-beginners-tutorial/"><u>New In 2024, Mac Movie Creation A Beginners Tutorial</u></a></li>
+</ul></div>

@@ -1,7 +1,7 @@
 ---
 title: "[Updated] The Ultimate Guide to Banner & Art Design for Your YouTube Channel"
-date: 2024-06-11 16:31:45
-updated: 2024-06-14 11:58:45
+date: 2024-06-25T17:34:22.647Z
+updated: 2024-06-26T17:34:22.647Z
 tags:
   - ai video
   - ai youtube
@@ -49,21 +49,15 @@ For the best results on all devices, your YouTube banner size should be:
 
 #### **YouTube Channel Art/Banner Dimensions Displayed on TVs**
 
- 2560 x 1440 px
+ 2560 x 1440 px ![entire banner size](https://images.wondershare.com/filmora/article-images/entire-banner-size1.jpg)
 
- ![entire banner size](https://images.wondershare.com/filmora/article-images/entire-banner-size1.jpg)
-
-YouTube will display your entire channel art on TVs
-
- ![tv dimension display](https://images.wondershare.com/filmora/article-images/tv-dimension-display2.jpg)
+YouTube will display your entire channel art on TVs ![tv dimension display](https://images.wondershare.com/filmora/article-images/tv-dimension-display2.jpg)
 
 Here’s what our YouTube channel art example would look like on a TV.
 
 #### **YouTube Channel Art/Banner Dimensions Displayed on Smaller Desktop Monitors and Mobile Phones**
 
- 1546 x 423 px
-
- ![desktop minimum dimension](https://images.wondershare.com/filmora/article-images/desktop-minimum-mobile3.jpg)
+ 1546 x 423 px ![desktop minimum dimension](https://images.wondershare.com/filmora/article-images/desktop-minimum-mobile3.jpg)
 
 On small desktop monitors and mobile devices, YouTube will display less than 20% of your entire channel art, the center area measuring a width of 1546 pixels and a height of 423 pixels. You want to make sure that your text and logo make it into this part.
 
@@ -73,9 +67,7 @@ Here’s what our YouTube channel art example would look like on a mobile phone.
 
 #### **YouTube Channel Art/Banner Dimensions Displayed on Tablets**
 
-1855 x 423 px
-
-![tablet dimension](https://images.wondershare.com/filmora/article-images/tablet-dimension5.jpg)
+1855 x 423 px ![tablet dimension](https://images.wondershare.com/filmora/article-images/tablet-dimension5.jpg)
 
 On tablet devices, YouTube will display around 20% more of your channel art, just to the sides of your smaller desktop monitor and mobile device area.
 
@@ -85,9 +77,7 @@ Here’s what our YouTube channel art example would look like on a tablet device
 
 #### **YouTube Channel Art/Banner Dimensions Displayed on Larger Desktop Monitors**
 
- 2560 x 423 px
-
- ![desktop max dimension](https://images.wondershare.com/filmora/article-images/desktop-max-dimension7.jpg)
+ 2560 x 423 px ![desktop max dimension](https://images.wondershare.com/filmora/article-images/desktop-max-dimension7.jpg)
 
 On larger desktop monitors, YouTube will display the entire width of your channel art but not the upper and lower part.
 
@@ -149,3 +139,24 @@ Follow @Richard Bennett
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-tips.techidaily.com/24-boosting-channel-success-scaling-for-a-million-viewers/"><u>In 2024, Boosting Channel Success  Scaling for a Million Viewers</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/approved-tailoring-audience-for-your-youtube-videos/"><u>2024 Approved  Tailoring Audience for Your Youtube Videos</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-2024-approved-digital-text-generator-for-videos/"><u>[Updated] 2024 Approved  Digital Text Generator for Videos</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/approved-beauty-breakdown-mastering-makeup-and-hauls-online/"><u>2024 Approved  Beauty Breakdown  Mastering Makeup and Hauls Online</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-key-takeaways-on-youtube-tv-an-overview-of-its-advantages/"><u>[New] In 2024, Key Takeaways on YouTube TV  An Overview of Its Advantages</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-optimal-youtube-video-formats-a-comprehensive-guide/"><u>[Updated] Optimal YouTube Video Formats  A Comprehensive Guide</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/approved-investing-wisdom-in-webcams-finest-stocks-channels/"><u>2024 Approved  Investing Wisdom in Webcams  Finest Stocks Channels</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-the-secret-to-understanding-your-youtube-fans/"><u>[Updated] The Secret to Understanding Your YouTube Fans</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/updated-epitaph-to-entertainment-picking-the-ultimate-zombie-games/"><u>[Updated] Epitaph to Entertainment  Picking the Ultimate Zombie Games</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/breaking-ground-video-capture-breakdown-for-2024/"><u>Breaking Ground  Video Capture Breakdown for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-in-2024-enhancing-engagement-10-must-have-tools-for-ig-gurus/"><u>[New] In 2024, Enhancing Engagement  10 Must-Have Tools for IG Gurus</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/3-solutions-to-hard-reset-oneplus-12-phone-using-pc-drfone-by-drfone-reset-android-reset-android/"><u>3 Solutions to Hard Reset OnePlus 12 Phone Using PC | Dr.fone</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/how-to-check-distance-and-radius-on-google-maps-for-your-samsung-galaxy-f14-5g-drfone-by-drfone-virtual-android/"><u>How to Check Distance and Radius on Google Maps For your Samsung Galaxy F14 5G | Dr.fone</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/naming-excellence-the-top-10-ai-powered-title-makers/"><u>Naming Excellence  The Top 10 AI-Powered Title Makers</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/in-2024-becoming-an-expert-in-video-capturing-streamlabs-obs-guide/"><u>In 2024, Becoming an Expert in Video Capturing  Streamlabs OBS Guide</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/new-in-2024-reel-in-the-action-top-strategies-for-recording-your-minecraft-sessions-on-a-mac/"><u>[New] In 2024, Reel in the Action  Top Strategies for Recording Your Minecraft Sessions on a Mac</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/unveiling-video-capabilities-dslr-or-mirrorless-for-2024/"><u>Unveiling Video Capabilities  DSLR or Mirrorless for 2024</u></a></li>
+</ul></div>

@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] The Art of Patience  Slowing Down Videos on YouTube (51 Chars)\""
-date: 2024-06-10 11:39:53
-updated: 2024-06-13 12:37:48
+date: 2024-06-25T17:38:59.053Z
+updated: 2024-06-26T17:38:59.053Z
 tags:
   - ai video
   - ai youtube
@@ -37,7 +37,7 @@ While, you can now change the speed of any YouTube videos easily and watch YouTu
 * Open the video in YouTube
 * Click the **Settings icon** on the bottom right and then you will see Autoplay, Annotations, Speed, Subtitles, and Quality options. By default, the speed is set to Normal. Click **Speed** and open the speed change options. The speed options are in multiples.
 
-![ change youtube speed ](https://images.wondershare.com/filmora/article-images/youtube-speed-change.jpg)
+![change youtube speed](https://images.wondershare.com/filmora/article-images/youtube-speed-change.jpg)
 
 * Choose the target video speed from 0.25x, 0.5x, 0.75x to slow down the play back speed of the YouTube video. You can also select 1.25x, 1.5x, 1.75x or 2x to fast forward this YouTube video depending on how fast or slow you want the playback of the YouTube video to be.
 * That’s it how to make a YouTube video slow down by changing the playback speed. If you selected 0.5X, you will see the playback speed is half of the original speed. You can now see the YouTube video is played back in a slower speed.
@@ -46,9 +46,7 @@ While, you can now change the speed of any YouTube videos easily and watch YouTu
 
 Besides, watching YouTube videos in slow motion, you can also make a slow motion video and upload to YouTube. The Flash from Zootopia is so impressive and you can see a lot of memes and gifs online about this funny cute sloth. In the following part, we will show you how to make a slow motion YouTube video like the sloth Flash in two ways by adding slow motion effects.
 
-## Part 2: Add Slow Motion to YT Videos with Wondershare Filmora video editor \[3 Steps\]
-
-[Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/) is an easy-to-use yet powerful video editing tool to which let beginners edit their YouTube videos in minutes. It includes every classic video editing functions including adjust playback speed, trim, crop, rotate, split as well as many special editing features like Jump Cut, Mosaic Blur and Tilt Shift. Now let's see how to add slow motion with this video editing software.
+## Part 2: Add Slow Motion to YT Videos with Wondershare Filmora video editor \[3 Steps\][Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/) is an easy-to-use yet powerful video editing tool to which let beginners edit their YouTube videos in minutes. It includes every classic video editing functions including adjust playback speed, trim, crop, rotate, split as well as many special editing features like Jump Cut, Mosaic Blur and Tilt Shift. Now let's see how to add slow motion with this video editing software.
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
@@ -64,7 +62,7 @@ After downloading YouTube videos on hard disk, you can now import it to this You
 
 On the Timeline, click on the added YouTube video and select   **Speed and Duration** to open up the video custom speed window. You will see the Speed option, Duration, Reverse Speed and Ripple Edit options. and the speed number indicates fast or slow motion. To slow down the YouTube video, drag the speed slider to left and you get a slow down version of the YouTube video. You can slow down the YouTube video in 0.01x. Click the OK button to save the slow motion settings and then click the Play button in the preview windows to have a look at the new YouTube slow down video. You can also change the duration of the YouTube video to change the YouTube video speed. For example, if you want to slow down a 30-second YouTube video to half speed, you can just enter the duration to 60 seconds to get a slow down motion effect.
 
-![ YouTube Video slow down ](https://images.wondershare.com/filmora/article-images/reverse-speed-custom-speed.jpg)
+![YouTube Video slow down](https://images.wondershare.com/filmora/article-images/reverse-speed-custom-speed.jpg)
 
 With Filmora youtube video editor, you can also add the slow motion effects to some certain clips of the video footage. What you need to do is use the split feature to split the video first. Learn more details about [How to Cut / Split / Trim Videos without Quality Loss](https://tools.techidaily.com/wondershare/filmora/download/)
 
@@ -125,3 +123,27 @@ Follow @Richard Bennett
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-tips.techidaily.com/-journey-through-time-best-history-youtubes-for-scholars-and-enthusiasts/"><u>[New] A Journey Through Time  Best History YouTubes for Scholars & Enthusiasts</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-unraveling-youtubes-ranks-the-deciding-elements-for-2024/"><u>[Updated] Unraveling YouTube's Ranks  The Deciding Elements for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-streamline-your-vlog-with-video-length-optimization/"><u>[New] In 2024, Streamline Your Vlog with Video Length Optimization</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-unlocking-youtubes-hidden-gems-keyword-research/"><u>[Updated] Unlocking YouTube's Hidden Gems  Keyword Research</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/-film-synopsis-must-know-points/"><u>Short Film Synopsis  Must-Know Points</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-the-ultimate-guide-to-beauty-channels-your-step-by-step-blueprint/"><u>[New] In 2024, The Ultimate Guide to Beauty Channels  Your Step-By-Step Blueprint</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/asterclass-banishing-green-on-your-mac-for-youtube-success/"><u>[New] Masterclass  Banishing Green on Your Mac for YouTube Success</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-pioneering-in-play-a-step-by-step-to-thriving-gaming-channels/"><u>[Updated] Pioneering in Play  A Step-by-Step to Thriving Gaming Channels</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/24-revolutionize-your-content-strategy-a-guide-to-youtube-savvy-tips/"><u>In 2024, Revolutionize Your Content Strategy  A Guide to YouTube Savvy Tips</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-a-deep-dive-into-youtube-mastery-using-sony-vegas-software/"><u>[New] In 2024, A Deep Dive Into YouTube Mastery Using Sony Vegas Software</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/new-in-2024-amusingscreen-join-the-video-making-party/"><u>[New] In 2024, AmusingScreen  Join the Video Making Party</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/in-2024-viral-influencers-on-tiktok-to-elevate-your-spirit/"><u>In 2024, Viral Influencers on TikTok to Elevate Your Spirit</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/2024-approved-streaming-stardom-unraveling-jake-pauls-youtube-rise/"><u>2024 Approved  Streaming Stardom  Unraveling Jake Paul's YouTube Rise</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/budget-saving-stratospheric-storage-for-heavy-dumps-for-2024/"><u>Budget-Saving Stratospheric Storage for Heavy Dumps for 2024</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-full-guide-to-unlock-your-samsung-galaxy-a15-5g-by-drfone-android/"><u>In 2024, Full Guide to Unlock Your Samsung Galaxy A15 5G</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-full-guide-to-catch-100-iv-pokemon-using-a-map-on-honor-x9a-drfone-by-drfone-virtual-android/"><u>In 2024, Full Guide to Catch 100 IV Pokémon Using a Map On Honor X9a | Dr.fone</u></a></li>
+<li><a href="https://techidaily.com/use-device-manager-to-identify-missing-your-hardware-drivers-with-windows-device-manager-in-windows-10-and-7-by-drivereasy-guide/"><u>Use Device Manager to identify missing your hardware drivers with Windows Device Manager in Windows 10 & 7</u></a></li>
+<li><a href="https://ai-video-tools.techidaily.com/updated-the-ultimate-windows-movie-maker-handbook-tips-tricks-and-techniques-for-2024/"><u>Updated The Ultimate Windows Movie Maker Handbook Tips, Tricks, and Techniques for 2024</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-igtv-to-facebook-distribution-masterclass-approach/"><u>[Updated] IGTV to Facebook Distribution  Masterclass Approach</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/amplify-viewership-with-these-top-10-youtube-reaction-strategies-for-2024/"><u>Amplify Viewership with These Top 10 YouTube Reaction Strategies for 2024</u></a></li>
+</ul></div>

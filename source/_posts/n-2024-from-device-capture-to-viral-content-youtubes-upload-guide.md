@@ -1,7 +1,7 @@
 ---
 title: "\"[New] In 2024, From Device Capture to Viral Content  YouTube's Upload Guide\""
-date: 2024-06-25 12:24:12
-updated: 2024-06-26 11:24:12
+date: 2024-06-25T17:46:59.966Z
+updated: 2024-06-26T17:46:59.966Z
 tags:
   - ai video
   - ai youtube
@@ -40,9 +40,7 @@ The fact is, if you are using a computer to upload short videos to YouTube, the 
 
 Once you have a video recorded using the first two guidelines from the above list, you can use the instructions given below to upload the media on YouTube:
 
-#### Step 1: Select a Short Video to Upload
-
-![Upload YouTube Shorts Video to desktop](https://images.wondershare.com/filmora/article-images/upload-short-videos-on-youtube-pc.jpg)
+#### Step 1: Select a Short Video to Upload ![Upload YouTube Shorts Video to desktop](https://images.wondershare.com/filmora/article-images/upload-short-videos-on-youtube-pc.jpg)
 
 Launch your favorite web browser on your PC, go to YouTube, make sure to sign in to your YouTube account, click the **Create** (**Camera**) icon from the top-right corner of the web page, click **SELECT FILES** on the **Upload videos** window, and locate, select, and upload a short video from your PC to the portal.
 
@@ -58,7 +56,7 @@ On the **Details** window that appears, add **#Shorts** in the **Title** or **De
 
 On the **Visibility** window, choose your preferred radio button from under the **Save or publish** section or select **Schedule** to set a different time when the short video should be published automatically. Finally, click **SAVE** to publish the clip as a short video on YouTube from your computer.
 
-![post YouTube Shorts Video  ](https://images.wondershare.com/filmora/article-images/publish-youtube-shorts-video-desktop.jpg)
+![post YouTube Shorts Video](https://images.wondershare.com/filmora/article-images/publish-youtube-shorts-video-desktop.jpg)
 
 To sum up, uploading YouTube Shorts video from desktop has nothing different from uploading regular YouTube video besides the requirements listed at the beginning of this article. If you prefer to [edit videos](https://tools.techidaily.com/wondershare/filmora/download/) for YouTube Shortson a computer, I recommend you to try our video editor [Filmora](https://tools.techidaily.com/wondershare/filmora/download/), which is an ideal solution for YouTubers. Download the free trial version below and get started.
 
@@ -70,9 +68,7 @@ For Win 7 or later (64-bit)
 
 [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/)
 
-For macOS 10.12 or later
-
-![Filmora secure download](https://images.wondershare.com/filmora/images/store/secure.png) Secure Download
+For macOS 10.12 or later ![Filmora secure download](https://images.wondershare.com/filmora/images/store/secure.png) Secure Download
 
 ---
 
@@ -86,15 +82,11 @@ The process of **uploading YouTube Shorts** from the mobile app is fairly simple
 
 **Note:** Make sure to have the target video on the smartphone and that you have downloaded, installed, and signed in to the YouTube app before proceeding.
 
-#### Step 1: Select a Video to Upload
-
-![Select a Video to Upload as Shorts](https://images.wondershare.com/filmora/article-images/select-shorts-videos-to-upload-on-youtube.jpg)
+#### Step 1: Select a Video to Upload ![Select a Video to Upload as Shorts](https://images.wondershare.com/filmora/article-images/select-shorts-videos-to-upload-on-youtube.jpg)
 
 On your Android or iOS smartphone, launch the YouTube app, tap the **+** (**Create**) icon from the bottom, tap **Create a Short** from the **Create** box that pops up from the bottom, tap **Upload** from the bottom-right corner of the next screen, and select and upload a short, 60 seconds video recorded in portrait orientation from your device’s storage to the app.
 
-#### Step 2: Add Details
-
-![add details to Shorts video](https://images.wondershare.com/filmora/article-images/add-details-to-youtube-shrots-video.jpg)
+#### Step 2: Add Details ![add details to Shorts video](https://images.wondershare.com/filmora/article-images/add-details-to-youtube-shrots-video.jpg)
 
 On the next screen, tap **NEXT**, user the **Music** and **Text** icons at the bottom-left corner to add a background music and caption to the video respectively, and tap **NEXT** from the top-right corner. On the next screen, enter a name for the video in the **Title** field along with the **#Shorts** tag, and tap **Select audience** to choose your preferred audience.
 
@@ -110,7 +102,7 @@ Previously, I have introduced [how to record and upload YouTube Shorts videos](h
 
 Please note you will not see the **Create a Short** option if you are outsides of India.
 
-![ Record YouTube Shorts video](https://images.wondershare.com/filmora/article-images/record-create-youtube-short-video-mobile.jpg)
+![Record YouTube Shorts video](https://images.wondershare.com/filmora/article-images/record-create-youtube-short-video-mobile.jpg)
 
 In the YouTube app, tap the **+** (**Add**) button and select **Create** **a Short**. Please note you will not see the **Create a Short** option if you are outsides of India.
 
@@ -157,3 +149,27 @@ Follow @Richard Bennett
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-tips.techidaily.com/ling-purchasing-illegitimate-views-online-for-2024/"><u>Unveiling  Purchasing Illegitimate Views Online for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/outube-affiliate-marketing-how-to-make-money-with-it/"><u>[New] YouTube Affiliate Marketing  How to Make Money with It</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-step-by-step-process-of-amplifying-your-channel-with-high-impact-placement/"><u>[Updated] Step-by-Step Process of Amplifying Your Channel with High-Impact Placement</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/oosting-youtube-rankings-with-top-seo-practices-1-11/"><u>[New] Boosting YouTube Rankings with Top SEO Practices (1-11)</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ing-the-perfect-gaming-channel-header/"><u>Crafting the Perfect Gaming Channel Header</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-2024-approved-from-chat-room-to-screen-step-by-step-google-meet-youtube-streams/"><u>[Updated] 2024 Approved  From Chat Room to Screen  Step-by-Step Google Meet YouTube Streams</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-in-2024-essential-10-boosters-for-multi-device-use/"><u>[Updated] In 2024, Essential 10 Boosters for Multi-Device Use</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-explore-the-world-of-tiny-screens-top-6-online-tools-for-free-and-complimentary-youtube-short-downloads/"><u>[Updated] Explore the World of Tiny Screens  Top 6 Online Tools for Free & Complimentary YouTube Short Downloads</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/de-your-content-creation-process-via-youtube-studio-for-2024/"><u>Upgrade Your Content Creation Process via YouTube Studio for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-2024-approved-ignite-interest-essential-themes-for-engaging-channels/"><u>[Updated] 2024 Approved  Ignite Interest  Essential Themes for Engaging Channels</u></a></li>
+<li><a href="https://android-location.techidaily.com/9-best-free-android-monitoring-apps-to-monitor-phone-remotely-for-your-samsung-galaxy-s21-fe-5g-2023-drfone-by-drfone-virtual/"><u>9 Best Free Android Monitoring Apps to Monitor Phone Remotely For your Samsung Galaxy S21 FE 5G (2023) | Dr.fone</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-from-clouds-to-storage-keeping-snapshots-on-your-phone/"><u>[Updated] From Clouds to Storage  Keeping Snapshots on Your Phone</u></a></li>
+<li><a href="https://ai-video-apps.techidaily.com/updated-2024-approved-free-video-splitter-online-and-offline-editors-for-dual-screen-videos/"><u>Updated 2024 Approved Free Video Splitter Online and Offline Editors for Dual-Screen Videos</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/how-to-stream-videos-on-twitter-using-your-smartphone-for-2024/"><u>How To Stream Videos on Twitter Using Your Smartphone for 2024</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/capture-without-capsule-the-no-limit-story-saving-app/"><u>Capture Without Capsule  The No-Limit Story Saving App</u></a></li>
+<li><a href="https://android-location.techidaily.com/9-best-free-android-monitoring-apps-to-monitor-phone-remotely-for-your-google-pixel-fold-drfone-by-drfone-virtual/"><u>9 Best Free Android Monitoring Apps to Monitor Phone Remotely For your Google Pixel Fold | Dr.fone</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/how-to-track-whatsapp-messages-on-motorola-g54-5g-without-them-knowing-drfone-by-drfone-virtual-android/"><u>How to Track WhatsApp Messages on Motorola G54 5G Without Them Knowing? | Dr.fone</u></a></li>
+<li><a href="https://extra-information.techidaily.com/top-7-best-waterproof-action-camera-for-2024/"><u>Top 7 Best Waterproof Action Camera for 2024</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-unraveling-the-secret-of-seamless-subtitle-crafting-for-facebook-videos-for-2024/"><u>[New] Unraveling the Secret of Seamless Subtitle Crafting for Facebook Videos for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-leading-8-sites-offering-free-access-to-3d-text-psdfiles/"><u>[Updated] Leading 8 Sites Offering Free Access to 3D Text PSDFiles</u></a></li>
+</ul></div>

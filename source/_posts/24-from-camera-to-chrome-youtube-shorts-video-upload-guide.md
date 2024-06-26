@@ -1,7 +1,7 @@
 ---
 title: "\"In 2024, From Camera to Chrome  YouTube Shorts Video Upload Guide\""
-date: 2024-06-23 20:25:30
-updated: 2024-06-24 11:28:57
+date: 2024-06-25T17:49:40.503Z
+updated: 2024-06-26T17:49:40.503Z
 tags:
   - ai video
   - ai youtube
@@ -40,9 +40,7 @@ The fact is, if you are using a computer to upload short videos to YouTube, the 
 
 Once you have a video recorded using the first two guidelines from the above list, you can use the instructions given below to upload the media on YouTube:
 
-#### Step 1: Select a Short Video to Upload
-
-![Upload YouTube Shorts Video to desktop](https://images.wondershare.com/filmora/article-images/upload-short-videos-on-youtube-pc.jpg)
+#### Step 1: Select a Short Video to Upload ![Upload YouTube Shorts Video to desktop](https://images.wondershare.com/filmora/article-images/upload-short-videos-on-youtube-pc.jpg)
 
 Launch your favorite web browser on your PC, go to YouTube, make sure to sign in to your YouTube account, click the **Create** (**Camera**) icon from the top-right corner of the web page, click **SELECT FILES** on the **Upload videos** window, and locate, select, and upload a short video from your PC to the portal.
 
@@ -58,7 +56,7 @@ On the **Details** window that appears, add **#Shorts** in the **Title** or **De
 
 On the **Visibility** window, choose your preferred radio button from under the **Save or publish** section or select **Schedule** to set a different time when the short video should be published automatically. Finally, click **SAVE** to publish the clip as a short video on YouTube from your computer.
 
-![post YouTube Shorts Video  ](https://images.wondershare.com/filmora/article-images/publish-youtube-shorts-video-desktop.jpg)
+![post YouTube Shorts Video](https://images.wondershare.com/filmora/article-images/publish-youtube-shorts-video-desktop.jpg)
 
 To sum up, uploading YouTube Shorts video from desktop has nothing different from uploading regular YouTube video besides the requirements listed at the beginning of this article. If you prefer to [edit videos](https://tools.techidaily.com/wondershare/filmora/download/) for YouTube Shortson a computer, I recommend you to try our video editor [Filmora](https://tools.techidaily.com/wondershare/filmora/download/), which is an ideal solution for YouTubers. Download the free trial version below and get started.
 
@@ -70,9 +68,7 @@ For Win 7 or later (64-bit)
 
 [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/)
 
-For macOS 10.12 or later
-
-![Filmora secure download](https://images.wondershare.com/filmora/images/store/secure.png) Secure Download
+For macOS 10.12 or later ![Filmora secure download](https://images.wondershare.com/filmora/images/store/secure.png) Secure Download
 
 ---
 
@@ -86,15 +82,11 @@ The process of **uploading YouTube Shorts** from the mobile app is fairly simple
 
 **Note:** Make sure to have the target video on the smartphone and that you have downloaded, installed, and signed in to the YouTube app before proceeding.
 
-#### Step 1: Select a Video to Upload
-
-![Select a Video to Upload as Shorts](https://images.wondershare.com/filmora/article-images/select-shorts-videos-to-upload-on-youtube.jpg)
+#### Step 1: Select a Video to Upload ![Select a Video to Upload as Shorts](https://images.wondershare.com/filmora/article-images/select-shorts-videos-to-upload-on-youtube.jpg)
 
 On your Android or iOS smartphone, launch the YouTube app, tap the **+** (**Create**) icon from the bottom, tap **Create a Short** from the **Create** box that pops up from the bottom, tap **Upload** from the bottom-right corner of the next screen, and select and upload a short, 60 seconds video recorded in portrait orientation from your device’s storage to the app.
 
-#### Step 2: Add Details
-
-![add details to Shorts video](https://images.wondershare.com/filmora/article-images/add-details-to-youtube-shrots-video.jpg)
+#### Step 2: Add Details ![add details to Shorts video](https://images.wondershare.com/filmora/article-images/add-details-to-youtube-shrots-video.jpg)
 
 On the next screen, tap **NEXT**, user the **Music** and **Text** icons at the bottom-left corner to add a background music and caption to the video respectively, and tap **NEXT** from the top-right corner. On the next screen, enter a name for the video in the **Title** field along with the **#Shorts** tag, and tap **Select audience** to choose your preferred audience.
 
@@ -110,7 +102,7 @@ Previously, I have introduced [how to record and upload YouTube Shorts videos](h
 
 Please note you will not see the **Create a Short** option if you are outsides of India.
 
-![ Record YouTube Shorts video](https://images.wondershare.com/filmora/article-images/record-create-youtube-short-video-mobile.jpg)
+![Record YouTube Shorts video](https://images.wondershare.com/filmora/article-images/record-create-youtube-short-video-mobile.jpg)
 
 In the YouTube app, tap the **+** (**Add**) button and select **Create** **a Short**. Please note you will not see the **Create a Short** option if you are outsides of India.
 
@@ -157,3 +149,24 @@ Follow @Richard Bennett
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-tips.techidaily.com/024-approved-vloggers-guide-to-top-5-game-microphones/"><u>[New] 2024 Approved  Vloggers’ Guide to Top 5 Game Microphones</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-revolutionize-advertising-try-all-50-available-free-youtube-banners-for-2024/"><u>[Updated] Revolutionize Advertising – Try All 50 Available FREE YouTube Banners for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-syncing-words-and-images-lyric-video-magic-with-lyric-video-maker/"><u>[New] In 2024, Syncing Words and Images  Lyric Video Magic with Lyric Video Maker</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-stepwise-approach-affordable-creation-of-engaging-youtube-intros/"><u>[Updated] Stepwise Approach  Affordable Creation of Engaging YouTube Intros</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-demystifying-the-process-of-submitting-videos-on-youtube-for-2024/"><u>[Updated] Demystifying the Process of Submitting Videos on YouTube for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/24-cut-the-cost-on-downloads-exclusive-access-to-this-list-of-23-affordable-extractors/"><u>In 2024, Cut the Cost on Downloads  Exclusive Access to This List of 23 Affordable Extractors</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/24-elevate-your-youtube-presence-strategic-tagging-and-titling-techniques/"><u>In 2024, Elevate Your YouTube Presence  Strategic Tagging and Titling Techniques</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/24-step-toward-balance-best-yoga-series-to-watch-and-learn-from/"><u>In 2024, Step Toward Balance  Best Yoga Series to Watch and Learn From</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/how-can-i-unlock-my-apple-iphone-12-after-forgetting-my-pin-code-drfone-by-drfone-ios/"><u>How Can I Unlock My Apple iPhone 12 After Forgetting my PIN Code? | Dr.fone</u></a></li>
+<li><a href="https://iphone-location.techidaily.com/in-2024-6-methods-to-protect-yourself-from-location-tracking-on-apple-iphone-xr-drfone-by-drfone-virtual-ios/"><u>In 2024, 6 Methods to Protect Yourself from Location Tracking on Apple iPhone XR | Dr.fone</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/dissecting-the-efficiency-of-vidmas-screen-recorders/"><u>Dissecting the Efficiency of Vidma's Screen Recorders</u></a></li>
+<li><a href="https://ai-voice-clone.techidaily.com/new-2024-approved-best-5-ai-powered-script-to-video-makers/"><u>New 2024 Approved Best 5 AI-Powered Script to Video Makers</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-subscription-made-simple-building-a-user-friendly-button-for-channels/"><u>[Updated] Subscription Made Simple  Building a User-Friendly Button for Channels</u></a></li>
+<li><a href="https://facebook-video-files.techidaily.com/in-2024-pioneering-posts-a-facebook-guide-to-going-viral/"><u>In 2024, Pioneering Posts  A Facebook Guide to Going Viral</u></a></li>
+<li><a href="https://discord-videos.techidaily.com/new-2024-approved-superior-compre-points-to-free-high-quality-icons/"><u>[New] 2024 Approved  Superior, Compre Points to Free High-Quality Icons</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/innovation-in-iphone-filmmaking-virtual-worlds/"><u>Innovation in iPhone Filmmaking  Virtual Worlds</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/new-2024-approved-seamless-online-video-sharing-via-vimeo/"><u>[New] 2024 Approved  Seamless Online Video Sharing via Vimeo</u></a></li>
+</ul></div>

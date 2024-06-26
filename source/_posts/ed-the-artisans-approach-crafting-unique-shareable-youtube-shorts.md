@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] The Artisan's Approach  Crafting Unique, Shareable YouTube Shorts\""
-date: 2024-06-16 19:25:49
-updated: 2024-06-17 11:47:44
+date: 2024-06-25T17:48:27.991Z
+updated: 2024-06-26T17:48:27.991Z
 tags:
   - ai video
   - ai youtube
@@ -16,21 +16,19 @@ thumbnail: https://thmb.techidaily.com/bc72bcdc29440f3559a7ac3b3d313c8c685d10379
 
 ## The Artisan's Approach: Crafting Unique, Shareable YouTube Shorts
 
-# YouTube Shorts Ultimate Guide in 2024
-
-![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+# YouTube Shorts Ultimate Guide in 2024 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
 
  Mar 27, 2024• Proven solutions
 
-Since smartphones are cheap and easily available in the market today, and there is also a huge range of contents to view online, a majority of users prefer watching videos that are both short enough to convey the message within a few seconds, and can be seen on your phone’s screen with decent picture quality. Considering this, Google lately came up with a Tik Tok-style app called[YouTube shorts](https://tools.techidaily.com/wondershare/filmora/download/)that can be accessed right from your Android or iPhone as long as you are using the YouTube app, and are signed in to your Google account.
+Since smartphones are cheap and easily available in the market today, and there is also a huge range of contents to view online, a majority of users prefer watching videos that are both short enough to convey the message within a few seconds, and can be seen on your phone’s screen with decent picture quality. Considering this, Google lately came up with a Tik Tok-style app called [YouTube shorts](https://tools.techidaily.com/wondershare/filmora/download/) that can be accessed right from your Android or iPhone as long as you are using the YouTube app, and are signed in to your Google account.
 
 That said, in the following sections you will learn everything about the **YouTube Shorts app**, and how it could help you gain more viewers for your YouTube channel.
 
 * **[Part 1: What Is YouTube Shorts?](#part1)**
 * **[Part 2: How to Make and Upload a YouTube Shorts Video with Shorts App?](#part2)**
-* **[ Part 3: Creating Vertical YouTube Shorts Video in Filmora \[Step by Step Tutorial\] ](#part3)**
+* **[Part 3: Creating Vertical YouTube Shorts Video in Filmora \[Step by Step Tutorial\]](#part3)**
 
 ---
 
@@ -81,7 +79,7 @@ You can follow the instructions given below to make and [upload a YouTube Shorts
 
 **Step 1: Record a Video with YouTube Shorts**
 
-![ Record YouTube Shorts video](https://images.wondershare.com/filmora/article-images/record-create-youtube-short-video-mobile.jpg)
+![Record YouTube Shorts video](https://images.wondershare.com/filmora/article-images/record-create-youtube-short-video-mobile.jpg)
 
 Launch the YouTube app on your Android or iOS smart device (Samsung Galaxy Note 10+ is used here for demonstration), make sure that you are signed in to your Google account, tap the **+** (**Add**) button present at the bottom of the screen, tap **Create a Short** on the popup box that appears next, tap the **Record** button on the next window to start the recording. Once you are done, tap the **Stop** button to stop the recording.
 
@@ -89,7 +87,7 @@ Launch the YouTube app on your Android or iOS smart device (Samsung Galaxy Note 
 
 Tap **Music** from the bottom of the screen to add background music to the video. The music that you can use in your short videos must be either created by you, or you should have permission to use them. However, the audio files that the Music library contains is made available by Google, is royalty-free, and can be used throughout the platform.
 
-![ Edit YouTube Shorts video - Add text and music](https://images.wondershare.com/filmora/article-images/edit-youtube-short-video.jpg)
+![Edit YouTube Shorts video - Add text and music](https://images.wondershare.com/filmora/article-images/edit-youtube-short-video.jpg)
 
 Likewise, you can tap **Text** to add captions as well. As for the text type, the app offers various formatting options such as alignment (left, center, and right), text highlighter, font changer, and even color selector. Further, the Speed and Timer icons at the top-right area allow you to manage the playback speed anywhere between 0.3x to 3x, and automatically stop the recording after the set time limit respectively. Once everything is set up, tap **NEXT** from the top-right corner to proceed to the next step.
 
@@ -97,13 +95,13 @@ Likewise, you can tap **Text** to add captions as well. As for the text type, th
 
 On the **Add details** window, tap **Select audience**, and on the **Select audience** window, tap to select the appropriate radio button to define whether the video is suitable for kids. Tap the **Back** button once the target audience is selected.
 
-![ Upload YouTube Shorts video - add details ](https://images.wondershare.com/filmora/article-images/add-details-youtube-shorts-video.jpg)
+![Upload YouTube Shorts video - add details](https://images.wondershare.com/filmora/article-images/add-details-youtube-shorts-video.jpg)
 
 **Step 4: Add Details and Upload the Video**
 
 Enter a title for the video in the **Title** field. Make sure to include **#shorts** to help YouTube understand that you are preparing a **YouTube Shorts** video. Next, tap **UPLOAD** from the upper-right corner of the screen to submit the video for review. Once YouTube reviews the recording and finds it appropriate, it will be published on the portal, and will be visible throughout and even under the **Shorts** category of the main page.
 
-![ Upload YouTube Shorts video ](https://images.wondershare.com/filmora/article-images/upload-youtube-shorts-video.jpg)
+![Upload YouTube Shorts video](https://images.wondershare.com/filmora/article-images/upload-youtube-shorts-video.jpg)
 
 ## **Part 3: How to Create a Vertical YouTube Shorts Video in Filmora?**
 
@@ -121,9 +119,7 @@ For Win 7 or later (64-bit)
 
 [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/)
 
-For macOS 10.12 or later
-
-![Filmora secure download](https://images.wondershare.com/filmora/images/store/secure.png) Secure Download
+For macOS 10.12 or later ![Filmora secure download](https://images.wondershare.com/filmora/images/store/secure.png) Secure Download
 
 The following step-by-step guide teaches you how to use Wondershare Filmora to create a vertical **YouTube Shorts** video:
 
@@ -133,7 +129,7 @@ The following step-by-step guide teaches you how to use Wondershare Filmora to c
 
 Launch Wondershare Filmora on your Windows or Mac PC (a Windows 10 computer is used here for demonstration), go to **File** \> **New Project**, and click **9:16 (Portrait)**. Click anywhere inside the **Media** box, and select and import the source vertical video from your PC to Filmora.
 
-![ Upload YouTube Shorts video ](https://images.wondershare.com/filmora/article-images/upload-youtube-shorts-video.jpg)
+![Upload YouTube Shorts video](https://images.wondershare.com/filmora/article-images/upload-youtube-shorts-video.jpg)
 
 Next, hover the mouse over the clip in the **Media** box, click the **+** button that appears at the bottom-right corner of the thumbnail, and in the resolution confirmation box that comes up next, click the button under the **Match to Media** section to add the video in the correct orientation to the Timeline at the bottom.
 
@@ -141,11 +137,11 @@ Next, hover the mouse over the clip in the **Media** box, click the **+** button
 
 Select the clip in the Timeline, and use the **Split**, **Crop**, **Speed**, etc. buttons above the Timeline itself to remove the unwanted portions from the clip, manage its playback speed, and do other fine-tuning tasks.
 
-![ Edit YouTube Shorts video in Filmora - split/crop/change speed ](https://images.wondershare.com/filmora/article-images/split-crop-youtube-shorts-video.jpg)
+![Edit YouTube Shorts video in Filmora - split/crop/change speed](https://images.wondershare.com/filmora/article-images/split-crop-youtube-shorts-video.jpg)
 
 You can even click the **Edit** button, and use the available editing features like **Motion Tracking** and **Stabilization** to add text or objects to a moving body in the video and stabilize the clip if the camera shook during the recording session respectively. Click **OK** to save the changes when done.
 
-![ Edit YouTube Shorts video in Filmora](https://images.wondershare.com/filmora/article-images/youtube-shorts-video-filmora-advanced-editing.jpg)
+![Edit YouTube Shorts video in Filmora](https://images.wondershare.com/filmora/article-images/youtube-shorts-video-filmora-advanced-editing.jpg)
 
 **Note:** To be able to remain compliant with the **YouTube Shorts** policies, make sure that the video length is no longer than 60 seconds.
 
@@ -169,15 +165,13 @@ For Win 7 or later (64-bit)
 
 [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/)
 
-For macOS 10.12 or later
-
-![Filmora secure download](https://images.wondershare.com/filmora/images/store/secure.png) Secure Download
+For macOS 10.12 or later ![Filmora secure download](https://images.wondershare.com/filmora/images/store/secure.png) Secure Download
 
 **Step 4: Render the Final Output**
 
 Once everything is set up, click **EXPORT** from the top of the window, go to the **Local** tab on the **Export** window, select **MP4** from the formats list in the left, give a name and configure other settings from the available options in the right, and click **EXPORT** from the bottom-right corner to create a **YouTube Shorts** video. Once the clip is generated, you can upload the video to YouTube using **#Shorts** in the title or description to publish the video under the **YouTube Shorts** section.
 
-![ Edit YouTube Shorts video in Filmora- export ](https://images.wondershare.com/filmora/article-images/export-youtube-shorts-video-in-filmora.jpg)
+![Edit YouTube Shorts video in Filmora- export](https://images.wondershare.com/filmora/article-images/export-youtube-shorts-video-in-filmora.jpg)
 
 ### FAQs About YouTube Shorts
 
@@ -228,3 +222,22 @@ Follow @Richard Bennett
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-tips.techidaily.com/ed-break-down-top-7-video-streaming-tools-that-revolutionize-youtube-broadcasts-iphonesandroid-for-2024/"><u>[Updated] Break Down  Top 7 Video Streaming Tools that Revolutionize YouTube Broadcasts (iPhones/Android) for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/vate-audiences-with-perfectly-tailored-youtube-descriptions/"><u>Captivate Audiences with Perfectly Tailored Youtube Descriptions</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-interactive-slides-with-youtube-videos/"><u>[New] In 2024, Interactive Slides with YouTube Videos</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ating-earnings-from-one-million-youtube-watches-for-2024/"><u>Evaluating Earnings From One Million YouTube Watches for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-2024-approved-mp3-mastery-guide-top-10-video-to-audio-picks/"><u>[Updated] 2024 Approved  MP3 Mastery Guide  Top 10 Video-to-Audio Picks</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/nstantly-connect-with-viewers-uploading-short-films-online/"><u>[New] Instantly Connect with Viewers  Uploading Short Films Online</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-2024-approved-youtube-playlist-turnaround-a-simple-4-step-plan/"><u>[Updated] 2024 Approved  YouTube Playlist Turnaround  A Simple 4-Step Plan</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-downloading-samfw-frp-tool-30-for-honor-x9b-by-drfone-android/"><u>In 2024, Downloading SamFw FRP Tool 3.0 for Honor X9b</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/updated-2024-approved-capturing-the-web-in-motion-a-compact-list-of-leading-recorders/"><u>[Updated] 2024 Approved  Capturing the Web in Motion  A Compact List of Leading Recorders</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/updated-all-about-tiktok-anime-dances-songs-memes-and-filters-for-2024/"><u>[Updated] All About TikTok Anime  Dances, Songs, Memes, and Filters for 2024</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/how-to-track-whatsapp-messages-on-vivo-x-flip-without-them-knowing-drfone-by-drfone-virtual-android/"><u>How to Track WhatsApp Messages on Vivo X Flip Without Them Knowing? | Dr.fone</u></a></li>
+<li><a href="https://sound-tweaking.techidaily.com/new-in-2024-how-to-acquire-explosive-glass-break-effects-in-post-production/"><u>New In 2024, How to Acquire Explosive Glass Break Effects in Post-Production</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/unveiling-instagram-reels-10-surprising-insights-for-2024/"><u>Unveiling Instagram Reels  10 Surprising Insights for 2024</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/updated-full-breakdown-gopro-slr4-silver-edition/"><u>[Updated] Full Breakdown  GoPro SLR4 Silver Edition</u></a></li>
+<li><a href="https://ai-editing-video.techidaily.com/finding-best-gif-websites-is-easy-as-pie-for-2024/"><u>Finding Best GIF Websites Is Easy as Pie for 2024</u></a></li>
+</ul></div>

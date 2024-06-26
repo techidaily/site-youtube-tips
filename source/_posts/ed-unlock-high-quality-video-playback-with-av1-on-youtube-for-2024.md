@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Unlock High-Quality Video Playback with AV1 on YouTube for 2024\""
-date: 2024-06-14 21:16:53
-updated: 2024-06-17 11:43:27
+date: 2024-06-25T18:14:24.618Z
+updated: 2024-06-26T18:14:24.618Z
 tags:
   - ai video
   - ai youtube
@@ -24,17 +24,13 @@ Do you notice that many YouTube videos have been streamed in AV1? **YouTube AV1*
 
 Do you wonder how to turn on **AV1 settings on YouTube**? For your information, AV1 is a video codec that is developed by a consortium of companies. It offers you advanced compression, enabling you to do smoother HD streaming and data savings for the video. Google also has already implemented AV1 use on YouTube. To turn on AV1 settings on YouTube, here are the steps:
 
-##### Step1Go to playback and performance
-
-![youtube settings](https://images.wondershare.com/filmora/article-images/2022/11/av1-settings-on-youtube-2.jpg)
+##### Step1Go to playback and performance ![youtube settings](https://images.wondershare.com/filmora/article-images/2022/11/av1-settings-on-youtube-2.jpg)
 
 * To turn on the AV1 settings, go to your YouTube account, after that click "Playback and Performance".
 * In the AV1 settings. Besides "Auto (Recommended)", there are other two options, which are "Prefer AV1 for SD" and also "Always prefer SD".
 * "Always Prefer AV1" uses the codec whenever it is available for a video while "Prefer AV1 for SD" limits it to SD videos. There are two options to avoid low-performance devices when AV1 videos are played on YouTube. You can select "Always Prefer AV1" to see if your device performance is good enough when you play videos on YouTube that support AV1.
 
-##### Step2Test if the AV1 settings are already enabled in your video
-
-![av1 settings](https://images.wondershare.com/filmora/article-images/2022/11/av1-settings-on-youtube-3.jpg)
+##### Step2Test if the AV1 settings are already enabled in your video ![av1 settings](https://images.wondershare.com/filmora/article-images/2022/11/av1-settings-on-youtube-3.jpg)
 
 You may ask how to confirm your YouTube videos are playing with AV1 Codec. Well, you can search playlist on YouTube with the keywords "[4K, 5K, and 8K videos with the new AV1 Codec](https://www.youtube.com/playlist?list=PLRJRxnLlXbB0ETtMprpLypZs68duRS1t1)". You can test it by playing one of the videos. You have to right-click on the media player and then select "Stats for nerd". If it shows the av01 codec there, then the AV1 settings are enabled already.
 
@@ -114,3 +110,22 @@ For today, YouTube encodes all the videos with the VP9 codec, but for some reaso
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-tips.techidaily.com/ips-for-utilizing-green-screen-effects-professionally/"><u>Pro Tips for Utilizing Green Screen Effects Professionally</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/approved-yt-outro-guidelines-keeping-viewers-hooked/"><u>2024 Approved  YT Outro Guidelines  Keeping Viewers Hooked</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ssiveness-in-yt-adopting-emojis-for-2024/"><u>Expressiveness in YT  Adopting Emojis for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/024-approved-masterful-approach-to-creating-attractive-yt-summaries/"><u>[New] 2024 Approved  Masterful Approach to Creating Attractive YT Summaries</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-2024-approved-preventing-total-loss-of-image-in-streaming-videos-on-youtube/"><u>[Updated] 2024 Approved  Preventing Total Loss of Image in Streaming Videos on YouTube</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-the-backstage-pass-creating-content-that-works/"><u>[Updated] The Backstage Pass  Creating Content That Works</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ring-short-form-trimming-videos-for-youtube-for-2024/"><u>Mastering Short-Form  Trimming Videos for YouTube for 2024</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-from-twitter-to-whatsapp-a-guide-to-sharing-online-videos/"><u>[New] From Twitter to WhatsApp  A Guide to Sharing Online Videos</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/new-in-2024-ideal-6-screen-recorders-for-mac-users/"><u>[New] In 2024, Ideal 6 Screen Recorders for Mac Users</u></a></li>
+<li><a href="https://location-social.techidaily.com/top-7-skype-hacker-to-hack-any-skype-account-on-your-poco-c55-drfone-by-drfone-virtual-android/"><u>Top 7 Skype Hacker to Hack Any Skype Account On your Poco C55 | Dr.fone</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-2024-approved-elevate-your-social-media-game-3-techniques-to-enhance-video-captions-on-ig/"><u>[Updated] 2024 Approved  Elevate Your Social Media Game  3 Techniques to Enhance Video Captions on IG</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-analyzing-lack-of-interaction-is-it-a-block-for-2024/"><u>[Updated] Analyzing Lack of Interaction  Is It a Block for 2024</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/tutorial-to-change-oppo-f23-5g-imei-without-root-a-comprehensive-guide-by-drfone-android/"><u>Tutorial to Change Oppo F23 5G IMEI without Root A Comprehensive Guide</u></a></li>
+<li><a href="https://ai-voice-clone.techidaily.com/best-5-tiktok-voice-generators-you-should-try-for-2024/"><u>Best 5 TikTok Voice Generators You Should Try for 2024</u></a></li>
+<li><a href="https://video-ai-editor.techidaily.com/new-in-2024-how-to-get-filmora-torrent-for-free-no-virus/"><u>New In 2024, How to Get Filmora Torrent for FREE? No Virus</u></a></li>
+</ul></div>

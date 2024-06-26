@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Optimize Your Watch  Activate AV1 on YouTube Platform\""
-date: 2024-06-23 23:13:14
-updated: 2024-06-25 11:11:20
+date: 2024-06-25T18:21:02.246Z
+updated: 2024-06-26T18:21:02.246Z
 tags:
   - ai video
   - ai youtube
@@ -24,17 +24,13 @@ Do you notice that many YouTube videos have been streamed in AV1? **YouTube AV1*
 
 Do you wonder how to turn on **AV1 settings on YouTube**? For your information, AV1 is a video codec that is developed by a consortium of companies. It offers you advanced compression, enabling you to do smoother HD streaming and data savings for the video. Google also has already implemented AV1 use on YouTube. To turn on AV1 settings on YouTube, here are the steps:
 
-##### Step1Go to playback and performance
-
-![youtube settings](https://images.wondershare.com/filmora/article-images/2022/11/av1-settings-on-youtube-2.jpg)
+##### Step1Go to playback and performance ![youtube settings](https://images.wondershare.com/filmora/article-images/2022/11/av1-settings-on-youtube-2.jpg)
 
 * To turn on the AV1 settings, go to your YouTube account, after that click "Playback and Performance".
 * In the AV1 settings. Besides "Auto (Recommended)", there are other two options, which are "Prefer AV1 for SD" and also "Always prefer SD".
 * "Always Prefer AV1" uses the codec whenever it is available for a video while "Prefer AV1 for SD" limits it to SD videos. There are two options to avoid low-performance devices when AV1 videos are played on YouTube. You can select "Always Prefer AV1" to see if your device performance is good enough when you play videos on YouTube that support AV1.
 
-##### Step2Test if the AV1 settings are already enabled in your video
-
-![av1 settings](https://images.wondershare.com/filmora/article-images/2022/11/av1-settings-on-youtube-3.jpg)
+##### Step2Test if the AV1 settings are already enabled in your video ![av1 settings](https://images.wondershare.com/filmora/article-images/2022/11/av1-settings-on-youtube-3.jpg)
 
 You may ask how to confirm your YouTube videos are playing with AV1 Codec. Well, you can search playlist on YouTube with the keywords "[4K, 5K, and 8K videos with the new AV1 Codec](https://www.youtube.com/playlist?list=PLRJRxnLlXbB0ETtMprpLypZs68duRS1t1)". You can test it by playing one of the videos. You have to right-click on the media player and then select "Stats for nerd". If it shows the av01 codec there, then the AV1 settings are enabled already.
 
@@ -114,3 +110,26 @@ For today, YouTube encodes all the videos with the VP9 codec, but for some reaso
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-tips.techidaily.com/024-approved-access-short-videos-anywhere-the-top-6-free-and-online-youtube-short-download-apps/"><u>[New] 2024 Approved  Access Short Videos Anywhere  The Top 6 Free & Online YouTube Short Download Apps</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-pc-based-video-editing-tips-for-youtube-success/"><u>[New] In 2024, PC-Based Video Editing Tips for YouTube Success</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ecome-a-youtube-earning-expert-universal-device-strategies-for-2024/"><u>[New] Become a YouTube Earning Expert  Universal Device Strategies for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/24-your-journey-to-stylish-vlogging-a-beginners-guide-mac-edition/"><u>In 2024, Your Journey to Stylish Vlogging  A Beginner's Guide, Mac Edition</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ive-deep-into-the-past-with-these-top-10-student-friendly-yt-channels-for-2024/"><u>[New] Dive Deep Into the Past with These Top 10 Student-Friendly YT Channels for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/24-elevating-video-reach-the-role-of-smart-backlinking-techniques/"><u>In 2024, Elevating Video Reach  The Role of Smart Backlinking Techniques</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/sh-hd-vision-utilizing-youtube-for-clear-videos-for-2024/"><u>Unleash HD Vision  Utilizing YouTube for Clear Videos for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-2024-approved-expert-speaker-change-devices-for-youtube-gurus/"><u>[Updated] 2024 Approved  Expert Speaker Change Devices for YouTube Gurus</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-the-top-10-capture-cards-for-youtube-you-should-know-for-2024/"><u>[Updated] The Top 10 Capture Cards for YouTube You Should Know for 2024</u></a></li>
+<li><a href="https://ai-video-editing.techidaily.com/in-2024-how-to-slow-down-gif-building-an-understanding/"><u>In 2024, How To Slow Down GIF Building an Understanding</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/az-screen-recorder-review-series-for-2024/"><u>AZ Screen Recorder Review Series for 2024</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/10plus-best-free-video-editing-programs-of-2023/"><u>10+ Best Free Video Editing Programs of 2023</u></a></li>
+<li><a href="https://extra-information.techidaily.com/flash-freeze-focus-leading-cameras-for-slow-speed-recording/"><u>Flash Freeze Focus  Leading Cameras for Slow Speed Recording</u></a></li>
+<li><a href="https://smart-video-creator.techidaily.com/vn-video-editor-apk-pros-cons-and-features-review/"><u>VN Video Editor APK Pros, Cons, and Features Review</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/2024-approved-enhancing-engagement-through-thoughtful-youtube-tags/"><u>2024 Approved  Enhancing Engagement Through Thoughtful YouTube Tags</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-in-2024-iconic-video-titles-youtubes-most-watched-lore/"><u>[Updated] In 2024, Iconic Video Titles  YouTube's Most-Watched Lore</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/in-2024-a-step-by-step-guide-to-amplify-your-content-through-spotlighting/"><u>In 2024, A Step-by-Step Guide to Amplify Your Content Through Spotlighting</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/elite-insight-parrots-second-gen-drone-20/"><u>Elite Insight  Parrot's Second-Gen Drone 2.0</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/in-2024-expert-analysis-of-srt-unpacking-its-significance/"><u>In 2024, Expert Analysis of SRT  Unpacking Its Significance</u></a></li>
+</ul></div>

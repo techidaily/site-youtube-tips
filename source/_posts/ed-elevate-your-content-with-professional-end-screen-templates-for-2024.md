@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Elevate Your Content with Professional End Screen Templates for 2024"
-date: 2024-06-23 13:11:19
-updated: 2024-06-25 10:59:52
+date: 2024-06-25T18:14:09.206Z
+updated: 2024-06-26T18:14:09.206Z
 tags:
   - ai video
   - ai youtube
@@ -16,9 +16,7 @@ thumbnail: https://thmb.techidaily.com/ef75e54c89ead83bf0af102804bf50f616e622b6f
 
 ## Elevate Your Content with Professional End Screen Templates
 
-# Free YouTube End Screen Templates
-
-![](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+# Free YouTube End Screen Templates ![](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
 
@@ -77,23 +75,21 @@ Here are some of our favorite ones.
 
 Here’s one for the Minecraft fans:
 
-![SoapyEdits YouTube end screen template Minecraft ](https://images.wondershare.com/filmora/article-images/SoapyEdits-youtube-end-screen-template-minecraft.jpg)
+![SoapyEdits YouTube end screen template Minecraft](https://images.wondershare.com/filmora/article-images/SoapyEdits-youtube-end-screen-template-minecraft.jpg)
 
-![SoapyEdits YouTube end screen template  ](https://images.wondershare.com/filmora/article-images/SoapyEdits-youtube-end-screen-template-2.jpg)
+![SoapyEdits YouTube end screen template](https://images.wondershare.com/filmora/article-images/SoapyEdits-youtube-end-screen-template-2.jpg)
 
-![SoapyEdits YouTube end screen template  ](https://images.wondershare.com/filmora/article-images/SoapyEdits-youtube-end-screen-template-3.jpg)
+![SoapyEdits YouTube end screen template](https://images.wondershare.com/filmora/article-images/SoapyEdits-youtube-end-screen-template-3.jpg)
 
 Another way to get your YouTube end screens for free, of course, is to make them yourself. Canva is a great free online design tool for this.
 
 ## Part 2: How To Build Your Outro For Free (Step-by-step Canva Tutorial)
 
-1\. First, you have to sign up with an e-mail address
-
-![create-outro-end-screen-with-canva-1](https://images.wondershare.com/filmora/article-images/create-outro-end-screen-with-canva-1.jpg)
+1\. First, you have to sign up with an e-mail address ![create-outro-end-screen-with-canva-1](https://images.wondershare.com/filmora/article-images/create-outro-end-screen-with-canva-1.jpg)
 
 2\. Once logged in, select “use custom dimensions” and plug in “1920” pixels as your width and “1080” pixels as your height (this, of course, may vary depending on the resolution of your video project).
 
-![create-outro-end-screen-with-canva  ](https://images.wondershare.com/filmora/article-images/create-outro-end-screen-with-canva-2.jpg)
+![create-outro-end-screen-with-canva](https://images.wondershare.com/filmora/article-images/create-outro-end-screen-with-canva-2.jpg)
 
 3\. After clicking “Design!,” a new browser will open with a blank canvas.
 
@@ -103,11 +99,11 @@ Another way to get your YouTube end screens for free, of course, is to make them
 
 5\. Upload the image onto your Canva project.
 
-![upload-downloaded-youtube-end-screen-canva ](https://images.wondershare.com/filmora/article-images/upload-downloaded-youtube-end-screen-canva.jpg)
+![upload-downloaded-youtube-end-screen-canva](https://images.wondershare.com/filmora/article-images/upload-downloaded-youtube-end-screen-canva.jpg)
 
 6\. Stretch your image to the ends of your canvas.
 
-![stretch-end-screen-templates-canva ](https://images.wondershare.com/filmora/article-images/stretch-end-screen-templates-canva.jpg)
+![stretch-end-screen-templates-canva](https://images.wondershare.com/filmora/article-images/stretch-end-screen-templates-canva.jpg)
 
 7\. Insert your own shapes, lines, colours, images, and text over the image.
 
@@ -144,3 +140,27 @@ Follow @Richard Bennett
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-tips.techidaily.com/ed-in-2024-navigating-new-horizines-youtube-video-uploads-to-facebook/"><u>[Updated] In 2024, Navigating New Horizines  YouTube Video Uploads to Facebook</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ocial-media-match-up-youtube-shorts-or-tiktok/"><u>[New] Social Media Match-Up  Youtube Shorts or TikTok?</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/024-approved-news-endings-as-a-narrative-tool/"><u>[New] 2024 Approved  News Endings as a Narrative Tool</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-streamlining-visual-storytelling-with-youtube-videos-for-2024/"><u>[Updated] Streamlining Visual Storytelling with YouTube Videos for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-2024-approved-leveraging-technology-for-flawless-youtube-cc-and-subtitled-videos/"><u>[Updated] 2024 Approved  Leveraging Technology for Flawless YouTube CC & Subtitled Videos</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/cripted-sign-offs-for-the-savvy-viewer-for-2024/"><u>[New] Scripted Sign-Offs for the Savvy Viewer for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/approved-viral-video-legends-youtubed-for-millions/"><u>2024 Approved  Viral Video Legends  YouTubed for Millions</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/024-approved-ultimate-guide-to-effective-video-marketing-tools-8/"><u>[New] 2024 Approved  Ultimate Guide to Effective Video Marketing Tools (8)</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/o-download-youtube-playlist-step-by-step/"><u>How to Download YouTube Playlist-Step by Step!</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-youtube-clip-maker-for-2024/"><u>[Updated] Youtube Clip Maker for 2024</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/how-to-reset-gmail-password-on-realme-11-proplus-devices-by-drfone-android/"><u>How to Reset Gmail Password on Realme 11 Pro+ Devices</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/updated-streamlining-video-content-with-effective-xml-ttml-and-srt-solutions/"><u>[Updated] Streamlining Video Content with Effective XML, TTML & SRT Solutions</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/excellent-ios-tools-the-hottest-choices-for-simulating-psp-games/"><u>Excellent iOS Tools  The Hottest Choices for Simulating PSP Games</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/top-apps-and-online-tools-to-track-vivo-s18-phone-withwithout-imei-number-by-drfone-android/"><u>Top Apps and Online Tools To Track Vivo S18 Phone With/Without IMEI Number</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/new-mastering-text-overlays-on-digital-pictures/"><u>[New] Mastering Text Overlays on Digital Pictures</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-does-airplane-mode-turn-off-gps-location-on-tecno-spark-10c-drfone-by-drfone-virtual-android/"><u>In 2024, Does Airplane Mode Turn off GPS Location On Tecno Spark 10C? | Dr.fone</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/iphone-sound-archive-voice-memo-tips-and-tricks/"><u>IPhone Sound Archive  Voice Memo Tips & Tricks</u></a></li>
+<li><a href="https://ai-video-tools.techidaily.com/new-in-2024-the-ultimate-dvd-conversion-guide-from-physical-to-digital-in-no-time/"><u>New In 2024, The Ultimate DVD Conversion Guide From Physical to Digital in No Time</u></a></li>
+<li><a href="https://sound-tweaking.techidaily.com/mastering-the-art-of-sound-integration-into-film-magix-edition/"><u>Mastering the Art of Sound Integration Into Film Magix Edition</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/in-2024-unleash-a-new-sound-personality-on-instagram/"><u>In 2024, Unleash a New Sound Personality on Instagram</u></a></li>
+</ul></div>

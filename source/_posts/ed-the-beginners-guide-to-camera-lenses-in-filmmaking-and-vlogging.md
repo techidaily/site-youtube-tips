@@ -1,7 +1,7 @@
 ---
 title: "[Updated] The Beginner's Guide to Camera Lenses in Filmmaking & Vlogging"
-date: 2024-06-23 20:34:37
-updated: 2024-06-26 10:42:28
+date: 2024-06-25T17:30:31.994Z
+updated: 2024-06-26T17:30:31.994Z
 tags:
   - ai video
   - ai youtube
@@ -16,9 +16,7 @@ thumbnail: https://thmb.techidaily.com/75afd5a2790c3528915ac28a66faf57312a6eb60a
 
 ## The Beginner's Guide to Camera Lenses in Filmmaking & Vlogging
 
-# A Vlogger's Guide To Camera Lenses
-
-![](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+# A Vlogger's Guide To Camera Lenses ![](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
 
@@ -101,9 +99,7 @@ This table shows you the focal lengths needed to achieve the same shot between c
 | Telephoto                   | 100mm      | 63mm  | 50mm      |
 | Telephoto                   | 200mm      | 125mm | 100mm     |
 
-### Aperture
-
- ![Camera lenses Aperture](https://images.wondershare.com/filmora/article-images/camera-lenses-aperture.jpg)
+### Aperture ![Camera lenses Aperture](https://images.wondershare.com/filmora/article-images/camera-lenses-aperture.jpg)
 
  The next thing to consider when you’re looking for a lens is the aperture, the hole (often adjustable) within the lens that lets light in. Aperture for camera lenses is measured in f-stops (f/1.4, f/1.8, f/2.0) - the smaller the f-stop number, the larger the aperture (bigger hole letting even more light in).
 
@@ -164,3 +160,27 @@ Follow @Richard Bennett
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-tips.techidaily.com/024-approved-transform-your-videos-first-impression-with-these-fonts/"><u>[New] 2024 Approved  Transform Your Video's First Impression with These Fonts</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/024-approved-mastering-the-art-of-using-cc-copyrights-wisely/"><u>[New] 2024 Approved  Mastering the Art of Using CC Copyrights Wisely</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/24-navigating-the-best-video-formats-for-your-youtube-channel/"><u>In 2024, Navigating the Best Video Formats for Your YouTube Channel</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-essential-video-concepts-fueling-creativity-in-youtube-channels-for-2024/"><u>[Updated] Essential Video Concepts  Fueling Creativity in YouTube Channels for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-quash-unwanted-youtube-suggested-videos-for-2024/"><u>[Updated] Quash Unwanted YouTube Suggested Videos for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-the-ultimate-guide-to-youtube-success-with-tubebuddy/"><u>[New] In 2024, The Ultimate Guide to YouTube Success with TubeBuddy</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-mastering-engagement-a-compendium-of-the-top-20-youtube-hacks/"><u>[Updated] Mastering Engagement  A Compendium of the Top 20 YouTube Hacks</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-essentials-for-youtube-music-playlists-for-2024/"><u>[Updated] Essentials for YouTube Music Playlists for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/iscover-the-most-reliable-royalty-free-audio-libraries-for-2024/"><u>[New] Discover the Most Reliable Royalty-Free Audio Libraries for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-the-essentials-of-earning-on-youtube-latest-changes/"><u>[Updated] The Essentials of Earning on YouTube  Latest Changes</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/optimizing-your-safari-experience-enablingdisabling-dual-screen/"><u>Optimizing Your Safari Experience  Enabling/Disabling Dual Screen</u></a></li>
+<li><a href="https://extra-support.techidaily.com/updated-step-by-step-speeding-up-snapchat-media-video/"><u>[Updated] Step-by-Step  Speeding Up Snapchat Media (Video)</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/new-harmonizing-vision-and-voice-the-ultimate-guide/"><u>[New] Harmonizing Vision and Voice  The Ultimate Guide</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/2024-approved-crafting-cool-youtube-previews-in-imovie-easily/"><u>2024 Approved  Crafting Cool YouTube Previews in iMovie Easily</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-best-3-software-to-transfer-files-tofrom-your-tecno-pova-5-via-a-usb-cable-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, Best 3 Software to Transfer Files to/from Your Tecno Pova 5 via a USB Cable | Dr.fone</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/2024-approved-unlocking-your-fb-social-media-treasures/"><u>2024 Approved  Unlocking Your FB Social Media Treasures</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/2024-approved-retail-marketing-through-vr-technology/"><u>2024 Approved  Retail Marketing Through VR Technology</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/how-to-fix-icloud-lock-from-your-iphone-15-plus-and-ipad-by-drfone-ios/"><u>How to fix iCloud lock from your iPhone 15 Plus and iPad</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-2024-approved-creating-illusionary-settings-with-instagrams-chroma-key/"><u>[New] 2024 Approved  Creating Illusionary Settings with Instagram’s Chroma Key</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/how-to-transfer-data-from-realme-c53-to-samsung-phone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Data from Realme C53 to Samsung Phone | Dr.fone</u></a></li>
+</ul></div>

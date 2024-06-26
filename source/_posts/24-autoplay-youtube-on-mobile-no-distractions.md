@@ -1,7 +1,7 @@
 ---
 title: "In 2024, AutoPlay YouTube on Mobile, No Distractions"
-date: 2024-06-23 16:54:42
-updated: 2024-06-26 12:22:36
+date: 2024-06-25T18:26:25.145Z
+updated: 2024-06-26T18:26:25.145Z
 tags:
   - ai video
   - ai youtube
@@ -16,9 +16,7 @@ thumbnail: https://thmb.techidaily.com/029b0eb85077c27446243e8d1c815878a76764b76
 
 ## AutoPlay YouTube on Mobile, No Distractions
 
-# How to Play YouTube in Background on iPhone and Android
-
-![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+# How to Play YouTube in Background on iPhone and Android ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
 
@@ -48,7 +46,7 @@ Once you have subscribed for the YouTube Premium Individual plan, and downloaded
 
 Launch **YouTube Music**, search for your favorite music using the **Search** icon at the top-right corner, tap the song in the suggestions list, and then tap the name of the track to start playing.
 
-![ YouTube Premium Play Music background](https://images.wondershare.com/filmora/article-images/youtube-premium-play-music-background.jpg)
+![YouTube Premium Play Music background](https://images.wondershare.com/filmora/article-images/youtube-premium-play-music-background.jpg)
 
 ### Step 2: Switch to Audio Only (Optional)
 
@@ -84,7 +82,7 @@ The process to **play YouTube in background** on an Android smartphone is slight
 
 Launch Google Chrome (default) on your Android phone, and go to [**www.youtube.com**](https://www.youtube.com). Click the **More options** icon (with three vertically aligned dots) from the top-right corner of the browser, and check the **Desktop site** box from the menu that appears.
 
-![ Switch to YouTube desktop site on Android](https://images.wondershare.com/filmora/article-images/switch-to-desktop-site-youtube.jpg)
+![Switch to YouTube desktop site on Android](https://images.wondershare.com/filmora/article-images/switch-to-desktop-site-youtube.jpg)
 
 ### Step 2: Search for and Stream a Video
 
@@ -94,21 +92,21 @@ Use the **Search** bar at the top of the interface to search for and tap the vid
 
 Once the video starts streaming, get back to the Home screen, pull down the **Notification** bar from the top (if the streaming stops), and press the **Play** button to **play YouTube in background** on your Android smartphone.
 
-![ Play YouTube  background on Android](https://images.wondershare.com/filmora/article-images/play-youtube-background-android.jpg)
+![Play YouTube  background on Android](https://images.wondershare.com/filmora/article-images/play-youtube-background-android.jpg)
 
 ## 3 Best Apps to Play YouTube Videos in Background on Android
 
 Instead of using the above workaround on Android, if you want something simpler and more straightforward, there are a few apps that can help you **play YouTube videos in background**. Some of the most used programs are listed below:
 
-### [VLC for Android](https://play.google.com/store/apps/details?id=org.videolan.vlc&hl=en%5Fus)
+### VLC for Android
 
 Being one of the most versatile media playing software, VLC needs no introduction, and icing on the cake was added when the program was made available on Google Play Store. After you have installed VLC on your Android phone, you can launch the YouTube app, search for and tap the video you want to play in the background, tap the streaming video, tap the ‘More options’ icon from the top-right corner, and tap ‘Play in VLC’ from the available options.
 
-### [Minimize play in background](https://play.google.com/store/apps/details?id=de.kostenlose.musik.app&hl=en%5FUS)
+### Minimize play in background
 
 This app does exactly what its name suggests. The program has a ‘Minimize player’ mode that allows you to stream YouTube videos in a small window that reduces its size and resides at the bottom of the screen, thus letting you use your Android phone for other important tasks simultaneously.
 
-### [Background player for YouTube Vanced minimizer](https://play.google.com/store/apps/details?id=com.free.music.app&hl=en%5Fus)
+### Background player for YouTube Vanced minimizer
 
 Yet another app available on Google Play Store that lets you search for your favorite videos on YouTube, stream them, and then minimize the player to a floating window that goes down to the bottom of the screen. This lets you **play YouTube in background** in order to allow you to use your phone for other tasks.
 
@@ -143,3 +141,24 @@ Follow @Richard Bennett
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-tips.techidaily.com/ed-how-to-add-chapters-to-youtube-videos/"><u>[Updated] How to Add Chapters to YouTube Videos</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-the-ultimate-collection-of-top-ranked-cost-free-youtube-short-video-downloader-apps-for-2024/"><u>[Updated] The Ultimate Collection of Top-Ranked, Cost-Free YouTube Short Video Downloader Apps for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-understanding-recent-youtube-financial-policies/"><u>[New] In 2024, Understanding Recent YouTube Financial Policies</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/24-step-toward-balance-best-yoga-series-to-watch-and-learn-from/"><u>In 2024, Step Toward Balance  Best Yoga Series to Watch and Learn From</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-pioneering-film-making-skills-through-youtube-videos/"><u>[Updated] Pioneering Film Making Skills Through YouTube Videos</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/rolific-profits-from-youtube-universal-strategies-unveiled/"><u>[New] Prolific Profits From YouTube  Universal Strategies Unveiled</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-quick-steps-to-record-iphoneipad-screens-for-online-videos/"><u>[New] In 2024, Quick Steps to Record iPhone/iPad Screens for Online Videos</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-2024-approved-making-a-mark-advanced-strategies-for-youtube-video-production/"><u>[Updated] 2024 Approved  Making a Mark  Advanced Strategies for YouTube Video Production</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/2024-approved-the-ultimate-how-to-for-your-youtube-music-collection/"><u>2024 Approved  The Ultimate How-To for Your YouTube Music Collection</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/10plus-top-free-youtube-image-extractors-for-2024/"><u>10+ Top FREE YouTube Image Extractors for 2024</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/how-to-bypass-android-lock-screen-using-emergency-call-on-poco-x5-pro-by-drfone-android/"><u>How to Bypass Android Lock Screen Using Emergency Call On Poco X5 Pro?</u></a></li>
+<li><a href="https://sound-optimizing.techidaily.com/in-2024-hearing-locations-of-exasperated-dogs-communicating-through-bark/"><u>In 2024, Hearing Locations of Exasperated Dogs Communicating Through Bark</u></a></li>
+<li><a href="https://article-helps.techidaily.com/2024-approved-advanced-tricks-for-quick-webp-to-jpg-conversion/"><u>2024 Approved  Advanced Tricks for Quick WebP to JPG Conversion</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/high-impact-vectors-discover-the-best-10-websites-for-2024/"><u>High-Impact Vectors  Discover the Best 10 Websites for 2024</u></a></li>
+<li><a href="https://extra-information.techidaily.com/complete-review-and-tips-for-enhancing-images-with-facetune-2024/"><u>Complete Review and Tips for Enhancing Images with Facetune 2024</u></a></li>
+<li><a href="https://discord-videos.techidaily.com/updated-designing-an-attractive-pfp-for-discord-chat-rooms-for-2024/"><u>[Updated] Designing an Attractive Pfp for Discord Chat Rooms for 2024</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/samsung-galaxy-xcover-6-pro-tactical-edition-not-connecting-to-wi-fi-12-quick-ways-to-fix-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Samsung Galaxy XCover 6 Pro Tactical Edition Not Connecting to Wi-Fi? 12 Quick Ways to Fix | Dr.fone</u></a></li>
+</ul></div>

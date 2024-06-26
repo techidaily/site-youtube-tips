@@ -1,7 +1,7 @@
 ---
 title: "[New] How To Make Profitable YouTube Ads for Free, In 2024"
-date: 2024-06-22 15:19:37
-updated: 2024-06-23 11:44:34
+date: 2024-06-25T17:38:31.170Z
+updated: 2024-06-26T17:38:31.170Z
 tags:
   - ai video
   - ai youtube
@@ -16,9 +16,7 @@ thumbnail: https://thmb.techidaily.com/e12cb801e0d6f6813ed277d29658e5821adadea3d
 
 ## How To Make Profitable YouTube Ads for Free?
 
-# How to Create Video Ads for Free in YouTube Video Builder
-
-![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+# How to Create Video Ads for Free in YouTube Video Builder ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
 
@@ -84,53 +82,53 @@ Once you have access to the Beta version of **YouTube Video Builder**, you can s
 
 After signing in to your **YouTube Video Builder** account, on the main interface, click **Select Layout** from the navigation bar at the right if not already selected, pick a layout that best suits your needs, and click **Use Layout**.
 
-![ YouTube Video Builder ](https://images.wondershare.com/filmora/article-images/youtube-video-builder-select-layout.jpg)
+![YouTube Video Builder](https://images.wondershare.com/filmora/article-images/youtube-video-builder-select-layout.jpg)
 
 Next, from the **Color & Logo** section, choose the base (background) and text colors using their corresponding tools from under the **Brand colors** section.
 
-![Create video with YouTube Video Builder ](https://images.wondershare.com/filmora/article-images/youtube-video-builder-select-color-logo.jpg)
+![Create video with YouTube Video Builder](https://images.wondershare.com/filmora/article-images/youtube-video-builder-select-color-logo.jpg)
 
 After this, insert an image of your brand logo in the block under the **Logos** category.
 
-![Create video with YouTube Video Builder ](https://images.wondershare.com/filmora/article-images/youtube-video-builder-insert-brand-logo.jpg)
+![Create video with YouTube Video Builder](https://images.wondershare.com/filmora/article-images/youtube-video-builder-insert-brand-logo.jpg)
 
 #### Step 2: Add the Ingredients
 
 When you are on the **Images & Text** section of the navigation bar, pick the high-definition photos from the **Storyboard** at the bottom, and add them to the **Image 1**, **Image 2**, and **Image 3** boxes accordingly.
 
-![Create video with YouTube Video Builder ](https://images.wondershare.com/filmora/article-images/youtube-video-builder-insert-images-texts.jpg)
+![Create video with YouTube Video Builder](https://images.wondershare.com/filmora/article-images/youtube-video-builder-insert-images-texts.jpg)
 
 Now, scroll down to the **Text** section, and add the relevant content in the available text input fields. Make sure to add a compelling **Call to action** text to give the viewers a free passage to connect with you.
 
-![Create video with YouTube Video Builder with CTA ](https://images.wondershare.com/filmora/article-images/youtube-video-builder-call-to-action-texts.jpg)
+![Create video with YouTube Video Builder with CTA](https://images.wondershare.com/filmora/article-images/youtube-video-builder-call-to-action-texts.jpg)
 
 #### Step 3: Make Cosmetic Manipulations
 
 From the **Pick a Font** section of the navigation bar, click the **Google Fonts catalog** link to search for a unique font, and once found, type its name in the available field to use that font.
 
-![Create video with YouTube Video Builder - change font ](https://images.wondershare.com/filmora/article-images/youtube-video-builder-pickup-video-text-fonts.jpg)
+![Create video with YouTube Video Builder - change font](https://images.wondershare.com/filmora/article-images/youtube-video-builder-pickup-video-text-fonts.jpg)
 
 Alternatively, you can leave the default one selected. When on the **Select Music** section, choose your preferred background music from the drop-down list that is present under the section.
 
-![Create video with YouTube Video Builder with music ](https://images.wondershare.com/filmora/article-images/youtube-video-builder-select-music-for-video.jpg)
+![Create video with YouTube Video Builder with music](https://images.wondershare.com/filmora/article-images/youtube-video-builder-select-music-for-video.jpg)
 
 Finally, click **Create video**, and wait while **YouTube Video Builder** takes you to the **Preview, Save, Share** section, and generates your video.
 
-![ YouTube Video Builder Video create video  ](https://images.wondershare.com/filmora/article-images/youtube-video-builder-create-video.jpg)
+![YouTube Video Builder Video create video](https://images.wondershare.com/filmora/article-images/youtube-video-builder-create-video.jpg)
 
 #### Step 4: Save the Video and Begin Promotion
 
 After the video is generated, play to preview the film. If everything looks good, click **Save video**.
 
-![ YouTube Video Builder Video Preview and Save  ](https://images.wondershare.com/filmora/article-images/youtube-video-builder-save-preview-video.jpg)
+![YouTube Video Builder Video Preview and Save](https://images.wondershare.com/filmora/article-images/youtube-video-builder-save-preview-video.jpg)
 
 On the next page, click **Copy** to copy the video link, and share it with your friends, colleagues, and family members for their feedback.
 
-![ YouTube Video Builder Video Copy Link  ](https://images.wondershare.com/filmora/article-images/youtube-video-builder-copy-link.jpg)
+![YouTube Video Builder Video Copy Link](https://images.wondershare.com/filmora/article-images/youtube-video-builder-copy-link.jpg)
 
 Next, scroll down to get to the **Create Campaign** section of the navigation bar, and from the left screen, click **Create campaign** to begin a campaign to promote your brand and/or product(s).
 
-![ YouTube Video Builder Video Create Campaign ](https://images.wondershare.com/filmora/article-images/youtube-video-builder-create-campaign.jpg)
+![YouTube Video Builder Video Create Campaign](https://images.wondershare.com/filmora/article-images/youtube-video-builder-create-campaign.jpg)
 
 #### Part 5: Tips for Making Good Video Ads with YouTube Video Builder
 
@@ -171,3 +169,27 @@ Follow @Richard Bennett
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-tips.techidaily.com/ed-radiant-faces-mastering-makeup-and-lighting-together-for-2024/"><u>[Updated] Radiant Faces  Mastering Makeup and Lighting Together for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-professional-tips-for-enhancing-your-youtube-videos-with-captions-for-2024/"><u>[Updated] Professional Tips for Enhancing Your YouTube Videos with Captions for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-most-popular-free-photography-and-film-archives-for-2024/"><u>[Updated] Most Popular Free Photography and Film Archives for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/24-ultra-quick-fortnite-image-design/"><u>In 2024, Ultra-Quick Fortnite Image Design</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-tailor-made-youtube-music-mixes-a-stepwise-technique-for-webmobile-users/"><u>[New] In 2024, Tailor-Made YouTube Music Mixes  A Stepwise Technique for Web/Mobile Users</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/approved-the-scripted-shutdown-of-stories/"><u>2024 Approved  The Scripted Shutdown of Stories</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-elevate-your-content-the-secrets-to-increased-subscribers/"><u>[Updated] Elevate Your Content  The Secrets to Increased Subscribers</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/-url-minification-the-best-tools-for-youtubers-convenience/"><u>Video URL Minification  The Best Tools for Youtubers' Convenience</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ynthesizing-creativity-a-brainstormers-toolkit-for-names/"><u>[New] Synthesizing Creativity  A Brainstormer’s Toolkit for Names</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/hat-lies-beneath-the-core-of-asmr-videos/"><u>[New] What Lies Beneath  The Core of ASMR Videos</u></a></li>
+<li><a href="https://blog-min.techidaily.com/4-ways-to-transfer-music-from-vivo-y100-to-iphone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>4 Ways to Transfer Music from Vivo Y100 to iPhone | Dr.fone</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/new-proven-techniques-to-take-your-obs-studio-videos-to-new-heights/"><u>[New] Proven Techniques to Take Your OBS Studio Videos to New Heights</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/2024-approved-unveiling-effective-strategies-for-fb-in-stream-ad-setup/"><u>2024 Approved  Unveiling Effective Strategies for FB In-Stream Ad Setup</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/2024-approved-securing-your-snapchat-footage-a-step-by-step-process/"><u>2024 Approved  Securing Your Snapchat Footage  A Step-by-Step Process</u></a></li>
+<li><a href="https://audio-editing.techidaily.com/new-linux-audioscapes-discover-the-5-leading-audio-recorders-in-free-operating-systems/"><u>New Linux Audioscapes Discover the 5 Leading Audio Recorders in Free Operating Systems</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-how-to-change-spotify-location-after-moving-to-another-country-on-oneplus-12r-drfone-by-drfone-virtual-android/"><u>In 2024, How to Change Spotify Location After Moving to Another Country On OnePlus 12R | Dr.fone</u></a></li>
+<li><a href="https://audio-editing.techidaily.com/updated-in-2024-catchy-counterpoint-the-best-backwards-song-videos-of-this-year/"><u>Updated In 2024, Catchy Counterpoint The Best Backwards Song Videos of This Year</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/how-to-bypass-google-frp-on-oppo-find-n3-flip-by-drfone-android-unlock-remove-google-frp/"><u>How To Bypass Google FRP on Oppo Find N3 Flip</u></a></li>
+<li><a href="https://location-fake.techidaily.com/6-ways-to-change-spotify-location-on-your-xiaomi-redmi-note-12-5g-drfone-by-drfone-virtual-android/"><u>6 Ways to Change Spotify Location On Your Xiaomi Redmi Note 12 5G | Dr.fone</u></a></li>
+<li><a href="https://smart-video-editing.techidaily.com/updated-2024-approved-xfinity-vs-tivo-a-comprehensive-comparison-of-dvr-options/"><u>Updated 2024 Approved Xfinity vs TiVo A Comprehensive Comparison of DVR Options</u></a></li>
+</ul></div>

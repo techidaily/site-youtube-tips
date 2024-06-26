@@ -1,7 +1,7 @@
 ---
 title: "How To Record Screencast From YouTube For Free"
-date: 2024-06-23 22:29:33
-updated: 2024-06-25 10:26:40
+date: 2024-06-25T17:27:29.448Z
+updated: 2024-06-26T17:27:29.448Z
 tags:
   - ai video
   - ai youtube
@@ -16,9 +16,7 @@ thumbnail: https://thmb.techidaily.com/a84f233e2df716933c1def7036ee5f60e5a298fe7
 
 ## DIY Guide to Turning YouTube Screen Time Into a FREE Screencast
 
-# How To Record Screencast From YouTube For Free
-
-![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
+# How To Record Screencast From YouTube For Free ![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
 
 ##### Max Wales
 
@@ -45,9 +43,7 @@ For Win 7 or later (64-bit)
 
 [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/)
 
-For macOS 10.12 or later
-
-![secure download](https://static.wondershare.com/images-filmora/images/common/securety.svg)Secure Download
+For macOS 10.12 or later ![secure download](https://static.wondershare.com/images-filmora/images/common/securety.svg) Secure Download
 
 ## Recording Screencast Video with YouTube
 
@@ -55,13 +51,13 @@ Step 1: Open YouTube on your computer and sign by using your Google Account. On 
 
 Step 2: On the create an event page, add a title for your screencast video; set privacy terms and then hit “Go Live Now” option.
 
-![YouTube ScreenCast ](https://images.wondershare.com/filmora/article-images/youtube-screencast-events.jpg)
+![YouTube ScreenCast](https://images.wondershare.com/filmora/article-images/youtube-screencast-events.jpg)
 
 Step 3: The Hangout on Air page will get opened. It will allow you to select-deselect webcam recording as well as mic recording.
 
 Step 4: Hit the screen share button from the left toolbox and choose the desktop window that you wish to record. Now press start the Broadcast button to start screen recording. Note that it is a private session that cannot be watched by anyone else.
 
-![YouTube ScreenCast ](https://images.wondershare.com/filmora/article-images/youtube-screencast-hangouts.jpg)
+![YouTube ScreenCast](https://images.wondershare.com/filmora/article-images/youtube-screencast-hangouts.jpg)
 
 Step 5: When your video is ready to go to YouTube video dashboard and choose your recent screencast video. Download it to Google Drive and share it with the world.
 
@@ -113,3 +109,22 @@ Follow @Max Wales
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-tips.techidaily.com/ed-keep-watching-youtube-on-the-go-with-iphoneandroid/"><u>[Updated] Keep Watching YouTube On-the-Go with iPhone/Android</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-2024-approved-youtubes-payment-cycle-a-detailed-look/"><u>[Updated] 2024 Approved  YouTube’s Payment Cycle  A Detailed Look</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ise-approach-affordable-creation-of-engaging-youtube-intros/"><u>Stepwise Approach  Affordable Creation of Engaging YouTube Intros</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ase-viewership-swiftly-5-strategy-unveiled-for-2024/"><u>Increase Viewership Swiftly - $5 Strategy Unveiled for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-the-essential-guide-to-youtube-edits-with-premiere-pro/"><u>[New] In 2024, The Essential Guide to YouTube Edits with Premiere Pro</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-2024-approved-enhance-videos-naturally-free-9-youtube-thumbnail-crafting-tips/"><u>[Updated] 2024 Approved  Enhance Videos Naturally - Free 9 YouTube Thumbnail Crafting Tips</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/024-approved-the-best-of-the-best-12-youtube-video-game-openers-freepaid/"><u>[New] 2024 Approved  The Best of the Best  12 YouTube Video Game Openers (FREE/PAID)</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/top-photo-enhancers-blurring-removal-online-edition-for-2024/"><u>Top Photo Enhancers  Blurring Removal Online Edition for 2024</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/how-to-make-the-most-of-your-iphone-11-pro-max-lock-screen-with-notifications-by-drfone-ios/"><u>How to Make the Most of Your iPhone 11 Pro Max Lock Screen with Notifications?</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/updated-the-complete-guide-to-macbook-webcam-recording/"><u>[Updated] The Complete Guide to MacBook Webcam Recording</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/top-3d-tvs-for-immersive-blu-ray-viewing/"><u>Top 3D TVs for Immersive Blu-Ray Viewing</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/unlock-your-device-icloud-dns-bypass-explained-and-tested-plus-easy-alternatives-on-apple-iphone-15-by-drfone-ios/"><u>Unlock Your Device iCloud DNS Bypass Explained and Tested, Plus Easy Alternatives On Apple iPhone 15</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/2024-approved-legal-pathways-for-flawless-free-imagery-purchases/"><u>2024 Approved  Legal Pathways for Flawless Free Imagery Purchases</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/new-mastering-vlog-production-top-8-mirrorless-cameras-ranked/"><u>[New] Mastering Vlog Production  Top 8 Mirrorless Cameras Ranked</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/in-2024-how-to-unlock-iphone-13-passcode-without-itunes-without-knowing-passcode-drfone-by-drfone-ios/"><u>In 2024, How to Unlock iPhone 13 Passcode without iTunes without Knowing Passcode? | Dr.fone</u></a></li>
+</ul></div>

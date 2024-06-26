@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Keep Watching YouTube On-the-Go with iPhone/Android for 2024\""
-date: 2024-06-22 18:51:33
-updated: 2024-06-25 12:50:52
+date: 2024-06-25T17:24:18.005Z
+updated: 2024-06-26T17:24:18.005Z
 tags:
   - ai video
   - ai youtube
@@ -16,9 +16,7 @@ thumbnail: https://thmb.techidaily.com/23f13f96d936d78089a7e8a3b93e560ac0ab85876
 
 ## Keep Watching YouTube On-the-Go with iPhone/Android
 
-# How to Play YouTube in Background on iPhone and Android
-
-![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+# How to Play YouTube in Background on iPhone and Android ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
 
@@ -48,7 +46,7 @@ Once you have subscribed for the YouTube Premium Individual plan, and downloaded
 
 Launch **YouTube Music**, search for your favorite music using the **Search** icon at the top-right corner, tap the song in the suggestions list, and then tap the name of the track to start playing.
 
-![ YouTube Premium Play Music background](https://images.wondershare.com/filmora/article-images/youtube-premium-play-music-background.jpg)
+![YouTube Premium Play Music background](https://images.wondershare.com/filmora/article-images/youtube-premium-play-music-background.jpg)
 
 ### Step 2: Switch to Audio Only (Optional)
 
@@ -84,7 +82,7 @@ The process to **play YouTube in background** on an Android smartphone is slight
 
 Launch Google Chrome (default) on your Android phone, and go to [**www.youtube.com**](https://www.youtube.com). Click the **More options** icon (with three vertically aligned dots) from the top-right corner of the browser, and check the **Desktop site** box from the menu that appears.
 
-![ Switch to YouTube desktop site on Android](https://images.wondershare.com/filmora/article-images/switch-to-desktop-site-youtube.jpg)
+![Switch to YouTube desktop site on Android](https://images.wondershare.com/filmora/article-images/switch-to-desktop-site-youtube.jpg)
 
 ### Step 2: Search for and Stream a Video
 
@@ -94,21 +92,21 @@ Use the **Search** bar at the top of the interface to search for and tap the vid
 
 Once the video starts streaming, get back to the Home screen, pull down the **Notification** bar from the top (if the streaming stops), and press the **Play** button to **play YouTube in background** on your Android smartphone.
 
-![ Play YouTube  background on Android](https://images.wondershare.com/filmora/article-images/play-youtube-background-android.jpg)
+![Play YouTube  background on Android](https://images.wondershare.com/filmora/article-images/play-youtube-background-android.jpg)
 
 ## 3 Best Apps to Play YouTube Videos in Background on Android
 
 Instead of using the above workaround on Android, if you want something simpler and more straightforward, there are a few apps that can help you **play YouTube videos in background**. Some of the most used programs are listed below:
 
-### [VLC for Android](https://play.google.com/store/apps/details?id=org.videolan.vlc&hl=en%5Fus)
+### VLC for Android
 
 Being one of the most versatile media playing software, VLC needs no introduction, and icing on the cake was added when the program was made available on Google Play Store. After you have installed VLC on your Android phone, you can launch the YouTube app, search for and tap the video you want to play in the background, tap the streaming video, tap the ‘More options’ icon from the top-right corner, and tap ‘Play in VLC’ from the available options.
 
-### [Minimize play in background](https://play.google.com/store/apps/details?id=de.kostenlose.musik.app&hl=en%5FUS)
+### Minimize play in background
 
 This app does exactly what its name suggests. The program has a ‘Minimize player’ mode that allows you to stream YouTube videos in a small window that reduces its size and resides at the bottom of the screen, thus letting you use your Android phone for other important tasks simultaneously.
 
-### [Background player for YouTube Vanced minimizer](https://play.google.com/store/apps/details?id=com.free.music.app&hl=en%5Fus)
+### Background player for YouTube Vanced minimizer
 
 Yet another app available on Google Play Store that lets you search for your favorite videos on YouTube, stream them, and then minimize the player to a floating window that goes down to the bottom of the screen. This lets you **play YouTube in background** in order to allow you to use your phone for other tasks.
 
@@ -143,3 +141,27 @@ Follow @Richard Bennett
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-tips.techidaily.com/ed-perfect-your-youtube-clips-essential-editing-techniques-unveiled-for-2024/"><u>[Updated] Perfect Your YouTube Clips  Essential Editing Techniques Unveiled for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-the-riches-a-look-into-mr-beasts-wallet/"><u>[Updated] The Riches  A Look Into Mr. Beast's Wallet</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/approved-how-to-extract-youtube-content-easily/"><u>2024 Approved  How to Extract YouTube Content Easily</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/bes-foe-a-guide-to-the-top-5-editing-rivals-for-2024/"><u>YouTube's Foe? A Guide to the Top 5 Editing Rivals for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-financial-magnitude-in-mr-beasts-realm-for-2024/"><u>[Updated] Financial Magnitude in Mr. Beast's Realm for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/approved-access-youtube-tracks-without-spending-a-dime-25plus-no-cost-audio-extractors/"><u>2024 Approved  Access YouTube Tracks Without Spending a Dime  25+ No-Cost Audio Extractors</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ise-of-a-monetary-maestro-ajeys-youtube-earnings-story-for-2024/"><u>The Rise of a Monetary Maestro  Ajey's YouTube Earnings Story for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-in-2024-your-key-to-creative-advertising-access-all-50-free-youtube-banner-designs/"><u>[Updated] In 2024, Your Key to Creative Advertising  Access All 50 FREE YouTube Banner Designs!</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-bulk-buy-subscribers-cost-effective-growth-strategy/"><u>[Updated] Bulk Buy Subscribers  Cost-Effective Growth Strategy</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-unleashing-creativity-mastering-the-art-of-360-degree-videography-for-youtube/"><u>[Updated] Unleashing Creativity  Mastering the Art of 360-Degree Videography for YouTube</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/9-best-phone-monitoring-apps-for-tecno-pova-6-pro-5g-drfone-by-drfone-virtual-android/"><u>9 Best Phone Monitoring Apps for Tecno Pova 6 Pro 5G | Dr.fone</u></a></li>
+<li><a href="https://ai-topics.techidaily.com/updated-what-is-an-ai-headshot-generator-in-2024/"><u>Updated What Is an AI Headshot Generator, In 2024</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-exporting-your-creativity-imovie-videos-for-youtube-audiences/"><u>[Updated] Exporting Your Creativity  IMovie Videos for YouTube Audiences</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/new-essential-apps-to-extract-and-save-your-vimeo-videos/"><u>[New] Essential Apps to Extract and Save Your Vimeo Videos</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/2024-approved-elevate-your-presence-the-best-5-practices-for-max-viewers/"><u>2024 Approved  Elevate Your Presence  The Best 5 Practices for Max Viewers</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-top-apps-and-online-tools-to-track-itel-s23plus-phone-withwithout-imei-number-by-drfone-android/"><u>In 2024, Top Apps and Online Tools To Track Itel S23+ Phone With/Without IMEI Number</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/how-to-transfer-data-after-switching-from-itel-a60s-to-latest-samsung-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Data After Switching From Itel A60s to Latest Samsung | Dr.fone</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/3-solutions-to-find-your-oppo-find-n3-flip-current-location-of-a-mobile-number-drfone-by-drfone-virtual-android/"><u>3 Solutions to Find Your Oppo Find N3 Flip Current Location of a Mobile Number | Dr.fone</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ransform-into-an-ultimate-hit-essential-seo-tips-for-youtube-videos-for-2024/"><u>[New] Transform Into an Ultimate Hit  Essential SEO Tips for YouTube Videos for 2024</u></a></li>
+<li><a href="https://change-location.techidaily.com/how-to-watch-hulu-outside-us-on-poco-c55-drfone-by-drfone-virtual-android/"><u>How to Watch Hulu Outside US On Poco C55 | Dr.fone</u></a></li>
+</ul></div>

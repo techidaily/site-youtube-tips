@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Unveiling the Mystery of Proper Lighting in YouTube Vids"
-date: 2024-06-19 19:35:54
-updated: 2024-06-21 10:21:50
+date: 2024-06-25T17:37:34.384Z
+updated: 2024-06-26T17:37:34.384Z
 tags:
   - ai video
   - ai youtube
@@ -16,9 +16,7 @@ thumbnail: https://thmb.techidaily.com/5101a256be44324944567b3cdefbcb470dad072a3
 
 ## Unveiling the Mystery of Proper Lighting in YouTube Vids
 
-# How To Light Your YouTube Video
-
-![](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+# How To Light Your YouTube Video ![](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
 
@@ -45,7 +43,7 @@ The best thing about window lighting is that it’s free. The worst thing about 
 
 Window lighting for me was especially difficult to work with because I live in a very rainy and cloudy city, Vancouver, Canada, where we pretty much just get three months of good sun.
 
-![  YouTube Video Lighting ](https://images.wondershare.com/filmora/article-images/window-lighting-comparison.jpg)
+![YouTube Video Lighting](https://images.wondershare.com/filmora/article-images/window-lighting-comparison.jpg)
 
 Above are two freeze frames from one of Daniel's past window-lit vlogs. Although these two frames are both from the same vlog, you can see that the image on the right looks brighter due to clearer skies at that moment. These varying amounts of light is what you will have to deal with if you choose to light your YouTube video with window lighting.
 
@@ -118,3 +116,26 @@ Follow @Richard Bennett
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-tips.techidaily.com/ling-the-best-cinematic-love-top-8-premium-wedding-videos-online/"><u>Unveiling the Best Cinematic Love  Top 8 Premium Wedding Videos Online</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/024-approved-redefining-your-viewing-experience-youtube-playlist-shuffle/"><u>[New] 2024 Approved  Redefining Your Viewing Experience  YouTube Playlist Shuffle</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/24-autoplay-youtube-on-mobile-no-distractions/"><u>In 2024, AutoPlay YouTube on Mobile, No Distractions</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ing-unique-thumbnails-for-youtube-content-for-2024/"><u>Crafting Unique Thumbnails for YouTube Content for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/bes-premier-guide-to-top-notch-gear/"><u>YouTube’s Premier Guide to Top-Notch Gear</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ate-guide-to-free-and-premium-short-video-clips-for-2024/"><u>Ultimate Guide to Free & Premium Short Video Clips for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/tile-viewing-cycle-and-catch-up-with-youtube-videos-on-tv-for-2024/"><u>Versatile Viewing  Cycle and Catch Up with YouTube Videos on TV for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-three-safe-methods-for-directly-downloading-youtubes-audios-as-mp3/"><u>[New] In 2024, Three Safe Methods for Directly Downloading YouTube's Audios as MP3</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-learn-more-top-education-streams-online/"><u>[New] In 2024, Learn More  Top Education Streams Online</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/updated-effortless-screen-capturing-with-your-iphone-7/"><u>[Updated] Effortless Screen Capturing with Your iPhone 7</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/how-to-flash-dead-itel-a05s-safely-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How to Flash Dead Itel A05s Safely | Dr.fone</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/updated-2024-approved-next-gen-options-to-record-high-quality-gaming-footage/"><u>[Updated] 2024 Approved  Next Gen Options to Record High-Quality Gaming Footage</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/insta-angle-alchemy-crafting-content-with-a-twist-for-maximum-impact/"><u>Insta-Angle Alchemy  Crafting Content with a Twist for Maximum Impact</u></a></li>
+<li><a href="https://audio-shaping.techidaily.com/updated-in-2024-the-ultimate-source-directory-10-websites-offering-high-definition-video-wallpapers-and-backgrounds/"><u>Updated In 2024, The Ultimate Source Directory 10 Websites Offering High-Definition Video Wallpapers and Backgrounds</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/mastering-tts-on-tiktok-ultimate-users-manual-for-2024/"><u>Mastering TTS on TikTok  Ultimate User's Manual for 2024</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/new-2024-approved-cutting-edge-tiktok-live-broadcast-techniques-on-computer/"><u>[New] 2024 Approved  Cutting-Edge TikTok Live Broadcast Techniques on Computer</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/new-elevate-your-virtual-engagement-with-snap-capabilities-in-meet-for-2024/"><u>[New] Elevate Your Virtual Engagement with Snap Capabilities in Meet for 2024</u></a></li>
+<li><a href="https://audio-editing.techidaily.com/new-the-ultimate-collection-s-best-podcasts-on-leveraging-social-media-for-marketing-success/"><u>New The Ultimate Collection S Best Podcasts on Leveraging Social Media for Marketing Success</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/updated-in-2024-apex-1-written-by-assistant/"><u>[Updated] In 2024, Apex 1 Written by Assistant</u></a></li>
+</ul></div>

@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Captivate Masses  Social Media Strategies for YouTube for 2024\""
-date: 2024-06-22 12:11:16
-updated: 2024-06-24 10:27:15
+date: 2024-06-25T18:29:01.122Z
+updated: 2024-06-26T18:29:01.122Z
 tags:
   - ai video
   - ai youtube
@@ -16,9 +16,7 @@ thumbnail: https://thmb.techidaily.com/19d1e1f9a7e016bed2849100cf93d86788ddae5b2
 
 ## Captivate Masses: Social Media Strategies for YouTube
 
-# Get More Viewers with Social Media Marketing for YouTube
-
-![](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+# Get More Viewers with Social Media Marketing for YouTube ![](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
 
@@ -62,7 +60,7 @@ In this post, we will go through the best practices of sharing and engaging with
 4. [Reddit](#Reddit)
 5. [Snapchat](#Snapchat)
 
-![ YouTube Social Media Marketing Strategy](https://images.wondershare.com/filmora/article-images/social-media-marketing-tips-for-youtuber.jpg)
+![YouTube Social Media Marketing Strategy](https://images.wondershare.com/filmora/article-images/social-media-marketing-tips-for-youtuber.jpg)
 
 ## Part 1: Instagram for YouTube Channel Marketing
 
@@ -116,7 +114,7 @@ As Instagram has grown in popularity, a lot of tools have been developed to help
 
 Here’s Liza Koshy’s Instagram feed. As you can see, she has a clear style and also a variety of content. If you haven’t heard of [Liza Koshy](https://www.instagram.com/lizakoshy/) and found her through Instagram, you get curious: “What does she do?” Instagram is fantastic for building intrigue and garnering interest.
 
-![Instagram Feed sample](https://images.wondershare.com/filmora/article-images/instagram-feed-liza-koshy.jpg)_Instagram: Liza Koshy_
+![Instagram Feed sample](https://images.wondershare.com/filmora/article-images/instagram-feed-liza-koshy.jpg) _Instagram: Liza Koshy_
 
 This will be a good place to post a teaser of your latest video, upload an inspiring image, or share an interesting piece of content that shows the world what you are all about.
 
@@ -142,7 +140,7 @@ Instagram Story allows you to post a series of images and videos over the course
 
 There is a feature called “Highlight” which archives your stories so that you can view them later, however, they will be kept on your Instagram profile page. This allows visitors to see your best stories and have prepared content even when you go 24 hours without posting something new.
 
-![Instagram Feed sample 3](https://images.wondershare.com/filmora/article-images/instagram-feed-3.jpg)_Instagram: Marianna Hewitt_
+![Instagram Feed sample 3](https://images.wondershare.com/filmora/article-images/instagram-feed-3.jpg) _Instagram: Marianna Hewitt_
 
 #### 2. Use Instagram Story to Make an Announcement
 
@@ -178,7 +176,7 @@ When you post your video from YouTube directly to Facebook, it’ll look somethi
 
 This is Facebook’s way of encouraging you to post videos directly to Facebook’s platform. Which is something you should consider as well, but as you are currently working to grow your YouTube channel, it’s good to focus on this task first.
 
-Well, how do you make the post look better? There is a tool called[Thumb Tube](https://thumbtube.com/) that gives you full sized image on Facebook:
+Well, how do you make the post look better? There is a tool called [Thumb Tube](https://thumbtube.com/) that gives you full sized image on Facebook:
 
 ![Share YouTube on Facebook 2](https://images.wondershare.com/filmora/article-images/share-youtube-on-facebook-2.jpg)
 
@@ -208,7 +206,7 @@ To set up a separate Facebook Page:
 ![create facebook page](https://images.wondershare.com/filmora/article-images/create-facebook-page.jpg)
 
 1. Name your Page, preferably your YouTube channel name
-2. Add Profile and Cover pictures![Facebook Page settings](https://images.wondershare.com/filmora/article-images/facebook-page-settings.jpg)
+2. Add Profile and Cover pictures ![Facebook Page settings](https://images.wondershare.com/filmora/article-images/facebook-page-settings.jpg)
 3. INVITE!
 
 Treat your Facebook Page like another homepage for your channel. Landing on your page might be the first interaction the audience will have with your brand, so it is important that it is similar to your YouTube channel. This means, the logo has to match, the descriptions need to be aligned, and the cover photo should somewhat resemble your YouTube channel art.
@@ -359,7 +357,7 @@ Snapchat is young, fun, and silly. On Snapchat, your personality needs to be the
 
 Pull the curtains open and welcome your audience through the private window into your life. Treat your Snapchat audience less as a faceless crowd but as your friends and family. Take them on a private tour, show them unseen footage of your video, and don’t be afraid to use the filters, text, and theme to liven up your content.
 
-Start following some [popular YouTubers on Snapchat](https://vidooly.com/blog/youtubers-on-snapchat)and you can quickly see how they are using it. Don’t use Snapchat as a place to perform, but instead a place for you to be spontaneous. Remember these content don’t last forever, so don’t take forever planning it out, just start doing it.  
+Start following some [popular YouTubers on Snapchat](https://vidooly.com/blog/youtubers-on-snapchat) and you can quickly see how they are using it. Don’t use Snapchat as a place to perform, but instead a place for you to be spontaneous. Remember these content don’t last forever, so don’t take forever planning it out, just start doing it.  
 
 Promoting your Snapchat account can be hard if you are not a celebrity. Unlike Facebook, Twitter, or Instagram, there is no in-app discovery or suggested users feature in Snapchat. The user will have to search for who they want to follow. Unless someone already knows about you, it’s unlikely that they will be following you on Snapchat. This makes promoting your account to your viewers essential for growth.
 
@@ -371,7 +369,7 @@ Here are a few quick tips for promoting your Snapchat account.
 
 \- Make sure your Snapchat handle is present on your YouTube channel and other social media platforms.
 
-\- Make your[Snapchat snapcode](https://blackatlascreative.com/blog/how-do-snapchats-snapcodes-work/)your profile pic, so people can scan and connect with you.
+\- Make your [Snapchat snapcode](https://blackatlascreative.com/blog/how-do-snapchats-snapcodes-work/) your profile pic, so people can scan and connect with you.
 
 \- Get other Snapchatters to give you a shout-out on their account.
 
@@ -402,3 +400,27 @@ Follow @Richard Bennett
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-tips.techidaily.com/ed-stream-like-a-pro-on-youtube-best-webcams-reviewed/"><u>[Updated] Stream Like a Pro on YouTube  Best Webcams Reviewed</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-leapfrogging-into-digital-marketing-establishing-a-yt-channel-on-mobile-for-2024/"><u>[Updated] Leapfrogging Into Digital Marketing  Establishing a YT Channel on Mobile for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-filmmaking-simplified-create-an-inviting-youtube-subscription-button-in-filmora/"><u>[New] In 2024, Filmmaking Simplified  Create an Inviting YouTube Subscription Button in Filmora</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/liminated-non-display-of-shorts-videos-for-2024/"><u>[New] Eliminated  Non-Display of Shorts Videos for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/approved-thriving-in-the-world-of-youtube-broadcasting-master-class/"><u>2024 Approved  Thriving in the World of YouTube Broadcasting  Master Class</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-leading-7-video-streaming-apps-to-enhance-your-youtube-mobile-experience-for-2024/"><u>[Updated] Leading 7 Video Streaming Apps to Enhance Your YouTube Mobile Experience for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/-filmmakers-online-youtube-tutorials-for-growth/"><u>Indie Filmmakers Online  YouTube Tutorials for Growth</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-the-filmmakers-toolkit-essential-tips-for-youtube-creators-with-smartphones-for-2024/"><u>[Updated] The Filmmaker's Toolkit  Essential Tips for YouTube Creators with Smartphones for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/approved-become-the-brand-you-want-with-our-exclusive-set-of-free-graphics/"><u>2024 Approved  Become the Brand You Want With Our Exclusive Set of FREE Graphics!</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-beginners-pathway-start-your-sports-youtube-chain-on-macos-for-2024/"><u>[Updated] Beginner's Pathway  Start Your Sports YouTube Chain on macOS for 2024</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/updated-2024-approved-camera-troubles-no-more-with-obs/"><u>[Updated] 2024 Approved  Camera Troubles No More with OBS</u></a></li>
+<li><a href="https://sound-optimizing.techidaily.com/updated-2024-approved-the-essential-collection-selecting-from-6-superior-automatic-transcribers/"><u>Updated 2024 Approved The Essential Collection Selecting From 6 Superior Automatic Transcribers</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/updated-weaving-a-story-in-your-tiktok-closing-moment-for-2024/"><u>[Updated] Weaving a Story in Your TikTok Closing Moment for 2024</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/in-2024-avoiding-obscured-games-fixes-for-obs-black-screen-issues/"><u>In 2024, Avoiding Obscured Games  Fixes for OBS Black Screen Issues</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/mastering-iphones-ringtone-personalization-for-2024/"><u>Mastering iPhone's Ringtone Personalization for 2024</u></a></li>
+<li><a href="https://ai-video-tools.techidaily.com/new-top-10-free-image-resources-for-2024/"><u>New Top 10 Free Image Resources for 2024</u></a></li>
+<li><a href="https://ai-video-translation.techidaily.com/new-best-10-hindi-video-translators-with-step-by-step-guidance-for-2024/"><u>New Best 10 Hindi Video Translators with Step-by-Step Guidance for 2024</u></a></li>
+<li><a href="https://ai-video-apps.techidaily.com/updated-2024-approved-unlock-the-power-of-slow-mo-a-step-by-step-kapwing-guide/"><u>Updated 2024 Approved Unlock the Power of Slow Mo A Step-by-Step Kapwing Guide</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/full-guide-to-bypass-realme-gt-5-pro-frp-by-drfone-android/"><u>Full Guide to Bypass Realme GT 5 Pro FRP</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/in-2024-farmers-hangout-top-10-friendly-agricultural-games-to-bond-with-friends/"><u>In 2024, Farmers' Hangout  Top 10 Friendly Agricultural Games to Bond With Friends</u></a></li>
+</ul></div>

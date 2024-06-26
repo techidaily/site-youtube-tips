@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Illuminating Ideas  The Basics of Video Setup\""
-date: 2024-06-24 14:24:56
-updated: 2024-06-26 10:28:49
+date: 2024-06-25T18:01:35.511Z
+updated: 2024-06-26T18:01:35.511Z
 tags:
   - ai video
   - ai youtube
@@ -16,9 +16,7 @@ thumbnail: https://thmb.techidaily.com/0f7cc598462e00e671398d3de2bdb7c71a59af5f2
 
 ## Illuminating Ideas: The Basics of Video Setup
 
-# Lighting Tips for Vlogging: How to Light
-
-![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+# Lighting Tips for Vlogging: How to Light ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
 
@@ -28,9 +26,7 @@ One of the best things you can do for your video quality is to ensure you have g
 
 Going outside and using natural light is the cheapest way to get a lot of light for your videos. If your vlog is not suited to the great outdoors then you need to get more strategic. You can turn on all the lights in your living room and still end up with a dark, grainy, video.
 
-## Video Lighting Basics: Three Point Lighting
-
-![ Lighting for YouTube Video](https://images.wondershare.com/filmora/article-images/three-point-lighting.jpg)
+## Video Lighting Basics: Three Point Lighting ![Lighting for YouTube Video](https://images.wondershare.com/filmora/article-images/three-point-lighting.jpg)
 
 The most common technique of lighting a scene is called **three-point lighting**. It involves three different sources of light in the shot and is used by portrait photographers, which is also a great method for lighting your vlog.
 
@@ -105,3 +101,23 @@ Follow @Richard Bennett
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-tips.techidaily.com/ed-integrating-moving-images-into-non-paid-content/"><u>[Updated] Integrating Moving Images Into Non-Paid Content</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/remier-choices-8-linux-editing-tools-for-2024/"><u>[New] Premier Choices  8 Linux Editing Tools for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/024-approved-transform-your-channels-image-a-pathway-to-more-subscribers-and-followers/"><u>[New] 2024 Approved  Transform Your Channels' Image  A Pathway to More Subscribers and Followers</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-the-mobile-way-to-youtube-fame-streamlined-channel-creation-process-for-2024/"><u>[Updated] The Mobile Way to YouTube Fame  Streamlined Channel Creation Process for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-the-differences-between-standard-and-premium-youtube-viewing/"><u>[Updated] The Differences Between Standard and Premium YouTube Viewing</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/024-approved-frame-by-frame-verbalizer/"><u>[New] 2024 Approved  Frame by Frame Verbalizer</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ver-inspirational-hiring-vids-1-10/"><u>Discover Inspirational Hiring Vids #1-10</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-maximizing-insights-with-twitter-archive-analysis-for-2024/"><u>[Updated] Maximizing Insights with Twitter Archive Analysis for 2024</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/2024-approved-tailoring-video-content-for-igtv-with-horizontal-footage/"><u>2024 Approved  Tailoring Video Content for IGTV with Horizontal Footage</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/new-in-2024-innovative-approaches-to-sims-4-video/"><u>[New] In 2024, Innovative Approaches to Sims 4 Video</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/ultimate-guide-to-get-the-meltan-box-pokemon-go-for-oneplus-nord-n30-5g-drfone-by-drfone-virtual-android/"><u>Ultimate guide to get the meltan box pokemon go For OnePlus Nord N30 5G | Dr.fone</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-2024-approved-unlocking-full-hd-magic-for-your-twitter-vidz/"><u>[Updated] 2024 Approved  Unlocking Full HD Magic for Your Twitter Vidz</u></a></li>
+<li><a href="https://smart-video-editing.techidaily.com/updated-video-editing-made-easy-for-kids-top-free-and-paid-apps-for-2024/"><u>Updated Video Editing Made Easy for Kids Top Free and Paid Apps for 2024</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-the-huawei-p10-a-deep-dive-into-its-artificial-intelligence-capabilities-for-2024/"><u>[Updated] The Huawei P10  A Deep Dive Into Its Artificial Intelligence Capabilities for 2024</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/top-audio-respeeders-fast-fix-for-pace-modification/"><u>Top Audio Respeeders  Fast-Fix for Pace Modification</u></a></li>
+<li><a href="https://ai-voice-clone.techidaily.com/updated-what-is-an-ai-text-generator-wondershare-virbo-glossary/"><u>Updated What Is an AI Text Generator? | Wondershare Virbo Glossary</u></a></li>
+</ul></div>

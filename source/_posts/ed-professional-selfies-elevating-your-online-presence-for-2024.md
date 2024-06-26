@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Professional Selfies  Elevating Your Online Presence for 2024\""
-date: 2024-06-21 10:21:11
-updated: 2024-06-24 10:53:56
+date: 2024-06-25T18:03:16.752Z
+updated: 2024-06-26T18:03:16.752Z
 tags:
   - ai video
   - ai youtube
@@ -16,9 +16,7 @@ thumbnail: https://thmb.techidaily.com/053654aac9195ea45d1f77852c408a3b2770cc6c8
 
 ## Professional Selfies: Elevating Your Online Presence
 
-# 4 Ways To Set Up Your Talking-Head Shots For YouTube
-
-![](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+# 4 Ways To Set Up Your Talking-Head Shots For YouTube ![](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
 
@@ -35,7 +33,7 @@ A big part of being a YouTuber involves talking to the camera. How you set up yo
 
 We’ve summarized the key points about setting up talking head style video shots with the Infographic below. It is welcomed to share on social media.
 
-![ Setting up Talking Heads Video Shots for YouTube](https://images.wondershare.com/filmora/article-images/talking-heads-youtube-video-shots-set-up.jpg)
+![Setting up Talking Heads Video Shots for YouTube](https://images.wondershare.com/filmora/article-images/talking-heads-youtube-video-shots-set-up.jpg)
 
 ## How to Set Up Your Talking-Head Shots for YouTube \[4 Ways\]
 
@@ -120,3 +118,26 @@ Follow @Richard Bennett
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-tips.techidaily.com/approved-maximizing-traffic-with-effective-youtube-titles/"><u>2024 Approved  Maximizing Traffic with Effective YouTube Titles</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-youtube-shorts-description-everything-you-should-know/"><u>[Updated] YouTube Shorts Description  Everything You Should Know</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-the-path-to-earning-through-youtube-a-creators-guide/"><u>[New] In 2024, The Path to Earning Through YouTube  A Creator's Guide</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/24-mastering-youtubes-video-editor-essential-tips-and-tricks/"><u>In 2024, Mastering YouTube's Video Editor  Essential Tips and Tricks</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/024-approved-unveiling-video-magic-mastering-your-youtube-studio/"><u>[New] 2024 Approved  Unveiling Video Magic  Mastering Your YouTube Studio</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-is-your-content-flourishing-consider-an-mcn-partnership-for-2024/"><u>[Updated] Is Your Content Flourishing? Consider an MCN Partnership for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-in-2024-the-ideal-youtube-vision-top-video-suggestions-to-energize-your-channel/"><u>[Updated] In 2024, The Ideal YouTube Vision  Top Video Suggestions to Energize Your Channel</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-navigating-through-non-displaying-thumbnails-on-your-shorts/"><u>[New] In 2024, Navigating Through Non-Displaying Thumbnails on Your Shorts</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-profile-pictures-download-for-free/"><u>[New] In 2024, Profile Pictures - Download for FREE</u></a></li>
+<li><a href="https://howto.techidaily.com/cellular-network-not-available-for-voice-calls-on-oneplus-ace-2-pro-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Cellular Network Not Available for Voice Calls On OnePlus Ace 2 Pro | Dr.fone</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/new-navigate-hdri-windows-powered-editing-wonders/"><u>[New] Navigate HDRI  Windows-Powered Editing Wonders</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/2024-approved-from-beauty-brows-to-perfect-portraits-crafting-your-cosmetic-chanel/"><u>2024 Approved  From Beauty Brows to Perfect Portraits  Crafting Your Cosmetic Chanel</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/2024-approved-the-virtual-voyage-navigating-through-immersive-entertainment/"><u>2024 Approved  The Virtual Voyage  Navigating Through Immersive Entertainment</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/new-exploring-the-financial-benefits-in-podcasting/"><u>[New] Exploring the Financial Benefits in Podcasting</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-sharing-tweets-via-vids-on-whatsapp-now-for-2024/"><u>[Updated] Sharing Tweets via Vids on WhatsApp Now for 2024</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/updated-in-2024-mastering-social-media-30-top-tier-tiktok-nicknames/"><u>[Updated] In 2024, Mastering Social Media  30 Top-Tier TikTok Nicknames</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/in-2024-diving-into-video-quality-dslr-vs-mirrorless-cameras/"><u>In 2024, Diving Into Video Quality  DSLR vs Mirrorless Cameras</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/new-2024-approved-anniversary-graphics-kit/"><u>[New] 2024 Approved  Anniversary Graphics Kit</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/navigating-free-art-online-a-guide-and-top-sites/"><u>Navigating Free Art Online  A Guide & Top Sites</u></a></li>
+</ul></div>

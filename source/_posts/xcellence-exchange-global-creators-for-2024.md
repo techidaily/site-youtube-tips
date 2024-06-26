@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Excellence Exchange  Global Creators for 2024\""
-date: 2024-06-25 23:53:52
-updated: 2024-06-26 10:52:13
+date: 2024-06-25T17:34:40.277Z
+updated: 2024-06-26T17:34:40.277Z
 tags:
   - ai video
   - ai youtube
@@ -16,9 +16,7 @@ thumbnail: https://thmb.techidaily.com/69ee34b64cf92db1f2232edf38c3580f65ba5a6c1
 
 ## Excellence Exchange: Global Creators
 
-# The YouTube Creator Summit - A Getaway for YouTube's Top Talent
-
-![](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+# The YouTube Creator Summit - A Getaway for YouTube's Top Talent ![](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
 
@@ -43,7 +41,7 @@ The Creator Summit is invite-only, and only 120 YouTubers attended including Gra
 
 ![YouTube Creator Summit Group Photo](https://images.wondershare.com/filmora/article-images/youtube-creator-summit-2017.jpg)
 
-_Will Smith was one of the speakers at the summit. Turns out_ [_he’s a big fan of Lilly Singh_](https://www.youtube.com/watch?v=AGlcsogbAQY)_._
+_Will Smith was one of the speakers at the summit. Turns out_ [_he’s a big fan of Lilly Singh_](https://www.youtube.com/watch?v=AGlcsogbAQY) _._
 
 Thanks to Nick from nickatnyte, for example, we have a pretty clear picture of the kinds of swag YouTube was giving away.
 
@@ -83,7 +81,7 @@ There were numerous custom pins available at different events at the summit. Asi
 
 A denim jacket with a play button on it was also in the box. The idea was that creators would collect pins and display them on their new jackets. At the end of the week, they would have a great souvenir reminding them of every event they attended at the summit.
 
-_![Denim jacket- 2017 YouTube Creator Summit](https://images.wondershare.com/filmora/article-images/youtube-creator-summit-denim-jacket.jpg)_
+_ ![Denim jacket- 2017 YouTube Creator Summit](https://images.wondershare.com/filmora/article-images/youtube-creator-summit-denim-jacket.jpg) _
 
 _Hannah Hart posted this photo from a river cruise she and other YouTubers went on while in New York for the summit._
 
@@ -116,3 +114,27 @@ Follow @Richard Bennett
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-tips.techidaily.com/10181219-new-see-it-all-your-free-selection-of-50-youtube-banners/"><u>[New] See It All - Your Free Selection of 50 YouTube Banners</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-multi-platform-mastery-delivering-content-to-youtube-and-others/"><u>[New] In 2024, Multi-Platform Mastery  Delivering Content to YouTube & Others</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-quick-steps-to-record-iphoneipad-screens-for-online-videos/"><u>[New] In 2024, Quick Steps to Record iPhone/iPad Screens for Online Videos</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-youtube-ad-revenue-how-much-do-youtubers-make-per-ad-in-2024/"><u>[Updated] YouTube Ad Revenue  How Much Do YouTubers Make Per Ad, In 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/024-approved-redefining-your-viewing-experience-youtube-playlist-shuffle/"><u>[New] 2024 Approved  Redefining Your Viewing Experience  YouTube Playlist Shuffle</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-photosculptor-kit/"><u>[Updated] PhotoSculptor Kit</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-mastering-youtube-shorts-a-guide-to-music-videos/"><u>[Updated] Mastering YouTube Shorts  A Guide to Music Videos</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-silencing-distractions-enhancing-youtube-videos/"><u>[Updated] Silencing Distractions  Enhancing YouTube Videos</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/be-banner-blueprints-a-gamers-design-handbook/"><u>YouTube Banner Blueprints  A Gamers' Design Handbook</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-youtube-shorts-earnings-guide-must-knows-and-future-potential/"><u>[New] In 2024, Youtube Shorts Earnings Guide  Must-Knows & Future Potential</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-decoding-instagrams-legal-framework-for-musicians-for-2024/"><u>[Updated] Decoding Instagram's Legal Framework for Musicians for 2024</u></a></li>
+<li><a href="https://video-ai-editor.techidaily.com/new-in-2024-premiere-rush-not-your-cup-of-tea-try-these-4-alternatives/"><u>New In 2024, Premiere Rush Not Your Cup of Tea? Try These 4 Alternatives</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/updated-elite-list-tiktoks-most-accurate-earning-analyzers-for-2024/"><u>[Updated] Elite List  TikTok's Most Accurate Earning Analyzers for 2024</u></a></li>
+<li><a href="https://ai-video-editing.techidaily.com/1713939555833-how-to-change-quicktime-player-speed-on-mac/"><u>How to Change Quicktime Player Speed on Mac?</u></a></li>
+<li><a href="https://howto.techidaily.com/9-solutions-to-fix-oppo-f25-pro-5g-system-crash-issue-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>9 Solutions to Fix Oppo F25 Pro 5G System Crash Issue | Dr.fone</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/a-new-take-on-favorite-movies-7-alternatives-for-2024/"><u>A New Take on Favorite Movies - #7 Alternatives for 2024</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/tripod-triumphs-unbeatable-stability-for-phones/"><u>Tripod Triumphs  Unbeatable Stability for Phones</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/new-youtubes-prime-stream-essential-tech-equipment-guide-for-creators/"><u>[New] YouTube's Prime Stream  Essential Tech, Equipment Guide for Creators</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/in-2024-full-guide-to-bypass-xiaomi-13-ultra-frp-by-drfone-android/"><u>In 2024, Full Guide to Bypass Xiaomi 13 Ultra FRP</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-life360-circle-everything-you-need-to-know-on-honor-v-purse-drfone-by-drfone-virtual-android/"><u>In 2024, Life360 Circle Everything You Need to Know On Honor V Purse | Dr.fone</u></a></li>
+</ul></div>

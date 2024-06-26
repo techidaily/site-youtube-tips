@@ -1,7 +1,7 @@
 ---
 title: "In 2024, Creating Engaging YouTube Openings & Closers for Free"
-date: 2024-06-22 16:18:10
-updated: 2024-06-25 11:16:40
+date: 2024-06-25T17:44:55.181Z
+updated: 2024-06-26T17:44:55.181Z
 tags:
   - ai video
   - ai youtube
@@ -16,9 +16,7 @@ thumbnail: https://thmb.techidaily.com/41ecffa399c4641eb478bbc9a56d686246cf56f42
 
 ## Creating Engaging YouTube Openings & Closers for Free
 
-# How to Create YouTube Intros & End Cards - Free and Easy
-
-![](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
+# How to Create YouTube Intros & End Cards - Free and Easy ![](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 ##### Shanoon Cox
 
@@ -50,7 +48,7 @@ When your intro video is longer than five seconds viewers are more likely to cli
 
 Whether it is better to put your intro at the very beginning of your video, or after you introduce your topic, will depend on your viewers. You may want to try it both ways and then look at your retention report (found in your YouTube Creator Studio under Analytics) to see which works best for you.
 
-#### [Top Intro Sites](https://tools.techidaily.com/wondershare/filmora/download/)
+#### Top Intro Sites
 
 There are a few different sites where you can download animated intros, customized to include your username or logo. Here are two of the best:
 
@@ -93,7 +91,7 @@ You should also have a subscribe link somewhere in your end card, ideally a very
 
 Some creators will leave their end cards at that and play music overtop, but it can be even more effective to include a voiceover where you ask viewers to subscribe and watch your other videos.
 
-#### [How To Make an End Card](https://tools.techidaily.com/wondershare/filmora/download/)
+#### How To Make an End Card
 
 1. Choose a static background. You may want to download an end card template or create one in a drawing program. If you do, make sure to include calls to action like ‘Watch more!’ and ‘Subscribe’.
 2. Drag your background into your timeline at the end of your video.
@@ -133,3 +131,27 @@ Follow @Shanoon Cox
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-tips.techidaily.com/24-amplify-video-impact-leading-trackers-for-youtube-ranks/"><u>In 2024, Amplify Video Impact  Leading Trackers for YouTube Ranks</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-seamless-integration-of-youtube-melodies-into-imovie/"><u>[Updated] Seamless Integration of YouTube Melodies Into iMovie</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-step-by-step-to-success-joining-youtubes-partner-program/"><u>[Updated] Step-by-Step to Success  Joining YouTube's Partner Program</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/rime-selections-convert-youtube-videos-quickly/"><u>[New] Prime Selections  Convert YouTube Videos Quickly</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-your-essential-guide-to-mobile-asmr-sounds-for-2024/"><u>[Updated] Your Essential Guide to Mobile ASMR Sounds for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-mastering-video-production-with-chroma-key-techniques/"><u>[Updated] Mastering Video Production with Chroma Key Techniques</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-mastering-slides-with-youtube-content/"><u>[Updated] Mastering Slides with YouTube Content</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-2024-approved-inspiration-boost-with-leading-hr-tapes/"><u>[Updated] 2024 Approved  Inspiration Boost with Leading HR Tapes</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/024-approved-strategic-steps-making-your-private-yt-videos-public-via-google/"><u>[New] 2024 Approved  Strategic Steps  Making Your Private YT Videos Public via Google</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ecome-a-youtube-earning-expert-universal-device-strategies-for-2024/"><u>[New] Become a YouTube Earning Expert  Universal Device Strategies for 2024</u></a></li>
+<li><a href="https://some-tips.techidaily.com/new-unveiling-virtual-excellence-top-5-upcoming-playstation-vr-titles/"><u>[New] Unveiling Virtual Excellence  Top 5 Upcoming PlayStation VR Titles</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/high-quality-footage-made-easy-top-10-phones-with-superior-stabilization-for-2024/"><u>High-Quality Footage Made Easy  Top 10 Phones With Superior Stabilization for 2024</u></a></li>
+<li><a href="https://smart-video-editing.techidaily.com/new-in-2024-10-leading-video-resizing-and-cropping-solutions/"><u>New In 2024, 10 Leading Video Resizing and Cropping Solutions</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/prime-methods-for-quiet-videography/"><u>Prime Methods for Quiet Videography</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/how-to-maximize-your-virtual-engagements-using-obs-and-zoom/"><u>How to Maximize Your Virtual Engagements Using OBS & Zoom</u></a></li>
+<li><a href="https://howto.techidaily.com/7-solutions-to-fix-error-code-963-on-google-play-of-oppo-find-n3-flip-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>7 Solutions to Fix Error Code 963 on Google Play Of Oppo Find N3 Flip | Dr.fone</u></a></li>
+<li><a href="https://audio-editing.techidaily.com/new-after-effects-guide-to-elevating-song-visualization/"><u>New After Effects Guide to Elevating Song Visualization</u></a></li>
+<li><a href="https://ai-video-tools.techidaily.com/new-2024-approved-create-fake-identities-best-free-face-generation-websites/"><u>New 2024 Approved Create Fake Identities Best Free Face Generation Websites</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/updated-2024-approved-syncing-your-presence-in-real-time-tiktoks/"><u>[Updated] 2024 Approved  Syncing Your Presence in Real-Time TikToks</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/new-2024-approved-transforming-tiktok-videos-with-creative-and-relevant-captions/"><u>[New] 2024 Approved  Transforming TikTok Videos with Creative and Relevant Captions</u></a></li>
+</ul></div>

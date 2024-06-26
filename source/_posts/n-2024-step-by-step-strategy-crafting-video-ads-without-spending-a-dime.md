@@ -1,7 +1,7 @@
 ---
 title: "\"[New] In 2024, Step-by-Step Strategy  Crafting Video Ads without Spending a Dime\""
-date: 2024-06-21 20:10:55
-updated: 2024-06-23 10:46:46
+date: 2024-06-25T18:22:16.964Z
+updated: 2024-06-26T18:22:16.964Z
 tags:
   - ai video
   - ai youtube
@@ -16,9 +16,7 @@ thumbnail: https://thmb.techidaily.com/576f1d2eb928b7a827d1ec734c216aef4f0582c10
 
 ## Step-by-Step Strategy: Crafting Video Ads without Spending a Dime
 
-# How to Create Video Ads for Free in YouTube Video Builder
-
-![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+# How to Create Video Ads for Free in YouTube Video Builder ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
 
@@ -84,53 +82,53 @@ Once you have access to the Beta version of **YouTube Video Builder**, you can s
 
 After signing in to your **YouTube Video Builder** account, on the main interface, click **Select Layout** from the navigation bar at the right if not already selected, pick a layout that best suits your needs, and click **Use Layout**.
 
-![ YouTube Video Builder ](https://images.wondershare.com/filmora/article-images/youtube-video-builder-select-layout.jpg)
+![YouTube Video Builder](https://images.wondershare.com/filmora/article-images/youtube-video-builder-select-layout.jpg)
 
 Next, from the **Color & Logo** section, choose the base (background) and text colors using their corresponding tools from under the **Brand colors** section.
 
-![Create video with YouTube Video Builder ](https://images.wondershare.com/filmora/article-images/youtube-video-builder-select-color-logo.jpg)
+![Create video with YouTube Video Builder](https://images.wondershare.com/filmora/article-images/youtube-video-builder-select-color-logo.jpg)
 
 After this, insert an image of your brand logo in the block under the **Logos** category.
 
-![Create video with YouTube Video Builder ](https://images.wondershare.com/filmora/article-images/youtube-video-builder-insert-brand-logo.jpg)
+![Create video with YouTube Video Builder](https://images.wondershare.com/filmora/article-images/youtube-video-builder-insert-brand-logo.jpg)
 
 #### Step 2: Add the Ingredients
 
 When you are on the **Images & Text** section of the navigation bar, pick the high-definition photos from the **Storyboard** at the bottom, and add them to the **Image 1**, **Image 2**, and **Image 3** boxes accordingly.
 
-![Create video with YouTube Video Builder ](https://images.wondershare.com/filmora/article-images/youtube-video-builder-insert-images-texts.jpg)
+![Create video with YouTube Video Builder](https://images.wondershare.com/filmora/article-images/youtube-video-builder-insert-images-texts.jpg)
 
 Now, scroll down to the **Text** section, and add the relevant content in the available text input fields. Make sure to add a compelling **Call to action** text to give the viewers a free passage to connect with you.
 
-![Create video with YouTube Video Builder with CTA ](https://images.wondershare.com/filmora/article-images/youtube-video-builder-call-to-action-texts.jpg)
+![Create video with YouTube Video Builder with CTA](https://images.wondershare.com/filmora/article-images/youtube-video-builder-call-to-action-texts.jpg)
 
 #### Step 3: Make Cosmetic Manipulations
 
 From the **Pick a Font** section of the navigation bar, click the **Google Fonts catalog** link to search for a unique font, and once found, type its name in the available field to use that font.
 
-![Create video with YouTube Video Builder - change font ](https://images.wondershare.com/filmora/article-images/youtube-video-builder-pickup-video-text-fonts.jpg)
+![Create video with YouTube Video Builder - change font](https://images.wondershare.com/filmora/article-images/youtube-video-builder-pickup-video-text-fonts.jpg)
 
 Alternatively, you can leave the default one selected. When on the **Select Music** section, choose your preferred background music from the drop-down list that is present under the section.
 
-![Create video with YouTube Video Builder with music ](https://images.wondershare.com/filmora/article-images/youtube-video-builder-select-music-for-video.jpg)
+![Create video with YouTube Video Builder with music](https://images.wondershare.com/filmora/article-images/youtube-video-builder-select-music-for-video.jpg)
 
 Finally, click **Create video**, and wait while **YouTube Video Builder** takes you to the **Preview, Save, Share** section, and generates your video.
 
-![ YouTube Video Builder Video create video  ](https://images.wondershare.com/filmora/article-images/youtube-video-builder-create-video.jpg)
+![YouTube Video Builder Video create video](https://images.wondershare.com/filmora/article-images/youtube-video-builder-create-video.jpg)
 
 #### Step 4: Save the Video and Begin Promotion
 
 After the video is generated, play to preview the film. If everything looks good, click **Save video**.
 
-![ YouTube Video Builder Video Preview and Save  ](https://images.wondershare.com/filmora/article-images/youtube-video-builder-save-preview-video.jpg)
+![YouTube Video Builder Video Preview and Save](https://images.wondershare.com/filmora/article-images/youtube-video-builder-save-preview-video.jpg)
 
 On the next page, click **Copy** to copy the video link, and share it with your friends, colleagues, and family members for their feedback.
 
-![ YouTube Video Builder Video Copy Link  ](https://images.wondershare.com/filmora/article-images/youtube-video-builder-copy-link.jpg)
+![YouTube Video Builder Video Copy Link](https://images.wondershare.com/filmora/article-images/youtube-video-builder-copy-link.jpg)
 
 Next, scroll down to get to the **Create Campaign** section of the navigation bar, and from the left screen, click **Create campaign** to begin a campaign to promote your brand and/or product(s).
 
-![ YouTube Video Builder Video Create Campaign ](https://images.wondershare.com/filmora/article-images/youtube-video-builder-create-campaign.jpg)
+![YouTube Video Builder Video Create Campaign](https://images.wondershare.com/filmora/article-images/youtube-video-builder-create-campaign.jpg)
 
 #### Part 5: Tips for Making Good Video Ads with YouTube Video Builder
 
@@ -171,3 +169,26 @@ Follow @Richard Bennett
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-mastering-the-art-of-gamers-intros-top-12-yt-videographers-lists/"><u>[New] In 2024, Mastering the Art of Gamers' Intros  Top 12 YT Videographers' Lists</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-in-2024-brief-basslines-video-music-mosaics/"><u>[Updated] In 2024, Brief Basslines  Video Music Mosaics</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/024-approved-unleashing-inspiration-ideas-for-engaging-channels/"><u>[New] 2024 Approved  Unleashing Inspiration  Ideas for Engaging Channels</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-micro-movie-maker/"><u>[Updated] Micro Movie Maker</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-the-dynamics-behind-t-series-profit-on-youtube/"><u>[Updated] The Dynamics Behind T-Series' Profit on YouTube</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-wanderlust-wonders-crafting-engaging-travel-content-for-your-audience-for-2024/"><u>[Updated] Wanderlust Wonders  Crafting Engaging Travel Content for Your Audience for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/10181219-new-see-it-all-your-free-selection-of-50-youtube-banners/"><u>[New] See It All - Your Free Selection of 50 YouTube Banners</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/24-essential-templates-and-makers-insights-for-end-credits/"><u>In 2024, Essential Templates & Makers' Insights for End Credits</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/eading-10-sound-intensification-apps-for-multiple-systems-for-2024/"><u>[New] Leading 10 Sound Intensification Apps for Multiple Systems for 2024</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/7-ways-to-unlock-a-locked-samsung-galaxy-s24plus-phone-by-drfone-android/"><u>7 Ways to Unlock a Locked Samsung Galaxy S24+ Phone</u></a></li>
+<li><a href="https://location-fake.techidaily.com/5-easy-ways-to-change-location-on-youtube-tv-on-asus-rog-phone-8-pro-drfone-by-drfone-virtual-android/"><u>5 Easy Ways to Change Location on YouTube TV On Asus ROG Phone 8 Pro | Dr.fone</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/2024-approved-create-viral-tiktok-content-step-by-step-templates-guide/"><u>2024 Approved  Create Viral TikTok Content  Step-by-Step Templates Guide</u></a></li>
+<li><a href="https://howto.techidaily.com/proven-ways-to-fix-there-was-a-problem-parsing-the-package-on-samsung-galaxy-m54-5g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Proven Ways to Fix There Was A Problem Parsing the Package on Samsung Galaxy M54 5G | Dr.fone</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/updated-best-of-both-worlds-free-paid-film-apps-for-iphones/"><u>[Updated] Best of Both Worlds  Free, Paid Film Apps for iPhones</u></a></li>
+<li><a href="https://audio-shaping.techidaily.com/augment-audio-volume-in-cinematic-viewing-for-2024/"><u>Augment Audio Volume in Cinematic Viewing for 2024</u></a></li>
+<li><a href="https://sound-tweaking.techidaily.com/trimming-sound-out-of-mp4-videos-for-editing-purposes-for-2024/"><u>Trimming Sound Out of MP4 Videos for Editing Purposes for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-exclusive-fb-picturevid-producer-no-fee/"><u>[New] Exclusive FB Picture/Vid Producer - No Fee</u></a></li>
+<li><a href="https://extra-information.techidaily.com/updated-comprehensive-handbook-for-proficient-periscope-use/"><u>[Updated] Comprehensive Handbook for Proficient Periscope Use</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/new-elevate-your-videography-insights-on-youtube-studio-editor/"><u>[New] Elevate Your Videography  Insights on YouTube Studio Editor</u></a></li>
+</ul></div>

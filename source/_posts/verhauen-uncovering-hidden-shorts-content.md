@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Overhauen  Uncovering Hidden Shorts Content\""
-date: 2024-06-22 17:21:42
-updated: 2024-06-23 12:35:45
+date: 2024-06-25T17:53:27.044Z
+updated: 2024-06-26T17:53:27.044Z
 tags:
   - ai video
   - ai youtube
@@ -143,9 +143,7 @@ You can choose an aspect ratio that best fits YouTube Shorts which is **9:16**.
 
 You can choose among three ways to open the Auto Reframe feature in Filmora.
 
-      * **Way 1:** Once you open Filmora, the main interface will display the **Auto Reframe** tab on the right-hand panel. Click it to open directly
-
-![filmora](https://images.wondershare.com/filmora/guide/1-auto-reframe-option.jpg)
+      * **Way 1:** Once you open Filmora, the main interface will display the **Auto Reframe** tab on the right-hand panel. Click it to open directly ![filmora](https://images.wondershare.com/filmora/guide/1-auto-reframe-option.jpg)
 
 * **Way 2:** Import media as **File** \> **Import Media Files** and select the file. After you import the media, right-click and choose the **Auto Reframe**.
 
@@ -246,3 +244,24 @@ Follow @Liza Brown
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-tips.techidaily.com/l-lens-local-tales-how-to-transform-your-travel-experiences-into-content-for-2024/"><u>Global Lens, Local Tales  How to Transform Your Travel Experiences Into Content for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/tability-essentials-for-online-videography/"><u>[New] Stability Essentials for Online Videography</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-pinnacle-group-of-multimedia-harmony-makers-for-2024/"><u>[Updated] Pinnacle Group of Multimedia Harmony Makers for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-prime-cinematic-creator-a-symphony-of-sights-and-sounds/"><u>[Updated] Prime Cinematic Creator  A Symphony of Sights & Sounds</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-2024-approved-reach-new-heights-in-youtube-seo-top-tips-and-tricks/"><u>[Updated] 2024 Approved  Reach New Heights in YouTube SEO  Top Tips and Tricks</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-pioneering-the-perfect-playlist-for-youtube-music-enthusiasts/"><u>[Updated] Pioneering the Perfect Playlist for YouTube Music Enthusiasts</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/est-wedding-stories-online-youtube-plus-vimeos-selection-8-for-2024/"><u>The Best Wedding Stories Online  YouTube + Vimeo's Selection (8) for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/phone-hacks-seamless-video-repetition/"><u>[New] IPhone Hacks  Seamless Video Repetition</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-best-video-maker-with-music-and-pictures-for-2024/"><u>[Updated] Best Video Maker with Music and Pictures for 2024</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/updated-in-2024-ultimate-video-capture-toolkit/"><u>[Updated] In 2024, Ultimate Video Capture Toolkit</u></a></li>
+<li><a href="https://article-posts.techidaily.com/unrestricted-media-playback-free-on-windows-and-macos/"><u>Unrestricted Media Playback  FREE on Windows & MacOS</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/unlocking-apple-iphone-15-pro-max-lock-screen-3-foolproof-methods-that-actually-work-drfone-by-drfone-ios/"><u>Unlocking Apple iPhone 15 Pro Max Lock Screen 3 Foolproof Methods that Actually Work | Dr.fone</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/2024-approved-secure-your-memories-long-term-webcam-video-storage-in-vlc/"><u>2024 Approved  Secure Your Memories  Long-Term Webcam Video Storage in VLC</u></a></li>
+<li><a href="https://review-topics.techidaily.com/how-to-transfer-whatsapp-from-iphone-13-pro-max-to-other-iphone-11-devices-drfone-by-drfone-transfer-whatsapp-from-ios-transfer-whatsapp-from-ios/"><u>How To Transfer WhatsApp From iPhone 13 Pro Max to other iPhone 11 devices? | Dr.fone</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/exploring-samsungs-ue590-4k-gamer-monitor-for-2024/"><u>Exploring Samsung's UE590 4K Gamer Monitor for 2024</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-how-to-make-a-video-on-mac-that-best-fits-snapchat-size-for-2024/"><u>[New] How to Make a Video on Mac that Best Fits Snapchat Size for 2024</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/gently-lower-sound-amplitude-tutorial/"><u>Gently Lower Sound Amplitude Tutorial</u></a></li>
+</ul></div>

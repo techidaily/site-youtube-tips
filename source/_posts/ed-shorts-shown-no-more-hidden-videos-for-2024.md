@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Shorts Shown – No More Hidden Videos for 2024"
-date: 2024-06-16 12:28:36
-updated: 2024-06-18 11:39:15
+date: 2024-06-25T17:19:29.067Z
+updated: 2024-06-26T17:19:29.067Z
 tags:
   - ai video
   - ai youtube
@@ -143,9 +143,7 @@ You can choose an aspect ratio that best fits YouTube Shorts which is **9:16**.
 
 You can choose among three ways to open the Auto Reframe feature in Filmora.
 
-      * **Way 1:** Once you open Filmora, the main interface will display the **Auto Reframe** tab on the right-hand panel. Click it to open directly
-
-![filmora](https://images.wondershare.com/filmora/guide/1-auto-reframe-option.jpg)
+      * **Way 1:** Once you open Filmora, the main interface will display the **Auto Reframe** tab on the right-hand panel. Click it to open directly ![filmora](https://images.wondershare.com/filmora/guide/1-auto-reframe-option.jpg)
 
 * **Way 2:** Import media as **File** \> **Import Media Files** and select the file. After you import the media, right-click and choose the **Auto Reframe**.
 
@@ -246,3 +244,27 @@ Follow @Liza Brown
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-tips.techidaily.com/024-approved-exploring-the-finest-wedding-cinematography-youtube-and-vimeos-selection/"><u>[New] 2024 Approved  Exploring the Finest Wedding Cinematography - Youtube & Vimeo's Selection</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-inexpensive-gear-mics-for-content-creators-on-a-dime-for-2024/"><u>[Updated] Inexpensive Gear  Mics for Content Creators on a Dime for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ary-comrades-youtubes-best-food-blogs-for-2024/"><u>Culinary Comrades  YouTube's Best Food Blogs for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ring-the-art-of-attracting-more-youtube-viewers-for-2024/"><u>Mastering the Art of Attracting More YouTube Viewers for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/rom-script-to-screenplay-expert-video-editing-insights/"><u>[New] From Script to Screenplay  Expert Video Editing Insights</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-composing-correspondents-curtains/"><u>[New] In 2024, Composing Correspondents' Curtains</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-in-2024-dive-into-youtubes-best-practices-for-playlist-design/"><u>[Updated] In 2024, Dive Into Youtube's Best Practices for Playlist Design</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-permanent-deactivation-the-ultimate-guide-to-youtube-shorts/"><u>[New] In 2024, Permanent Deactivation  The Ultimate Guide to YouTube Shorts</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/approved-mastering-youtubes-short-form-content-key-tips-revealed/"><u>2024 Approved  Mastering YouTube's Short-Form Content  Key Tips Revealed</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/approved-mastering-youtube-views-secrets-for-a-million-followers/"><u>2024 Approved  Mastering Youtube Views  Secrets for a Million Followers</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/in-2024-pioneering-video-design-on-a-shoestring-exclusive-tutorials-for-free-from-top-4-youtube-vfx-channels/"><u>In 2024, Pioneering Video Design on a Shoestring  Exclusive Tutorials for Free From Top 4 YouTube VFX Channels</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/unleash-potential-the-best-instagram-hashtags-of-the-day/"><u>Unleash Potential  The Best Instagram Hashtags of the Day</u></a></li>
+<li><a href="https://video-content-creator.techidaily.com/updated-2024-approved-adding-oomph-to-your-videos-a-tutorial-on-finding-and-using-free-sound-effects-in-final-cut-pro/"><u>Updated 2024 Approved Adding Oomph to Your Videos A Tutorial on Finding and Using Free Sound Effects in Final Cut Pro</u></a></li>
+<li><a href="https://android-location.techidaily.com/easy-ways-to-manage-your-samsung-galaxy-s24-ultra-location-settings-drfone-by-drfone-virtual/"><u>Easy Ways to Manage Your Samsung Galaxy S24 Ultra Location Settings | Dr.fone</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/in-2024-stream-your-audiovid-creations-here/"><u>In 2024, Stream Your AudioVid Creations Here</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/2024-approved-todays-drones-tomorrows-landscapes-an-overview/"><u>2024 Approved  Today’s Drones, Tomorrow's Landscapes  An Overview</u></a></li>
+<li><a href="https://extra-support.techidaily.com/in-2024-leading-camera-innovations-revealed-future-edition/"><u>In 2024, Leading Camera Innovations Revealed - Future Edition</u></a></li>
+<li><a href="https://howto.techidaily.com/why-does-my-tecno-camon-20-premier-5g-keep-turning-off-by-itself-6-fixes-are-here-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Why Does My Tecno Camon 20 Premier 5G Keep Turning Off By Itself? 6 Fixes Are Here | Dr.fone</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/in-2024-best-practices-sourcing-background-beats-for-boxings/"><u>In 2024, Best Practices  Sourcing Background Beats for Boxings</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/new-in-2024-record-and-relive-iphoneandroid-google-meet-sessions/"><u>[New] In 2024, Record and Relive  IPhone/Android Google Meet Sessions</u></a></li>
+</ul></div>

@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] In 2024, From Speech to Text  A Complete, FREE Workshop on YouTube Transcription\""
-date: 2024-06-22 13:59:46
-updated: 2024-06-23 12:35:25
+date: 2024-06-25T18:20:26.709Z
+updated: 2024-06-26T18:20:26.709Z
 tags:
   - ai video
   - ai youtube
@@ -16,9 +16,7 @@ thumbnail: https://thmb.techidaily.com/07b2aab86c7b38cc417b46120335b85009ee66f18
 
 ## From Speech to Text: A Complete, FREE Workshop on YouTube Transcription
 
-# How to Transcribe a YouTube Video for FREE
-
-![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+# How to Transcribe a YouTube Video for FREE ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
 
@@ -192,9 +190,7 @@ If you made any modifications to the transcript that was automatically generated
 * Expand the **Languages** column of the target video
 * Click the **Options** icon that appears under the **Subtitles** column when you hover mouse on to it
 * Click **Edit on Classic Studio**
-* On the next page, click **Edit** from the top-right corner
-
-![Edit YouTube subtitles](https://images.wondershare.com/filmora/article-images/edit-automatic-youtube-video-transcription.jpg)
+* On the next page, click **Edit** from the top-right corner ![Edit YouTube subtitles](https://images.wondershare.com/filmora/article-images/edit-automatic-youtube-video-transcription.jpg)
 
 * Click to open the **Actions** drop-down list from the upper-left corner
 * Click **Upload a file**
@@ -228,3 +224,27 @@ Follow @Richard Bennett
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-tips.techidaily.com/ed-beyond-audience-counting-the-intricacies-of-youtubes-metrics/"><u>[Updated] Beyond Audience Counting  The Intricacies of YouTube’s Metrics</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-youtube-editing-tips-and-tricks-for-shorter-videos-for-2024/"><u>[Updated] YouTube Editing  Tips and Tricks for Shorter Videos for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/24-saving-parts-of-youtube-a-comprehensive-tutorial/"><u>In 2024, Saving Parts of YouTube  A Comprehensive Tutorial</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-2024-approved-elevate-video-reach-with-peak-watch-hours/"><u>[Updated] 2024 Approved  Elevate Video Reach with Peak Watch Hours</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/raphic-inquiry-unraveling-the-stats-of-yt-2017/"><u>Infographic Inquiry! Unraveling the Stats of YT (2017)</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ing-views-through-imaginative-video-thumbnails/"><u>Boosting Views Through Imaginative Video Thumbnails</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/approved-beef-up-your-cgi-with-these-8-online-repositories-of-free-green-screens-and-clips/"><u>2024 Approved  Beef up Your CGI with These 8 Online Repositories of FREE Green Screens and Clips</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-premier-video-breakdown-fifa-analysis-graphs/"><u>[New] In 2024, Premier Video Breakdown  FIFA Analysis Graphs</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/reedom-of-filmmaking-top-android-video-editing-apps-for-2024/"><u>The Freedom of Filmmaking  Top Android Video Editing Apps for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-2024-approved-whats-in-your-wallet-from-one-million-youtube-sights/"><u>[Updated] 2024 Approved  What's In Your Wallet From One Million YouTube Sights?</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-leveraging-social-media-tactics-more-insta-vids-watched-for-2024/"><u>[Updated] Leveraging Social Media Tactics  More Insta Vids Watched for 2024</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/finding-the-highlighted-online-discourse/"><u>Finding the Highlighted Online Discourse</u></a></li>
+<li><a href="https://ai-voice-clone.techidaily.com/a-comprehensive-list-of-the-top-spongebob-voice-generators-for-2024/"><u>A Comprehensive List of The Top SpongeBob Voice Generators for 2024</u></a></li>
+<li><a href="https://ai-video-editing.techidaily.com/updated-split-a-video-in-the-lightworks-step-by-step-for-2024/"><u>Updated Split a Video in the Lightworks Step by Step for 2024</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/in-2024-becoming-a-viral-icon-instagrams-secrets-revealed/"><u>In 2024, Becoming a Viral Icon  Instagram's Secrets Revealed</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/updated-2024-approved-secrets-of-streaming-sound-record-and-preserve/"><u>[Updated] 2024 Approved  Secrets of Streaming Sound  Record and Preserve</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/024-approved-enhance-engagement-select-best-fonts-for-your-thumbnails/"><u>[New] 2024 Approved  Enhance Engagement  Select Best Fonts for Your Thumbnails</u></a></li>
+<li><a href="https://voice-adjusting.techidaily.com/updated-2024-approved-professional-mp3-modification-system-for-the-web/"><u>Updated 2024 Approved Professional MP3 Modification System for the Web</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/iphone-image-transfer-methods-explained-for-2024/"><u>IPhone Image Transfer Methods Explained for 2024</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/updated-in-2024-apowersofts-free-recording-a-comprehensive-analysis/"><u>[Updated] In 2024, Apowersoft's Free Recording  A Comprehensive Analysis</u></a></li>
+</ul></div>

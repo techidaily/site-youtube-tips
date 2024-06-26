@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] YouTube Comment Management  Turn It On or Off for 2024\""
-date: 2024-06-21 18:22:51
-updated: 2024-06-22 10:37:58
+date: 2024-06-25T18:29:14.142Z
+updated: 2024-06-26T18:29:14.142Z
 tags:
   - ai video
   - ai youtube
@@ -16,9 +16,7 @@ thumbnail: https://thmb.techidaily.com/59bb6881bb451ab6f15e5a33afa6f776cb1ec0282
 
 ## YouTube Comment Management: Turn It On or Off
 
-# How to Turn on or off Comments on YouTube
-
-![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
+# How to Turn on or off Comments on YouTube ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
 
 ##### Liza Brown
 
@@ -38,13 +36,13 @@ If you don’t want any comments on any of the videos that you publish, you must
 
 Use your favorite web browser to go to YouTube and sign in to your Google account. Click your profile picture from the top-right corner of the webpage, and click **YouTube Studio** from the menu that appears.
 
-![ Find YouTube Studio options](https://images.wondershare.com/filmora/article-images/find-youtube-studio-option.jpg)
+![Find YouTube Studio options](https://images.wondershare.com/filmora/article-images/find-youtube-studio-option.jpg)
 
 #### Step 2: Go to Channel’s Advanced Settings
 
 From the bottom of the left pane, click the **Settings** icon, click **Channel** from the **Settings** box that comes up next, and go to **Advanced settings** from the right window.
 
-![  YouTube Channel Advanced Settings](https://images.wondershare.com/filmora/article-images/youtube-channel-advanced-settings.jpg)
+![YouTube Channel Advanced Settings](https://images.wondershare.com/filmora/article-images/youtube-channel-advanced-settings.jpg)
 
 #### Step 3: Turn Off Comments
 
@@ -56,19 +54,19 @@ To turn on comments on **all the videos on your YouTube channel**, you can follo
 
 Use the method explained above to get to the channel’s **Advanced settings** box. Select the **No, set this channel as not made for kids. I never upload content that’s made for kids** radio button. Click **SAVE** to save the changes.
 
-![  Turn on YouTube Channel Comments](https://images.wondershare.com/filmora/article-images/turn-on-channel-comments-advanced-settings.jpg)
+![Turn on YouTube Channel Comments](https://images.wondershare.com/filmora/article-images/turn-on-channel-comments-advanced-settings.jpg)
 
 #### 2\. Define Acceptable Comment Types
 
 Click the **Settings** icon from the bottom of the left pane one more time. On the **Settings** box, go to the **Upload defaults** category from the left pane, and go to **Advanced settings** from the right. From the **Comment visibility** drop-down list under the **Comments** section in the right, choose your preferred comment allowance type, and click **SAVE** to allow the comments on the videos the channel has.
 
-![ Set up YouTube video  Comments visibility](https://images.wondershare.com/filmora/article-images/set-up-youtube-comments-visibilities.jpg)
+![Set up YouTube video  Comments visibility](https://images.wondershare.com/filmora/article-images/set-up-youtube-comments-visibilities.jpg)
 
 #### 3\. Set Comment Allowance for Videos
 
 Back on the **YouTube Studio** page, click **Content** from the left pane. From the right section, check the **Video** box at the top of the list to select all the videos the channel has. Click **Edit** from the column header, and click **Comments** from the menu that comes up. From the **New value** drop-down list, choose your preferred allowance option for the comments, click **UPDATE VIDEOS** from the upper-right area, check the **I understand the implications of this action** box, and click **UPDATE VIDEOS** to allow comments on all the videos of the channel.
 
-![ Turn on or off YouTube content commnets settings](https://images.wondershare.com/filmora/article-images/turn-on-off-channel-content-comments-settings.jpg)
+![Turn on or off YouTube content commnets settings](https://images.wondershare.com/filmora/article-images/turn-on-off-channel-content-comments-settings.jpg)
 
 #### **Additional Info about Comments Options**
 
@@ -108,7 +106,7 @@ Hover the mouse over the target video in the right window, and click the **Detai
 
 From under the **Audience** section in the right window of the **Video details** page, select the **No, it’s not made for kids** radio button. Next, click **SHOW MORE**, scroll down to the **Comments and ratings** section, and choose your preferred privacy option from the **Comment visibility** drop-down list. Click **SAVE** from the upper-right area to save the changes.
 
-![ Turn on or turn off comments for specific youtube video](https://images.wondershare.com/filmora/article-images/turn-on-off-comments-for-specific-youtube-video.jpg)
+![Turn on or turn off comments for specific youtube video](https://images.wondershare.com/filmora/article-images/turn-on-off-comments-for-specific-youtube-video.jpg)
 
 **Note:** To learn **how to disable comments on YouTube** for specific video, you can repeat the above steps, and choose the **Yes, it’s made for kids** radio button from the **Audience** section when you are on the **Video details** page.
 
@@ -126,7 +124,7 @@ At the time of this writing, YouTube doesn’t allow anyone to post a comment on
 
 You can go to **YouTube Studio** \> **Settings** \> **Community**, and on the **Automated Filters** tab in the right window, add the words to block in the **Blocked words** field. You can add multiple words by separating them with commas. To block the comments with links, check the **Block links** box. Click **SAVE** to save the changes.
 
-![ Block YouTube   commnets ](https://images.wondershare.com/filmora/article-images/block-users-youtube-comment.jpg)
+![Block YouTube   commnets](https://images.wondershare.com/filmora/article-images/block-users-youtube-comment.jpg)
 
 #### 4\. If I turn comments off and back on again, will the old comments come back?
 
@@ -163,3 +161,27 @@ Follow @Liza Brown
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-tips.techidaily.com/ing-confidence-against-youtube-critiques-for-2024/"><u>Building Confidence Against YouTube Critiques for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ring-top-notch-audio-without-microphone-dependency-for-2024/"><u>Capturing Top-Notch Audio Without Microphone Dependency for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/024-approved-kids-earning-big-the-success-story-of-young-ryan-kaji/"><u>[New] 2024 Approved  Kids Earning Big  The Success Story of Young Ryan Kaji</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-unlock-your-videos-potential-with-these-7-audio-treasures/"><u>[New] In 2024, Unlock Your Video's Potential with These 7 Audio Treasures</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/urn-your-videos-into-a-revenue-stream-with-these-tips/"><u>[New] Turn Your Videos Into a Revenue Stream with These Tips</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-audio-matters-ensuring-excellent-sound-in-your-youtube-shots/"><u>[Updated] Audio Matters  Ensuring Excellent Sound in Your YouTube Shots</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/024-approved-streamline-your-songs-with-youtube-playlist-formats/"><u>[New] 2024 Approved  Streamline Your Songs with YouTube Playlist Formats</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-in-2024-stealthy-ios-youtube-bgm-sessions/"><u>[Updated] In 2024, Stealthy iOS  YouTube BGM Sessions</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/plicated-process-how-to-swiftly-eliminate-youtube-comments/"><u>Uncomplicated Process  How to Swiftly Eliminate YouTube Comments</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-gamings-finest-top-10-gpu-picks-for-clear-online-broadcasts-for-2024/"><u>[Updated] Gaming's Finest Top 10 GPU Picks for Clear Online Broadcasts for 2024</u></a></li>
+<li><a href="https://techidaily.com/how-do-i-reset-my-nubia-red-magic-9-pro-phone-without-technical-knowledge-drfone-by-drfone-reset-android-reset-android/"><u>How do I reset my Nubia Red Magic 9 Pro Phone without technical knowledge? | Dr.fone</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/2024-approved-capture-your-music-5-pro-tips-for-streaming-sound-online/"><u>2024 Approved  Capture Your Music  5 Pro Tips for Streaming Sound Online</u></a></li>
+<li><a href="https://audio-shaping.techidaily.com/new-5-best-online-mp3-tag-editor-websites-that-you-cant-miss/"><u>New 5 Best Online MP3 Tag Editor Websites That You Cant Miss</u></a></li>
+<li><a href="https://sound-tweaking.techidaily.com/new-strategies-for-transforming-audacity-recordings-into-mp3-files/"><u>New Strategies for Transforming Audacity Recordings Into MP3 Files</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/in-2024-complete-guide-for-apple-iphone-13-pro-lock-screen-drfone-by-drfone-ios/"><u>In 2024, Complete Guide For Apple iPhone 13 Pro Lock Screen | Dr.fone</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/new-premium-picks-a-list-of-must-play-google-cardboard-vr-games/"><u>[New] Premium Picks  A List of Must-Play Google Cardboard VR Games</u></a></li>
+<li><a href="https://audio-editing.techidaily.com/top-ranked-ringtones-to-enhance-your-call-experience-for-2024/"><u>Top-Ranked Ringtones to Enhance Your Call Experience for 2024</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/updated-2024-approved-filmmaking-mastery-youtube-trailer-design-with-filmora/"><u>[Updated] 2024 Approved  Filmmaking Mastery  YouTube Trailer Design with Filmora</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-2024-approved-expert-tips-for-converting-your-favorite-videos-into-animated-shareable-gifs/"><u>[Updated] 2024 Approved  Expert Tips for Converting Your Favorite Videos Into Animated, Shareable GIFs</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/new-expert-screenshot-software-win/"><u>[New] Expert Screenshot Software (Win)</u></a></li>
+</ul></div>

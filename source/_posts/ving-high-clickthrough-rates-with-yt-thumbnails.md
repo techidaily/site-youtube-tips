@@ -1,7 +1,7 @@
 ---
 title: "Achieving High Clickthrough Rates with YT Thumbnails"
-date: 2024-06-24 16:12:55
-updated: 2024-06-26 10:28:58
+date: 2024-06-25T18:08:20.981Z
+updated: 2024-06-26T18:08:20.981Z
 tags:
   - ai video
   - ai youtube
@@ -16,9 +16,7 @@ thumbnail: https://thmb.techidaily.com/6c0361031673718dd65b08f3b6f24eb590de40f0c
 
 ## Achieving High Clickthrough Rates with YT Thumbnails
 
-# Best YouTube Thumbnail Size: How to Make a Thumbnail for YouTube in 2024
-
-![author avatar](https://images.wondershare.com/filmora/article-images/benjamin-arango-author.jpg)
+# Best YouTube Thumbnail Size: How to Make a Thumbnail for YouTube in 2024 ![author avatar](https://images.wondershare.com/filmora/article-images/benjamin-arango-author.jpg)
 
 ##### Benjamin Arango
 
@@ -45,9 +43,7 @@ Being a content creator, you never know which device is being used by the viewer
 * To cover all the devices perfectly, set the thumbnail resolution to 1280x720
 * Save the thumbnail in JPG, GIF, or PNG format
 * Try not to cross the 2MB limit
-* Make sure to use a 16:9 aspect ratio for perfect results throughout the devices
-
-![youtube-thumbnail-size](https://images.wondershare.com/filmora/article-images/youtube-thumbnail-size.png)
+* Make sure to use a 16:9 aspect ratio for perfect results throughout the devices ![youtube-thumbnail-size](https://images.wondershare.com/filmora/article-images/youtube-thumbnail-size.png)
 
 ---
 
@@ -125,55 +121,55 @@ Many of you might be interested in how to make a fortnite thumbnail, so here it 
 
 1. Before we start making Fortnite Thumbnails, we have to take a screenshot of the gameplay. Open Fortnite and go to the Career tab. Here you will find Replays.
 
-![ make-fortnite-thumbnail-step1](https://images.wondershare.com/filmora/article-images/make-fortnite-thumbnail-step1.jpg)
+![make-fortnite-thumbnail-step1](https://images.wondershare.com/filmora/article-images/make-fortnite-thumbnail-step1.jpg)
 
 1. It contains all your recent gameplays. We can use it to take a screenshot. If you are using a console, you will find 10 recent gameplays here. But if you are a PC user, you can find the last 100 gameplays. Select the gameplay you want to take a screenshot from.
 
-![ make-fortnite-thumbnail-step2](https://images.wondershare.com/filmora/article-images/make-fortnite-thumbnail-step2.jpg)
+![make-fortnite-thumbnail-step2](https://images.wondershare.com/filmora/article-images/make-fortnite-thumbnail-step2.jpg)
 
 1. For our preferred angle, choose "Drone Free Camera" mode from the bottom right corner of the screen. It will allow us to use our preferred angle without any restriction. Choose an angle and take a screenshot.
 
-![ make-fortnite-thumbnail-step3](https://images.wondershare.com/filmora/article-images/make-fortnite-thumbnail-step3.jpg)
+![make-fortnite-thumbnail-step3](https://images.wondershare.com/filmora/article-images/make-fortnite-thumbnail-step3.jpg)
 
 1. Open Filmora X, make sure to select the 16:9 screen ratio. Import the screenshot that you have taken from Fortnite.
 
-![ make-fortnite-thumbnail-step4](https://images.wondershare.com/filmora/article-images/make-fortnite-thumbnail-step4.jpg)
+![make-fortnite-thumbnail-step4](https://images.wondershare.com/filmora/article-images/make-fortnite-thumbnail-step4.jpg)
 
 1. Place it into the timeline to start working on it.
 
-![ make-fortnite-thumbnail-step5](https://images.wondershare.com/filmora/article-images/make-fortnite-thumbnail-step5.jpg)
+![make-fortnite-thumbnail-step5](https://images.wondershare.com/filmora/article-images/make-fortnite-thumbnail-step5.jpg)
 
 1. Now to separate the character from the background, go to the Effects. Under effects, you can find a tab named AI Portraits. Click on AI Portrait. Now drag the Human Segmentation and drop it on the screenshot in the timeline.
 
-![ make-fortnite-thumbnail-step6](https://images.wondershare.com/filmora/article-images/make-fortnite-thumbnail-step6.jpg)
+![make-fortnite-thumbnail-step6](https://images.wondershare.com/filmora/article-images/make-fortnite-thumbnail-step6.jpg)
 
 1. It will ask you to purchase it. But there is no need to do that. Just hit Try It.
 
-![ make-fortnite-thumbnail-step7](https://images.wondershare.com/filmora/article-images/make-fortnite-thumbnail-step7.jpg)
+![make-fortnite-thumbnail-step7](https://images.wondershare.com/filmora/article-images/make-fortnite-thumbnail-step7.jpg)
 
 1. This effect will remove the background of your screenshot.
 
-![ make-fortnite-thumbnail-step8](https://images.wondershare.com/filmora/article-images/make-fortnite-thumbnail-step8.jpg)
+![make-fortnite-thumbnail-step8](https://images.wondershare.com/filmora/article-images/make-fortnite-thumbnail-step8.jpg)
 
 1. Now you can add a background of your choice. You can upload an image or choose a simple color from Filmora's Media tab and drag it below the screenshot in the timeline.
 
-![ make-fortnite-thumbnail-step9](https://images.wondershare.com/filmora/article-images/make-fortnite-thumbnail-step9.jpg)
+![make-fortnite-thumbnail-step9](https://images.wondershare.com/filmora/article-images/make-fortnite-thumbnail-step9.jpg)
 
 1. To add text to the screenshot, go to Titles. Here you can find a wide range of different and unique titles to choose from for your Fortnite Thumbnail. Choose any of the titles and place them accordingly.
 
-![ make-fortnite-thumbnail-step10](https://images.wondershare.com/filmora/article-images/make-fortnite-thumbnail-step10.jpg)
+![make-fortnite-thumbnail-step10](https://images.wondershare.com/filmora/article-images/make-fortnite-thumbnail-step10.jpg)
 
 1. To make it more attractive, we can add icons and other elements from Filmora's Element tab. You can also download the stickers from the internet and use them.
 
-![ make-fortnite-thumbnail-step11](https://images.wondershare.com/filmora/article-images/make-fortnite-thumbnail-step11.jpg)
+![make-fortnite-thumbnail-step11](https://images.wondershare.com/filmora/article-images/make-fortnite-thumbnail-step11.jpg)
 
 1. After completing the thumbnail, click on the Snapshot icon located below the preview tab of Filmora. Or press "CTRL+ALT+S". It will save a screenshot into the media panel of Filmora.
 
-![ make-fortnite-thumbnail-step12](https://images.wondershare.com/filmora/article-images/make-fortnite-thumbnail-step12.jpg)
+![make-fortnite-thumbnail-step12](https://images.wondershare.com/filmora/article-images/make-fortnite-thumbnail-step12.jpg)
 
 1. Right-click on the screenshot and navigate to "Reveal in Explorer". It will open the folder that contains all the screenshots taken from Filmora. Now you can use it as a Fortnite Thumbnail.
 
-![ make-fortnite-thumbnail-step13](https://images.wondershare.com/filmora/article-images/make-fortnite-thumbnail-step13.jpg)
+![make-fortnite-thumbnail-step13](https://images.wondershare.com/filmora/article-images/make-fortnite-thumbnail-step13.jpg)
 
  ---
 
@@ -222,3 +218,26 @@ Follow @Benjamin Arango
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-tips.techidaily.com/izing-engagement-with-proper-yt-thumbnail-size/"><u>Maximizing Engagement with Proper YT Thumbnail Size</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/-for-confirming-youtube-identity-for-2024/"><u>Steps for Confirming YouTube Identity for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/be-copyright-laws-and-content-capture/"><u>YouTube Copyright Laws and Content Capture</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-female-gamers-faction-yts-10-stars/"><u>[New] In 2024, Female Gamers Faction  YT's #10 Stars</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-the-ultimate-blueprint-for-your-mobile-youtube-businesspersonal-platform/"><u>[Updated] The Ultimate Blueprint for Your Mobile YouTube Business/Personal Platform</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-complete-guide-to-crafting-killer-youtube-outros/"><u>[New] In 2024, Complete Guide to Crafting Killer YouTube Outros</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/cing-your-youtube-content-basic-premiere-pro-edits-for-2024/"><u>Enhancing Your YouTube Content  Basic Premiere Pro Edits for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/approved-step-by-step-to-subscription-the-youtube-partner-program-route/"><u>2024 Approved  Step-by-Step to Subscription  The YouTube Partner Program Route</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ptimizing-youtube-content-for-top-views/"><u>[New] Optimizing YouTube Content for Top Views</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/boost-love-odds-expert-tips-for-compelling-tinder-profiles/"><u>Boost Love Odds  Expert Tips for Compelling Tinder Profiles</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-how-pgsharp-save-you-from-ban-while-spoofing-pokemon-go-on-samsung-galaxy-m34-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How PGSharp Save You from Ban While Spoofing Pokemon Go On Samsung Galaxy M34 5G? | Dr.fone</u></a></li>
+<li><a href="https://iphone-transfer.techidaily.com/in-2024-fix-apple-iphone-15-plus-stuck-on-data-transfer-verified-solution-drfone-by-drfone-transfer-from-ios/"><u>In 2024, Fix Apple iPhone 15 Plus Stuck on Data Transfer Verified Solution! | Dr.fone</u></a></li>
+<li><a href="https://audio-shaping.techidaily.com/new-2024-approved-breaking-barriers-of-breeze-overcoming-wind-induced-disturbances-in-sound-recordings/"><u>New 2024 Approved Breaking Barriers of Breeze Overcoming Wind-Induced Disturbances in Sound Recordings</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-instagrams-most-trusted-grid-creation-applications-ranked-anew-for-2024/"><u>[New] Instagram's Most Trusted Grid Creation Applications Ranked Anew for 2024</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/the-digital-revolution-todays-vr-landscape-and-tomorrows-trials/"><u>The Digital Revolution  Today's VR Landscape & Tomorrow's Trials</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-navigating-through-the-top-5-new-facebook-shifts/"><u>[New] Navigating Through the Top 5 New Facebook Shifts</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/2024-approved-transform-your-youtube-presence-mastering-featured-channel-spotlight-techniques/"><u>2024 Approved  Transform Your YouTube Presence  Mastering Featured Channel Spotlight Techniques</u></a></li>
+<li><a href="https://discord-videos.techidaily.com/in-2024-transforming-toxicity-into-talk-strategies-for-navigating-and-reporting-on-discord-disputes/"><u>In 2024, Transforming Toxicity Into Talk  Strategies for Navigating and Reporting On-Discord Disputes</u></a></li>
+<li><a href="https://animation-videos.techidaily.com/2024-approved-top-12-illusion-gifs-top-picks/"><u>2024 Approved Top 12 Illusion Gifs Top Picks</u></a></li>
+</ul></div>

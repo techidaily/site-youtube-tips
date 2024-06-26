@@ -1,7 +1,7 @@
 ---
 title: "[Updated] In 2024, Crafting the Perfect Aesthetic with Controlled Lighting"
-date: 2024-06-24 23:49:30
-updated: 2024-06-26 10:20:41
+date: 2024-06-25T17:56:54.903Z
+updated: 2024-06-26T17:56:54.903Z
 tags:
   - ai video
   - ai youtube
@@ -16,9 +16,7 @@ thumbnail: https://thmb.techidaily.com/3b273f3dcd58de6bdeec53afcf9be971cffb1887a
 
 ## Crafting the Perfect Aesthetic with Controlled Lighting
 
-# Lighting Tips for Vlogging: How to Light
-
-![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+# Lighting Tips for Vlogging: How to Light ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
 
@@ -28,9 +26,7 @@ One of the best things you can do for your video quality is to ensure you have g
 
 Going outside and using natural light is the cheapest way to get a lot of light for your videos. If your vlog is not suited to the great outdoors then you need to get more strategic. You can turn on all the lights in your living room and still end up with a dark, grainy, video.
 
-## Video Lighting Basics: Three Point Lighting
-
-![ Lighting for YouTube Video](https://images.wondershare.com/filmora/article-images/three-point-lighting.jpg)
+## Video Lighting Basics: Three Point Lighting ![Lighting for YouTube Video](https://images.wondershare.com/filmora/article-images/three-point-lighting.jpg)
 
 The most common technique of lighting a scene is called **three-point lighting**. It involves three different sources of light in the shot and is used by portrait photographers, which is also a great method for lighting your vlog.
 
@@ -105,3 +101,23 @@ Follow @Richard Bennett
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-tips.techidaily.com/ed-quick-growing-yt-sources-sparking-mental-flourish/"><u>[Updated] Quick-Growing YT Sources Sparking Mental Flourish</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-channel-control-center-creator-studio-essentials/"><u>[Updated] Channel Control Center  Creator Studio Essentials</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-2024-approved-your-roadmap-to-monetization-mastery-the-straightforward-strategy-for-analyzing-youtube-earnings/"><u>[Updated] 2024 Approved  Your Roadmap to Monetization Mastery  The Straightforward Strategy for Analyzing YouTube Earnings</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ptimizing-channel-branding-to-skyrocket-subscriber-numbers/"><u>[New] Optimizing Channel Branding to Skyrocket Subscriber Numbers</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/lueprint-to-climbing-your-way-up-in-youtube-ranks-for-2024/"><u>The Blueprint to Climbing Your Way Up in YouTube Ranks for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ultivating-confidence-for-captivating-your-youtube-audience/"><u>[New] Cultivating Confidence for Captivating Your YouTube Audience</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-the-10-funniest-youtube-shorts-video-ideas/"><u>[Updated] The 10 Funniest YouTube Shorts Video Ideas</u></a></li>
+<li><a href="https://video-creation-software.techidaily.com/new-the-ultimate-fcp-voice-over-guide-tips-tricks-and-best-practices/"><u>New The Ultimate FCP Voice Over Guide Tips, Tricks, and Best Practices</u></a></li>
+<li><a href="https://video-creation-software.techidaily.com/new-edit-in-high-def-the-best-video-software-for-2024/"><u>New Edit in High-Def The Best Video Software for 2024</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/new-personalize-chromes-sound-review-of-the-top-web-based-speech-converters-for-2024/"><u>[New] Personalize Chrome's Sound  Review of the Top Web-Based Speech Converters for 2024</u></a></li>
+<li><a href="https://sound-tweaking.techidaily.com/the-foremost-a-capella-extraction-solutions-for-remote-artists-and-producers/"><u>The Foremost A Capella Extraction Solutions for Remote Artists and Producers</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-top-10-telegram-spy-tools-on-samsung-galaxy-xcover-7-for-parents-drfone-by-drfone-virtual-android/"><u>In 2024, Top 10 Telegram Spy Tools On Samsung Galaxy XCover 7 for Parents | Dr.fone</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/new-the-essential-toolkit-for-achieving-viral-impact-in-tiktok-photos/"><u>[New] The Essential Toolkit for Achieving Viral Impact in TikTok Photos</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/new-audience-wave-top-hash-tags-to-swell-youtube-views/"><u>[New] Audience Wave  Top Hash Tags to Swell Youtube Views</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-in-2024-step-up-your-instagram-game-with-these-highest-rated-grid-makers/"><u>[New] In 2024, Step Up Your Instagram Game with These Highest-Rated Grid Makers</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-2024-approved-quick-retrieval-downloading-gifs-from-twitter-apps/"><u>[New] 2024 Approved  Quick Retrieval  Downloading GIFs From Twitter Apps</u></a></li>
+</ul></div>

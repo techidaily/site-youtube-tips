@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Essential Steps to Implement Video Card Anchors on YouTube\""
-date: 2024-06-25 15:55:16
-updated: 2024-06-26 11:48:33
+date: 2024-06-25T17:34:04.501Z
+updated: 2024-06-26T17:34:04.501Z
 tags:
   - ai video
   - ai youtube
@@ -49,21 +49,15 @@ The main difference between annotation and cards is their outlook. Cards are mor
 
 YouTube **Cards** are similar to annotations but more interactive. They allow the owner of the video to add images and other links. A small box appears, clicking on which will activate the cards.
 
-* Click on the "Video Manager" tab
-
-![](https://images.wondershare.com/filmora/article-images/video-manager-in-youtube.jpg)
+* Click on the "Video Manager" tab ![](https://images.wondershare.com/filmora/article-images/video-manager-in-youtube.jpg)
 
 * Click "Edit" tab under the video screen shot you want to add the card on
-* Click on the "Cards" tab
-
-![](https://images.wondershare.com/filmora/article-images/youtube-cards01.png)
+* Click on the "Cards" tab ![](https://images.wondershare.com/filmora/article-images/youtube-cards01.png)
 
 * On the right panel click on "Add Card" drop down menu and select the type of card you want to add
 * Click on the create button which will open the corresponding video
 * Once you finish the subsequent information required click create card
-* Select the timeline for the playhead to appear which leads to the card slide
-
-![](https://images.wondershare.com/filmora/article-images/add-cards-to-youtube-video.jpg)
+* Select the timeline for the playhead to appear which leads to the card slide ![](https://images.wondershare.com/filmora/article-images/add-cards-to-youtube-video.jpg)
 
 * Apply changes and exit
 
@@ -73,14 +67,10 @@ YouTube Annotation is addition of a text layer, link or hotspots over your video
 
 * Click on the video manager tab
 * Click edit tab under the video screen shot you want to add the annotation on
-* Click on the "End screen & Annotation" tab
-
-![](https://images.wondershare.com/filmora/article-images/add-annotations-to-youtube-video.jpg)
+* Click on the "End screen & Annotation" tab ![](https://images.wondershare.com/filmora/article-images/add-annotations-to-youtube-video.jpg)
 
 * On the right panel click on "+ Add Element" and select the kind of annotation you want to add
-* Adjust the position of Annotation, you can drag the rectangle to locate it at any position of the video, move the slide to set the start and end time of the annotation
-
-![](https://images.wondershare.com/filmora/article-images/add-annotation-to-youtube-1.jpg)
+* Adjust the position of Annotation, you can drag the rectangle to locate it at any position of the video, move the slide to set the start and end time of the annotation ![](https://images.wondershare.com/filmora/article-images/add-annotation-to-youtube-1.jpg)
 
 * Apply changes
 
@@ -141,3 +131,26 @@ Follow @Richard Bennett
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-tips.techidaily.com/op-10-global-youtube-personalities-peak-of-viewership-for-2024/"><u>[New] Top 10 Global YouTube Personalities  Peak of Viewership for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-strategic-endings-keeping-viewers-engaged-on-yt/"><u>[Updated] Strategic Endings  Keeping Viewers Engaged on YT</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-2024-approved-enhancing-video-reach-convert-yt-to-igtv/"><u>[Updated] 2024 Approved  Enhancing Video Reach  Convert YT to IGTV</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-regulatory-guidelines-youtube-video-recording/"><u>[New] In 2024, Regulatory Guidelines  YouTube Video Recording</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-in-2024-live-streaming-made-simple-google-meet-to-youtube-guide/"><u>[Updated] In 2024, Live Streaming Made Simple  Google Meet to YouTube Guide</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/reating-costless-webinars-on-youtube-a-handbook/"><u>[New] Creating Costless Webinars on YouTube  A Handbook</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-youtube-ad-revenue-how-much-do-youtubers-make-per-ad/"><u>[Updated] YouTube Ad Revenue  How Much Do YouTubers Make Per Ad?</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ating-through-youtubes-revenue-flow-after-monetization-for-2024/"><u>Navigating Through YouTube's Revenue Flow After Monetization for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-in-2024-methods-for-eliminating-invisible-youtube-playback/"><u>[Updated] In 2024, Methods for Eliminating Invisible YouTube Playback</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/elevating-your-presence-on-tiktok-essential-7-must-haves-for-2024/"><u>Elevating Your Presence on TikTok  Essential 7 Must-Haves for 2024</u></a></li>
+<li><a href="https://ai-voice-clone.techidaily.com/in-2024-introduction-wondershare-virbo/"><u>In 2024, Introduction | Wondershare Virbo</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/in-2024-creative-stifling-abrupt-vid-disappearance/"><u>In 2024, Creative Stifling  Abrupt Vid Disappearance</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/updated-evaluating-the-long-term-benefits-of-purchasing-video-traction/"><u>[Updated] Evaluating the Long-Term Benefits of Purchasing Video Traction</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-mirror-pc-screen-to-motorola-moto-g84-5g-phones-drfone-by-drfone-android/"><u>In 2024, How to Mirror PC Screen to Motorola Moto G84 5G Phones? | Dr.fone</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/2024-approved-highest-quality-screen-time-movie-hits-list/"><u>2024 Approved  Highest-Quality Screen Time  Movie Hits List</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/ways-to-trade-pokemon-go-from-far-away-on-poco-m6-pro-5g-drfone-by-drfone-virtual-android/"><u>Ways to trade pokemon go from far away On Poco M6 Pro 5G? | Dr.fone</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/2024-approved-imovie-soundscapes-enrich-your-visual-symphony/"><u>2024 Approved  IMovie Soundscapes  Enrich Your Visual Symphony</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/in-2024-instagram-tv-off-switch-guide/"><u>In 2024, Instagram TV Off Switch Guide</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/2024-approved-10plus-incredible-free-youtube-intro-makers/"><u>2024 Approved  10+ Incredible Free YouTube Intro Makers</u></a></li>
+</ul></div>

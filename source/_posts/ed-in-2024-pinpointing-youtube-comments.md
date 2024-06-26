@@ -1,7 +1,7 @@
 ---
 title: "[Updated] In 2024, Pinpointing YouTube Comments"
-date: 2024-06-25 12:55:51
-updated: 2024-06-26 10:58:42
+date: 2024-06-25T18:30:31.913Z
+updated: 2024-06-26T18:30:31.913Z
 tags:
   - ai video
   - ai youtube
@@ -39,7 +39,7 @@ Comments are the best way to interact with subscribers on YouTube. YouTube’s S
 
 If you have a channel, you can use this feature in some simple steps.
 
-1. Visit YouTube[website](https://www.youtube.com/) on your desktop and sign in to your YouTube account.
+1. Visit YouTube [website](https://www.youtube.com/) on your desktop and sign in to your YouTube account.
 2. Go to the top right corner of your homepage, and you will find your profile icon. Click on it and from the drop-down menu, select the YouTube Studio option.
 3. This will take you to the YouTube Studio home page. On the left side, find and click on the Comments option, and then you will see all comments your YouTube channel has received.
 4. You can now click on the Filter icon from the comments section and type in the search term directly. Or, you can click the Search from the options, and type in the words you are looking for.
@@ -57,7 +57,7 @@ Besides the comment search feature, the YouTube Studio also has some in-built se
 
 **Response status:** Filter the comments to which you have responded or haven’t responded to.
 
-![  YouTube Studio comment filter](https://images.wondershare.com/filmora/article-images/youtube-studio-comment-filter-search.jpg)
+![YouTube Studio comment filter](https://images.wondershare.com/filmora/article-images/youtube-studio-comment-filter-search.jpg)
 
 You can combine these additional filters to narrow your comments search for YouTube.
 
@@ -67,11 +67,11 @@ You can use the YouTube Comment Search browser extension supported by Google Chr
 
 1. First, you need to install this extension. You can click this URL <https://chrome.google.com/webstore/detail/ycs-youtube-comment-searc/pmfhcilikeembgbiadjiojgfgcfbcoaa?hl=en> Or, you can open the Chrome Extensions page, and in the search bar at the top, type in YCS – YouTube Comment Search and press Enter.
 2. Click on the result that appears and then tap on the Add to Chrome button. This will add the extension to your browser.
-3. Once you add the extension, open[YouTube](https://www.youtube.com/) on your browser. Click on the video where you want to search the comments. You will find the YouTube Comment Search extension below it.
+3. Once you add the extension, open [YouTube](https://www.youtube.com/) on your browser. Click on the video where you want to search the comments. You will find the YouTube Comment Search extension below it.
 4. Tap on ‘Load comments’ and wait till the extension loads all the comments on the video.
 5. Now type your keywords, press Enter, and YCS will show all comments having the keyword you typed.
 
-![ YouTube Comment Search Extension](https://images.wondershare.com/filmora/article-images/search-comment-from-specific-user-with-ycs-extension.jpg)
+![YouTube Comment Search Extension](https://images.wondershare.com/filmora/article-images/search-comment-from-specific-user-with-ycs-extension.jpg)
 
 ## Part 3: Using Comments Search for YouTube Extension
 
@@ -79,7 +79,7 @@ If you are looking for an easy method to search YouTube comments, you can use th
 
 How can you use this extension to search YouTube comments? Here is a simple step-by-step tutorial.
 
-1. First, you need to download the extension from[Github](https://github.com/lettapp/ytcs/archive/master.zip). Then, locate the file on your computer and unzip it.
+1. First, you need to download the extension from [Github](https://github.com/lettapp/ytcs/archive/master.zip). Then, locate the file on your computer and unzip it.
 2. Next, you need to install it in the browser. Open your Chrome browser, and from the top right corner, click on the three vertical dots. You will find the Settings option towards the end of the drop-down menu, and then click on it.
 3. When the Settings page opens, select Extensions from the panel on the left side of the webpage. This will take you to a new tab.
 4. On the top right corner of the page, there will be a toggle switch called Developer Mode. Turn it on if it is off.
@@ -113,9 +113,9 @@ You can see all the comments you have posted in the Comment History in a few qui
 2. Once you sign in, click on the three horizontal lines at the top left corner of your YouTube page.
 3. Click on the History option and then you will find the option called Comments on the right side of your YouTube History page. Click on it to see all your YouTube comments.
 
-![ YouTube History Comment](https://images.wondershare.com/filmora/article-images/youtube-history-comments-menu.jpg)
+![YouTube History Comment](https://images.wondershare.com/filmora/article-images/youtube-history-comments-menu.jpg)
 
-You can also access the Comments History page directly from[here](https://www.youtube.com/feed/history/comment%5Fhistory).
+You can also access the Comments History page directly from [here](https://www.youtube.com/feed/history/comment%5Fhistory).
 
 ## Part 5: How to Find Out Who Posts the Most Comments on Your YouTube Videos?
 
@@ -161,3 +161,23 @@ Follow @Richard Bennett
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-tips.techidaily.com/ed-2024-approved-optimizing-your-youtube-stream-with-wirecast/"><u>[Updated] 2024 Approved  Optimizing Your YouTube Stream with WireCast</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-the-complete-youtube-editors-toolkit-for-post-publish-adjustments/"><u>[Updated] The Complete YouTube Editor's Toolkit for Post-Publish Adjustments</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/g-videos-to-written-work-a-budget-friendly-way/"><u>Adding Videos to Written Work  A Budget-Friendly Way</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-the-dangers-of-buying-fake-youtube-subscribers-for-2024/"><u>[Updated] The Dangers of Buying Fake YouTube Subscribers for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/approved-investing-wisdom-in-webcams-finest-stocks-channels/"><u>2024 Approved  Investing Wisdom in Webcams  Finest Stocks Channels</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/losing-with-panache-free-youtubes-1-six-in-2024/"><u>[New] Closing with Panache  Free YouTube's #1 Six, In 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/reating-impactful-outros-top-6-free-tools/"><u>[New] Creating Impactful Outros  Top 6 FREE Tools</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/new-2024-approved-become-a-voice-customization-guru-on-tiktok/"><u>[New] 2024 Approved  Become a Voice Customization Guru on TikTok</u></a></li>
+<li><a href="https://howto.techidaily.com/android-safe-mode-how-to-turn-off-safe-mode-on-poco-c65-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Android Safe Mode - How to Turn off Safe Mode on Poco C65? | Dr.fone</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-initiating-efficient-conversations-on-snapchat-with-three-steps/"><u>[Updated] Initiating Efficient Conversations on Snapchat with Three Steps</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-list-of-pokemon-go-joysticks-on-poco-x5-pro-drfone-by-drfone-virtual-android/"><u>In 2024, List of Pokémon Go Joysticks On Poco X5 Pro | Dr.fone</u></a></li>
+<li><a href="https://video-content-creator.techidaily.com/new-in-2024-from-jittery-to-smooth-video-stabilization-in-premiere-pro-made-easy/"><u>New In 2024, From Jittery to Smooth Video Stabilization in Premiere Pro Made Easy</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/in-2024-from-gym-goer-to-broadcayer-set-up-a-sports-vlog-on-macos/"><u>In 2024, From Gym Goer to Broadcayer  Set Up a Sports Vlog on macOS</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/in-2024-7-top-ways-to-resolve-apple-id-not-active-issue-for-iphone-14-plus-drfone-by-drfone-ios/"><u>In 2024, 7 Top Ways To Resolve Apple ID Not Active Issue For iPhone 14 Plus | Dr.fone</u></a></li>
+<li><a href="https://howto.techidaily.com/bricked-your-vivo-v27e-heres-a-full-solution-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Bricked Your Vivo V27e? Heres A Full Solution | Dr.fone</u></a></li>
+<li><a href="https://voice-adjusting.techidaily.com/progressive-audio-fade-out-effects-in-adobe-rushs-2023-update-for-2024/"><u>Progressive Audio Fade-Out Effects in Adobe Rushs 2023 Update for 2024</u></a></li>
+</ul></div>

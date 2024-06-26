@@ -1,7 +1,7 @@
 ---
 title: "\"Rectified  Hidden Status of Shorts for 2024\""
-date: 2024-06-20 11:57:42
-updated: 2024-06-23 10:22:59
+date: 2024-06-25T17:58:41.548Z
+updated: 2024-06-26T17:58:41.548Z
 tags:
   - ai video
   - ai youtube
@@ -143,9 +143,7 @@ You can choose an aspect ratio that best fits YouTube Shorts which is **9:16**.
 
 You can choose among three ways to open the Auto Reframe feature in Filmora.
 
-      * **Way 1:** Once you open Filmora, the main interface will display the **Auto Reframe** tab on the right-hand panel. Click it to open directly
-
-![filmora](https://images.wondershare.com/filmora/guide/1-auto-reframe-option.jpg)
+      * **Way 1:** Once you open Filmora, the main interface will display the **Auto Reframe** tab on the right-hand panel. Click it to open directly ![filmora](https://images.wondershare.com/filmora/guide/1-auto-reframe-option.jpg)
 
 * **Way 2:** Import media as **File** \> **Import Media Files** and select the file. After you import the media, right-click and choose the **Auto Reframe**.
 
@@ -246,3 +244,27 @@ Follow @Liza Brown
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-tips.techidaily.com/ssential-insights-for-asmr-aficionados-for-2024/"><u>[New] Essential Insights for ASMR Aficionados for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-2024-approved-the-ultimate-guide-to-8-mirrorless-cameras-for-vloggers/"><u>[Updated] 2024 Approved  The Ultimate Guide to 8 Mirrorless Cameras for Vloggers</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/est-wedding-stories-online-youtube-plus-vimeos-selection-8-for-2024/"><u>The Best Wedding Stories Online  YouTube + Vimeo's Selection (8) for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-avoiding-the-common-path-the-route-to-unique-streamer-identities/"><u>[Updated] Avoiding the Common Path  The Route to Unique Streamer Identities</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/r-thumbnail-design-for-mac-users-youtube-edition-for-2024/"><u>Master Thumbnail Design for Mac Users - YouTube Edition for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/24-unique-stories-crafting-powerful-yt-narratives/"><u>In 2024, Unique Stories  Crafting Powerful YT Narratives</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-youtube-partnership-unlocked-break-through-at-10k-vistas/"><u>[Updated] YouTube Partnership Unlocked  Break Through at 10K Vistas</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/rafting-an-easy-to-use-youtube-subscription-tagline/"><u>[New] Crafting an Easy-to-Use YouTube Subscription Tagline</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-in-2024-auto-play-youtube-iphoneandroid-no-notification/"><u>[Updated] In 2024, Auto-Play YouTube  IPhone/Android, No Notification</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/24-from-script-to-screen-methods-of-inserting-dialogue-into-online-videos/"><u>In 2024, From Script to Screen  Methods of Inserting Dialogue Into Online Videos</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-list-of-pokemon-go-joysticks-on-realme-11-proplus-drfone-by-drfone-virtual-android/"><u>In 2024, List of Pokémon Go Joysticks On Realme 11 Pro+ | Dr.fone</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/2024-approved-leading-apps-for-dji-video-manipulation-and-mixing/"><u>2024 Approved  Leading Apps for DJi Video Manipulation and Mixing</u></a></li>
+<li><a href="https://howto.techidaily.com/calls-on-honor-x9a-go-straight-to-voicemail-12-fixes-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Calls on Honor X9a Go Straight to Voicemail? 12 Fixes | Dr.fone</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/new-extract-translate-and-save-youtube-subtitles-for-free/"><u>[New] Extract, Translate & Save YouTube Subtitles for FREE</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/new-seamless-playback-tips-and-tricks-for-infinite-youtube-views/"><u>[New] Seamless Playback  Tips & Tricks for Infinite Youtube Views</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-2024-approved-infinite-loop-twitters-live-video-saga-in-23/"><u>[Updated] 2024 Approved  Infinite Loop  Twitter's Live Video Saga in '23</u></a></li>
+<li><a href="https://extra-information.techidaily.com/unlocking-the-full-potential-of-whatsapp/"><u>Unlocking the Full Potential of WhatsApp</u></a></li>
+<li><a href="https://ai-video-editing.techidaily.com/updated-thousands-already-know-what-ezgif-is-and-so-can-you/"><u>Updated Thousands Already Know What Ezgif Is and So Can You</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-restore-missing-pictures-files-from-honor-90-by-fonelab-android-recover-pictures/"><u>How To  Restore Missing Pictures Files from Honor 90.</u></a></li>
+<li><a href="https://video-capture.techidaily.com/updated-in-2024-superior-quality-live-video-recorders/"><u>[Updated] In 2024, Superior Quality Live Video Recorders</u></a></li>
+</ul></div>

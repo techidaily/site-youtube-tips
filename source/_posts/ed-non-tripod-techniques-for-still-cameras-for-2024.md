@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Non-Tripod Techniques for Still Cameras for 2024\""
-date: 2024-06-19 11:11:41
-updated: 2024-06-22 12:58:10
+date: 2024-06-25T17:19:25.380Z
+updated: 2024-06-26T17:19:25.380Z
 tags:
   - ai video
   - ai youtube
@@ -16,9 +16,7 @@ thumbnail: https://thmb.techidaily.com/72d87bf38b3f988e318217c000305d7e3da283a04
 
 ## Non-Tripod Techniques for Still Cameras
 
-# DIY Tripods| How to Stabilize Your Camera without Buying a Tripod
-
-![](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+# DIY Tripods| How to Stabilize Your Camera without Buying a Tripod ![](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
 
@@ -101,9 +99,7 @@ _**Step 2:**_ After all the legs are attached, wrap some more tape around all 3 
 
  Your camera will mount onto the bolt! You’ll be able to use this as a normal table-top tripod or use the flexible legs to grab onto different things like a Gorillapod. _Read more at_ [_Instructables_.](http://www.instructables.com/id/Pocket-Tripod/)
 
-_Note: make sure the bolt is a fit for your camera before you get too far into this process._
-
-![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+_Note: make sure the bolt is a fit for your camera before you get too far into this process._ ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 Richard Bennett
 
@@ -126,3 +122,23 @@ Follow @Richard Bennett
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-tips.techidaily.com/ed-2024-approved-ranked-the-best-7-android-adblockers-for-screen-freedom/"><u>[Updated] 2024 Approved  Ranked  The Best 7 Android AdBlockers for Screen Freedom</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-in-2024-hitting-the-sweet-spot-top-5-tips-for-channel-growth/"><u>[Updated] In 2024, Hitting the Sweet Spot  Top 5 Tips for Channel Growth</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-unlock-the-value-of-viewership-a-clear-concise-guide-to-evaluating-youtube-earnings/"><u>[New] In 2024, Unlock the Value of Viewership  A Clear, Concise Guide to Evaluating YouTube Earnings</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/24-top-5-youtube-promo-tactics-for-max-impact/"><u>In 2024, Top 5 YouTube Promo Tactics for Max Impact</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-2024-approved-deciphering-youtubes-profit-for-a-mil-of-viewers/"><u>[Updated] 2024 Approved  Deciphering YouTube’s Profit for A Mil of Viewers</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/024-approved-unleash-your-youtube-playlists-a-comprehensive-guide/"><u>[New] 2024 Approved  Unleash Your YouTube Playlists  A Comprehensive Guide</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-overcoming-unseen-thumbnails-in-youtube-shorts/"><u>[New] In 2024, Overcoming Unseen Thumbnails in YouTube Shorts</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/new-in-2024-the-complete-guide-to-scheduling-and-recording-online-meetings-with-slack-and-filmora/"><u>[New] In 2024, The Complete Guide to Scheduling & Recording Online Meetings with Slack & Filmora</u></a></li>
+<li><a href="https://techidaily.com/how-to-exit-dfu-mode-on-apple-iphone-7-drfone-by-drfone-ios-system-repair-ios-system-repair/"><u>How To Exit DFU Mode on Apple iPhone 7? | Dr.fone</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/5-ways-to-restart-oppo-f23-5g-without-power-button-drfone-by-drfone-reset-android-reset-android/"><u>5 Ways to Restart Oppo F23 5G Without Power Button | Dr.fone</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/new-confirming-youtube-pro-rated-earnings/"><u>[New] Confirming YouTube Pro-Rated Earnings</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-100-unique-instagram-captions-to-show-yourself-to-the-world-for-2024/"><u>[Updated] 100 Unique Instagram Captions to Show Yourself to the World for 2024</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/in-2024-accelerated-learning-for-effective-nvidia-screener-use/"><u>In 2024, Accelerated Learning for Effective NVIDIA Screener Use</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/2024-approved-diverse-bites-foodies-top-international-menu-picks/"><u>2024 Approved  Diverse Bites  Foodies' Top International Menu Picks</u></a></li>
+<li><a href="https://ai-video-tools.techidaily.com/new-unleash-the-power-of-3d-video-editing-techniques-for-windows-users/"><u>New Unleash the Power of 3D Video Editing Techniques for Windows Users</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-the-art-of-concurrent-photoplusvideo-on-iphone-for-2024/"><u>[New] The Art of Concurrent Photo+Video on iPhone for 2024</u></a></li>
+</ul></div>

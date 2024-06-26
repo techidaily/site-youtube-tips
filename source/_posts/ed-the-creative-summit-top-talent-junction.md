@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] The Creative Summit  Top Talent Junction\""
-date: 2024-06-21 14:35:55
-updated: 2024-06-22 10:16:25
+date: 2024-06-25T18:22:51.885Z
+updated: 2024-06-26T18:22:51.885Z
 tags:
   - ai video
   - ai youtube
@@ -16,9 +16,7 @@ thumbnail: https://thmb.techidaily.com/89da125ea493abc275649c1f57ef017273ab0d0d8
 
 ## The Creative Summit: Top Talent Junction
 
-# The YouTube Creator Summit - A Getaway for YouTube's Top Talent
-
-![](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+# The YouTube Creator Summit - A Getaway for YouTube's Top Talent ![](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
 
@@ -43,7 +41,7 @@ The Creator Summit is invite-only, and only 120 YouTubers attended including Gra
 
 ![YouTube Creator Summit Group Photo](https://images.wondershare.com/filmora/article-images/youtube-creator-summit-2017.jpg)
 
-_Will Smith was one of the speakers at the summit. Turns out_ [_he’s a big fan of Lilly Singh_](https://www.youtube.com/watch?v=AGlcsogbAQY)_._
+_Will Smith was one of the speakers at the summit. Turns out_ [_he’s a big fan of Lilly Singh_](https://www.youtube.com/watch?v=AGlcsogbAQY) _._
 
 Thanks to Nick from nickatnyte, for example, we have a pretty clear picture of the kinds of swag YouTube was giving away.
 
@@ -83,7 +81,7 @@ There were numerous custom pins available at different events at the summit. Asi
 
 A denim jacket with a play button on it was also in the box. The idea was that creators would collect pins and display them on their new jackets. At the end of the week, they would have a great souvenir reminding them of every event they attended at the summit.
 
-_![Denim jacket- 2017 YouTube Creator Summit](https://images.wondershare.com/filmora/article-images/youtube-creator-summit-denim-jacket.jpg)_
+_ ![Denim jacket- 2017 YouTube Creator Summit](https://images.wondershare.com/filmora/article-images/youtube-creator-summit-denim-jacket.jpg) _
 
 _Hannah Hart posted this photo from a river cruise she and other YouTubers went on while in New York for the summit._
 
@@ -116,3 +114,24 @@ Follow @Richard Bennett
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-tips.techidaily.com/approved-master-youtube-ad-creation-with-no-cost-guide-inside/"><u>2024 Approved  Master YouTube Ad Creation with No Cost – Guide Inside</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/024-approved-essential-elements-for-implementing-channel-banners-in-games/"><u>[New] 2024 Approved  Essential Elements for Implementing Channel Banners in Games</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-in-2024-youtube-copyrights-demystified-understanding-and-managing-strikes/"><u>[Updated] In 2024, YouTube Copyrights Demystified  Understanding and Managing Strikes</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-embrace-cold-choosing-heated-backdrops-for-youtube/"><u>[Updated] Embrace Cold  Choosing Heated Backdrops for YouTube</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/nlocking-youtube-secrets-sharing-videos-in-google-wallet-for-2024/"><u>[New] Unlocking YouTube Secrets  Sharing Videos in Google Wallet for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-channeling-success-emulating-top-video-bloggers-techniques/"><u>[New] In 2024, Channeling Success  Emulating Top Video Bloggers' Techniques</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-smooth-sound-transformation-essential-ios-apps-to-convert-youtube-mp3-wise-for-2024/"><u>[Updated] Smooth Sound Transformation  Essential iOS Apps to Convert YouTube MP3-Wise for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-the-art-of-condensation-editing-youtube-video-durations/"><u>[Updated] The Art of Condensation  Editing YouTube Video Durations</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/updated-in-2024-the-easiest-screen-capture-software-on-the-market/"><u>[Updated] In 2024, The Easiest Screen Capture Software on the Market</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/xploring-biggest-fifa-footage-trends-in-graphics/"><u>[New] Exploring Biggest FIFA Footage Trends in Graphics</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-tiny-videos-deciphered-crucial-elements/"><u>[Updated] Tiny Videos Deciphered  Crucial Elements</u></a></li>
+<li><a href="https://fake-location.techidaily.com/can-life360-track-or-see-text-messages-what-can-you-do-with-life360-on-apple-iphone-7-drfone-by-drfone-virtual-ios/"><u>Can Life360 Track Or See Text Messages? What Can You Do with Life360 On Apple iPhone 7? | Dr.fone</u></a></li>
+<li><a href="https://extra-support.techidaily.com/in-2024-obs-and-wirecast-bout-which-broadcast-tool-is-king/"><u>In 2024, OBS and Wirecast Bout  Which Broadcast Tool Is King?</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-in-2024-stop-device-freeze-non-playing-fb-videos/"><u>[New] In 2024, Stop Device Freeze  Non-Playing FB Videos</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/top-4-sim-location-trackers-to-easily-find-your-lost-samsung-galaxy-a54-5g-device-by-drfone-android/"><u>Top 4 SIM Location Trackers To Easily Find Your Lost Samsung Galaxy A54 5G Device</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/new-in-2024-50plus-must-know-quotes-for-tiktok-success-stories/"><u>[New] In 2024, 50+ Must-Know Quotes for TikTok Success Stories</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/-anomalies-top-disruptive-apps-on-the-go-for-2024/"><u>Audio Anomalies  Top Disruptive Apps on the Go for 2024</u></a></li>
+</ul></div>

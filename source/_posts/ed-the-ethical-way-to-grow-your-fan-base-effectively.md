@@ -1,7 +1,7 @@
 ---
 title: "[Updated] The Ethical Way to Grow Your Fan Base Effectively"
-date: 2024-06-11 16:17:30
-updated: 2024-06-13 11:46:59
+date: 2024-06-25T18:08:05.632Z
+updated: 2024-06-26T18:08:05.633Z
 tags:
   - ai video
   - ai youtube
@@ -16,9 +16,7 @@ thumbnail: https://thmb.techidaily.com/609392eeb7e6d07659b5310d5497d83d3c111a4e7
 
 ## The Ethical Way to Grow Your Fan Base Effectively
 
-# How to Get People to Subscribe to Your YouTube Channel
-
-![](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+# How to Get People to Subscribe to Your YouTube Channel ![](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
 
@@ -52,7 +50,7 @@ Collins Key is one YouTuber who has mastered asking for subscribers early on, an
 
 As you can see, the video starts with a ‘flash forward’ to one of the twins saying the heater is on fire and then a reminder of what’s going to happen later – the heater catching fire – is written in the top left of the screen so it stays on the viewers' mind. This is one way in which the viewer is immediately hooked.
 
-![ how to ask people to subscribe](https://images.wondershare.com/filmora/article-images/ask-people-to-subscribe-by-hook.jpg)
+![how to ask people to subscribe](https://images.wondershare.com/filmora/article-images/ask-people-to-subscribe-by-hook.jpg)
 
 #### Step 2: Get to The Point Quickly
 
@@ -62,7 +60,7 @@ Shortly after, while still in the first 30 seconds of the video, Collins gets ri
 
 It’s only after hooking the viewer in and reiterating the promise of the title that Collins asks viewers to subscribe. The really clever thing about how he asks is that he carves out time in the video for the viewer to comply with his request. He gives 5 seconds and does a countdown.
 
-![ how to ask people to subscribe](https://images.wondershare.com/filmora/article-images/ask-people-to-subscribe-in-perfect-moment.jpg)
+![how to ask people to subscribe](https://images.wondershare.com/filmora/article-images/ask-people-to-subscribe-in-perfect-moment.jpg)
 
 Collins Key has been one of the fastest-growing channels on YouTube. He does not implement this strategy in every video, but it’s not a stretch to think it’s had something to do with his success. Instead of simply asking you to subscribe at the end of the video, he creates a part of the video early on – before people who don’t watch until the end will have clicked away – where you feel as if you’re ‘supposed to’ subscribe.
 
@@ -101,3 +99,27 @@ Follow @Richard Bennett
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-unlisting-youtube-videos-a-guide-to-non-indexable-content/"><u>[New] In 2024, Unlisting YouTube Videos  A Guide to Non-Indexable Content</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/024-approved-masterful-approach-to-creating-attractive-yt-summaries/"><u>[New] 2024 Approved  Masterful Approach to Creating Attractive YT Summaries</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-how-to-make-killer-youtube-channel-art/"><u>[New] In 2024, How to Make Killer YouTube Channel Art</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/nline-platforms-embedding-video-playlists-from-youtube/"><u>[New] Online Platforms  Embedding Video Playlists From YouTube</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/approved-securing-youtube-tracks-at-no-cost-with-security-in-mind/"><u>2024 Approved  Securing Youtube Tracks at No Cost, with Security in Mind</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-in-2024-assessing-the-riches-of-mr-beast/"><u>[Updated] In 2024, Assessing the Riches of Mr. Beast</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-2024-approved-unlocking-perfect-presentation-youtubes-video-ratio-insights/"><u>[Updated] 2024 Approved  Unlocking Perfect Presentation  YouTube's Video Ratio Insights</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-quick-start-making-your-own-sports-highlight-film/"><u>[New] In 2024, Quick Start  Making Your Own Sports Highlight Film</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-2024-approved-premier-choice-of-9-free-youtube-logos-and-graphics-maker/"><u>[Updated] 2024 Approved  Premier Choice of 9 Free YouTube Logos & Graphics Maker</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-integrating-moving-images-into-non-paid-content/"><u>[Updated] Integrating Moving Images Into Non-Paid Content</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/in-2024-best-of-the-best-ultimate-tiktok-video-savers/"><u>In 2024, Best of the Best  Ultimate TikTok Video Savers</u></a></li>
+<li><a href="https://ai-video-editing.techidaily.com/new-2024-approved-how-to-get-motion-blur-in-roblox/"><u>New 2024 Approved How to Get Motion Blur in Roblox?</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/effective-ways-to-fix-checkra1n-error-31-from-iphone-15-pro-max-by-drfone-ios/"><u>Effective Ways To Fix Checkra1n Error 31 From iPhone 15 Pro Max</u></a></li>
+<li><a href="https://audio-shaping.techidaily.com/new-2024-approved-the-best-audio-capture-solutions-that-are-changing-podcasters-lives/"><u>New 2024 Approved The Best Audio Capture Solutions That Are Changing Podcasters Lives</u></a></li>
+<li><a href="https://animation-videos.techidaily.com/new-2024-approved-how-to-turn-yourself-into-whatsapp-cartoon/"><u>New 2024 Approved How to Turn Yourself Into WhatsApp Cartoon</u></a></li>
+<li><a href="https://ai-video-tools.techidaily.com/new-take-your-videos-to-the-next-level-top-1080p-editing-tools-and-software/"><u>New Take Your Videos to the Next Level Top 1080P Editing Tools and Software</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-a-complete-guide-to-oem-unlocking-on-honor-magic-6-pro-by-drfone-android/"><u>In 2024, A Complete Guide To OEM Unlocking on Honor Magic 6 Pro</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/in-2024-free-to-view-performances-film-cast-permissions/"><u>In 2024, Free-to-View Performances  Film Cast Permissions</u></a></li>
+<li><a href="https://ai-editing-video.techidaily.com/new-2024-approved-quick-answer-why-did-filmora-ai-portrait-attract-people/"><u>New 2024 Approved Quick Answer Why Did Filmora AI Portrait Attract People?</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/2024-approved-unveiling-the-11-most-innovative-sound-recording-options/"><u>2024 Approved  Unveiling the 11 Most Innovative Sound Recording Options</u></a></li>
+</ul></div>

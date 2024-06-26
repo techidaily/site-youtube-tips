@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Dive Into the World of Interactive Video Features on YouTube\""
-date: 2024-06-21 22:15:44
-updated: 2024-06-24 10:58:30
+date: 2024-06-25T18:09:56.030Z
+updated: 2024-06-26T18:09:56.030Z
 tags:
   - ai video
   - ai youtube
@@ -49,21 +49,15 @@ The main difference between annotation and cards is their outlook. Cards are mor
 
 YouTube **Cards** are similar to annotations but more interactive. They allow the owner of the video to add images and other links. A small box appears, clicking on which will activate the cards.
 
-* Click on the "Video Manager" tab
-
-![](https://images.wondershare.com/filmora/article-images/video-manager-in-youtube.jpg)
+* Click on the "Video Manager" tab ![](https://images.wondershare.com/filmora/article-images/video-manager-in-youtube.jpg)
 
 * Click "Edit" tab under the video screen shot you want to add the card on
-* Click on the "Cards" tab
-
-![](https://images.wondershare.com/filmora/article-images/youtube-cards01.png)
+* Click on the "Cards" tab ![](https://images.wondershare.com/filmora/article-images/youtube-cards01.png)
 
 * On the right panel click on "Add Card" drop down menu and select the type of card you want to add
 * Click on the create button which will open the corresponding video
 * Once you finish the subsequent information required click create card
-* Select the timeline for the playhead to appear which leads to the card slide
-
-![](https://images.wondershare.com/filmora/article-images/add-cards-to-youtube-video.jpg)
+* Select the timeline for the playhead to appear which leads to the card slide ![](https://images.wondershare.com/filmora/article-images/add-cards-to-youtube-video.jpg)
 
 * Apply changes and exit
 
@@ -73,14 +67,10 @@ YouTube Annotation is addition of a text layer, link or hotspots over your video
 
 * Click on the video manager tab
 * Click edit tab under the video screen shot you want to add the annotation on
-* Click on the "End screen & Annotation" tab
-
-![](https://images.wondershare.com/filmora/article-images/add-annotations-to-youtube-video.jpg)
+* Click on the "End screen & Annotation" tab ![](https://images.wondershare.com/filmora/article-images/add-annotations-to-youtube-video.jpg)
 
 * On the right panel click on "+ Add Element" and select the kind of annotation you want to add
-* Adjust the position of Annotation, you can drag the rectangle to locate it at any position of the video, move the slide to set the start and end time of the annotation
-
-![](https://images.wondershare.com/filmora/article-images/add-annotation-to-youtube-1.jpg)
+* Adjust the position of Annotation, you can drag the rectangle to locate it at any position of the video, move the slide to set the start and end time of the annotation ![](https://images.wondershare.com/filmora/article-images/add-annotation-to-youtube-1.jpg)
 
 * Apply changes
 
@@ -141,3 +131,24 @@ Follow @Richard Bennett
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-tips.techidaily.com/approved-tailoring-textual-terminals/"><u>2024 Approved  Tailoring Textual Terminals</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/r-journey-begins-with-these-top-titles-for-2024/"><u>[New] VR Journey Begins with These TOP Titles for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-transforming-trending-searches-into-video-concepts/"><u>[Updated] Transforming Trending Searches Into Video Concepts</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-the-complete-blueprint-for-success-adding-channels-as-features-on-youtube-for-2024/"><u>[Updated] The Complete Blueprint for Success  Adding Channels as Features on Youtube for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-quick-growing-yt-sources-sparking-mental-flourish/"><u>[Updated] Quick-Growing YT Sources Sparking Mental Flourish</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/24-instantaneity-in-playlist-dissemination-webby/"><u>In 2024, Instantaneity in Playlist Dissemination Webby</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/gaining-thunder-in-the-video-cosmos-for-2024/"><u>Who's Gaining Thunder in the Video Cosmos for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-starting-off-determining-your-creative-passion/"><u>[Updated] Starting Off  Determining Your Creative Passion</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/tackling-problems-with-instagrams-video-feature-for-2024/"><u>Tackling Problems with Instagram's Video Feature for 2024</u></a></li>
+<li><a href="https://extra-support.techidaily.com/in-2024-revolutionary-iphone-techniques-for-photo-collage-connoisseurs/"><u>In 2024, Revolutionary iPhone Techniques for Photo Collage Connoisseurs</u></a></li>
+<li><a href="https://ai-video-editing.techidaily.com/in-2024-how-to-calculate-and-change-video-aspect-ratio-online/"><u>In 2024, How to Calculate & Change Video Aspect Ratio Online</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/updated-in-2024-top-10-forgetful-fun-mobile-idle-escapes/"><u>[Updated] In 2024, Top 10 Forgetful Fun  Mobile Idle Escapes</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/2024-approved-mastering-hd-video-the-best-android-players/"><u>2024 Approved  Mastering HD Video  The Best Android Players</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/urban-adventure-top-games-similar-to-gta-v/"><u>Urban Adventure  Top Games Similar to GTA V</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-2024-approved-bridging-the-gap-connecting-instagram-to-your-facebook-account/"><u>[New] 2024 Approved  Bridging the Gap  Connecting Instagram to Your Facebook Account</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-in-2024-instagrams-pathway-including-vimeo-videos/"><u>[New] In 2024, Instagram's Pathway  Including Vimeo Videos</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/breakdown-of-leading-free-video-conferencing-services-for-commercial-and-academic-use-for-2024/"><u>Breakdown of Leading Free Video Conferencing Services for Commercial and Academic Use for 2024</u></a></li>
+</ul></div>

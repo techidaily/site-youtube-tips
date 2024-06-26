@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Keep Watching YouTube On-the-Go with iPhone/Android\""
-date: 2024-06-19 20:50:34
-updated: 2024-06-21 12:59:56
+date: 2024-06-25T17:35:47.816Z
+updated: 2024-06-26T17:35:47.816Z
 tags:
   - ai video
   - ai youtube
@@ -16,9 +16,7 @@ thumbnail: https://thmb.techidaily.com/a68c5c5018f608284d7af133f2911830741f89825
 
 ## Keep Watching YouTube On-the-Go with iPhone/Android
 
-# How to Play YouTube in Background on iPhone and Android
-
-![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+# How to Play YouTube in Background on iPhone and Android ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
 
@@ -48,7 +46,7 @@ Once you have subscribed for the YouTube Premium Individual plan, and downloaded
 
 Launch **YouTube Music**, search for your favorite music using the **Search** icon at the top-right corner, tap the song in the suggestions list, and then tap the name of the track to start playing.
 
-![ YouTube Premium Play Music background](https://images.wondershare.com/filmora/article-images/youtube-premium-play-music-background.jpg)
+![YouTube Premium Play Music background](https://images.wondershare.com/filmora/article-images/youtube-premium-play-music-background.jpg)
 
 ### Step 2: Switch to Audio Only (Optional)
 
@@ -84,7 +82,7 @@ The process to **play YouTube in background** on an Android smartphone is slight
 
 Launch Google Chrome (default) on your Android phone, and go to [**www.youtube.com**](https://www.youtube.com). Click the **More options** icon (with three vertically aligned dots) from the top-right corner of the browser, and check the **Desktop site** box from the menu that appears.
 
-![ Switch to YouTube desktop site on Android](https://images.wondershare.com/filmora/article-images/switch-to-desktop-site-youtube.jpg)
+![Switch to YouTube desktop site on Android](https://images.wondershare.com/filmora/article-images/switch-to-desktop-site-youtube.jpg)
 
 ### Step 2: Search for and Stream a Video
 
@@ -94,21 +92,21 @@ Use the **Search** bar at the top of the interface to search for and tap the vid
 
 Once the video starts streaming, get back to the Home screen, pull down the **Notification** bar from the top (if the streaming stops), and press the **Play** button to **play YouTube in background** on your Android smartphone.
 
-![ Play YouTube  background on Android](https://images.wondershare.com/filmora/article-images/play-youtube-background-android.jpg)
+![Play YouTube  background on Android](https://images.wondershare.com/filmora/article-images/play-youtube-background-android.jpg)
 
 ## 3 Best Apps to Play YouTube Videos in Background on Android
 
 Instead of using the above workaround on Android, if you want something simpler and more straightforward, there are a few apps that can help you **play YouTube videos in background**. Some of the most used programs are listed below:
 
-### [VLC for Android](https://play.google.com/store/apps/details?id=org.videolan.vlc&hl=en%5Fus)
+### VLC for Android
 
 Being one of the most versatile media playing software, VLC needs no introduction, and icing on the cake was added when the program was made available on Google Play Store. After you have installed VLC on your Android phone, you can launch the YouTube app, search for and tap the video you want to play in the background, tap the streaming video, tap the ‘More options’ icon from the top-right corner, and tap ‘Play in VLC’ from the available options.
 
-### [Minimize play in background](https://play.google.com/store/apps/details?id=de.kostenlose.musik.app&hl=en%5FUS)
+### Minimize play in background
 
 This app does exactly what its name suggests. The program has a ‘Minimize player’ mode that allows you to stream YouTube videos in a small window that reduces its size and resides at the bottom of the screen, thus letting you use your Android phone for other important tasks simultaneously.
 
-### [Background player for YouTube Vanced minimizer](https://play.google.com/store/apps/details?id=com.free.music.app&hl=en%5Fus)
+### Background player for YouTube Vanced minimizer
 
 Yet another app available on Google Play Store that lets you search for your favorite videos on YouTube, stream them, and then minimize the player to a floating window that goes down to the bottom of the screen. This lets you **play YouTube in background** in order to allow you to use your phone for other tasks.
 
@@ -143,3 +141,27 @@ Follow @Richard Bennett
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-tips.techidaily.com/emove-inconvenient-black-edges-from-youtube-videos-for-2024/"><u>[New] Remove Inconvenient Black Edges From YouTube Videos for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-youtube-earnings-per-watch-average-income-breakdown-for-2024/"><u>[Updated] YouTube Earnings per Watch  Average Income Breakdown for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/approved-youtube-copyright-laws-and-content-capture/"><u>2024 Approved  YouTube Copyright Laws and Content Capture</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-soundscape-sanctuary-free-high-resolution-dj-videos-available/"><u>[Updated] Soundscape Sanctuary  Free High-Resolution DJ Videos Available</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/lawless-free-download-of-youtube-video-covers-no-hurdles-in-2024/"><u>[New] Flawless Free Download of YouTube Video Covers - No Hurdles, In 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-in-2024-the-insiders-guide-to-online-video-affiliates/"><u>[Updated] In 2024, The Insider’s Guide to Online Video Affiliates</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/024-approved-ultimate-guide-to-easy-youtube-subtitle-and-closed-caption-addition/"><u>[New] 2024 Approved  Ultimate Guide to Easy YouTube Subtitle and Closed Caption Addition</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-strategic-approach-to-dealing-with-youtube-copyright-claims-for-2024/"><u>[Updated] Strategic Approach to Dealing With YouTube Copyright Claims for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-the-essential-how-to-for-youtube-comment-control/"><u>[Updated] The Essential How-To for YouTube Comment Control</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-crafting-a-winning-strategy-youtube-keyword-mastery-explained-for-2024/"><u>[Updated] Crafting a Winning Strategy  YouTube Keyword Mastery Explained for 2024</u></a></li>
+<li><a href="https://smart-video-editing.techidaily.com/updated-2024-approved-discover-the-power-of-open-source-best-free-video-editors/"><u>Updated 2024 Approved Discover the Power of Open-Source Best Free Video Editors</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/ultimate-guide-to-get-the-meltan-box-pokemon-go-for-poco-f5-5g-drfone-by-drfone-virtual-android/"><u>Ultimate guide to get the meltan box pokemon go For Poco F5 5G | Dr.fone</u></a></li>
+<li><a href="https://sound-tweaking.techidaily.com/updated-in-2024-the-ultimate-tutorial-on-morphvox-for-enhancing-gaming-experience-through-vocal-alteration/"><u>Updated In 2024, The Ultimate Tutorial on Morphvox for Enhancing Gaming Experience Through Vocal Alteration</u></a></li>
+<li><a href="https://ai-editing-video.techidaily.com/new-in-2024-6-instant-mp4-to-gif-online-tools-for-you/"><u>New In 2024, 6 Instant Mp4 to GIF Online Tools for You</u></a></li>
+<li><a href="https://android-location.techidaily.com/9-best-free-android-monitoring-apps-to-monitor-phone-remotely-for-your-honor-80-pro-straight-screen-edition-drfone-by-drfone-virtual/"><u>9 Best Free Android Monitoring Apps to Monitor Phone Remotely For your Honor 80 Pro Straight Screen Edition | Dr.fone</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-online-no-cost-fb-sound-archive/"><u>[New] Online, No Cost FB Sound Archive</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-2024-approved-spotlight-the-25-influencers-redefining-engagement/"><u>[Updated] 2024 Approved  Spotlight  The 25 Influencers Redefining Engagement</u></a></li>
+<li><a href="https://extra-information.techidaily.com/best-15-audio-broadcast-networks-for-2024/"><u>Best 15 Audio Broadcast Networks for 2024</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/new-in-2024-master-mac-gif-archiver/"><u>[New] In 2024, Master Mac GIF Archiver</u></a></li>
+<li><a href="https://fake-location.techidaily.com/wondering-the-best-alternative-to-hola-on-samsung-galaxy-a05s-here-is-the-answer-drfone-by-drfone-virtual-android/"><u>Wondering the Best Alternative to Hola On Samsung Galaxy A05s? Here Is the Answer | Dr.fone</u></a></li>
+</ul></div>

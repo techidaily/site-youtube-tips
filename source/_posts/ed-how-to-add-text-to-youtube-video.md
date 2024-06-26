@@ -1,7 +1,7 @@
 ---
 title: "[Updated] How to Add Text to YouTube Video"
-date: 2024-06-24 16:46:42
-updated: 2024-06-26 12:11:17
+date: 2024-06-25T17:25:34.037Z
+updated: 2024-06-26T17:25:34.037Z
 tags:
   - ai video
   - ai youtube
@@ -16,9 +16,7 @@ thumbnail: https://thmb.techidaily.com/5565177be356d6fd1f6d2b58dc2046c46dae91381
 
 ## How to Add Text to YouTube Video
 
-# How to Add Text to YouTube Video Before or After Uploading
-
-![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+# How to Add Text to YouTube Video Before or After Uploading ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
 
@@ -34,11 +32,11 @@ A great way to emphasize something you say in your vlog is to [have your words a
 
 Before uploading the video to YouTube, it is recommended to add text to the video first. You can add simple texts and captions to videos with the free video editing software. To add more text effects to the video, you can use Filmora, Sony Vegas Movie Studio and Adobe Premiere CC based on your video editing skills and needs. These software programs are great video editors, which can help you input text easily.
 
-#### 1\.  Use [Filmora](https://tools.techidaily.com/wondershare/filmora/download/)to Add text to Videos
+#### 1\.  Use Filmora
 
 There are plenty of Text effects built in Filmora, you can apply motions and animation to texts, titles, subtitles, end credits and openers as well. Each title preset will present different effects. You can add multiple text boxes and place the text to any position in need. Besides writing texts to video, you can select the target font, size and color and customize the text effect in detail as well. To add text to a video in Filmora is easy, just follow the steps below:
 
-![ Add Text to Video ](https://images.wondershare.com/filmora/article-images/filmora-advanced-text-edit-interface.jpg)
+![Add Text to Video](https://images.wondershare.com/filmora/article-images/filmora-advanced-text-edit-interface.jpg)
 
 * Open up Filmora and drag a clip into your timeline. Then, go to   **Text/Credit.**
 * Find a style that you like and drag it into your timeline where you want your text to appear. Make sure your text is selected in your timeline and click the   **Advanced Text Editing** icon, which looks like a pen and paper.
@@ -54,7 +52,7 @@ There are plenty of Text effects built in Filmora, you can apply motions and ani
 
 As a simple video editing software, Windows Movie Maker also allows you to add text to videos. It provides 3 different options for you to add Title, Caption and Credits to the YouTube videos. You can follow the steps below to add text to the video in WMM.
 
-![ add text in WMM ](https://images.wondershare.com/filmora/article-images/add-text-in-wmm.jpg)
+![add text in WMM](https://images.wondershare.com/filmora/article-images/add-text-in-wmm.jpg)
 
 * To start, launch the Windows Movie Maker.
 * After, select import video to insert the video that you want to add text with.
@@ -67,7 +65,7 @@ For the step by step tutorial of adding text to YouTube video, check [How to Add
 
 [Adding text to YouTube videos in Sony Vegas](https://tools.techidaily.com/wondershare/filmora/download/) is not so complicated if you are new to this software. You can adjust the color, size, font and duration of the text effect and add fade in and fade out effects. Follow the steps below to add texts to video in Vegas:
 
-![ Add Text to Video ](https://images.wondershare.com/filmora/article-images/add-text-in-vegas-pro-2.jpg)
+![Add Text to Video](https://images.wondershare.com/filmora/article-images/add-text-in-vegas-pro-2.jpg)
 
 * Launch Sony Vegas Movie Studio.
 * Click the View Menu then select Media Generators.
@@ -94,15 +92,13 @@ Of course, you can only add and edit texts and captions to the video under your 
 
 * Go to [youtube.com](https://www.youtube.com/) then sign in to your account. After sign in your YouTube account, click your avatar and select **Creator Studio** to enter the creator studio interface.
 * Click the **Video Manager** tab and in Videos section you will see all your videos uploaded to YouTube. Select the video that you want to add captions to and then select **Subtitles/CC** after clicking Edit button.
-* Add Captions/Subtitles
-
-![ Add Text to Video ](https://images.wondershare.com/filmora/article-images/add-text-youtube-video-editor.jpg)
+* Add Captions/Subtitles ![Add Text to Video](https://images.wondershare.com/filmora/article-images/add-text-youtube-video-editor.jpg)
 
 While YouTube may have already created the subtitles automatically for your video with its speech recognition technology. If it does, you will see something like Published: English (Automatic) to the right of your video. If the automatically generated subtitles is not correct, you can edit it to improve the accuracy. Select the line that needs modification to make the edits.
 
 If there is no auto-subtitles, you can choose from 3 ways to add subtitles and closed captions to the video: Upload a file, Transcribe and auto-sync and create new subtitles or CC.
 
-![ Add Text to Video ](https://images.wondershare.com/filmora/article-images/3-ways-to-add-youtube-subtitles.jpg)
+![Add Text to Video](https://images.wondershare.com/filmora/article-images/3-ways-to-add-youtube-subtitles.jpg)
 
 **Upload a file:** upload a text transcript or timed subtitles file.
 
@@ -165,3 +161,23 @@ Follow @Richard Bennett
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-tips.techidaily.com/ed-prime-tools-turning-youtube-videos-into-text/"><u>[Updated] Prime Tools  Turning YouTube Videos Into Text</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/24-the-ultimate-tutorial-for-professional-looking-youtube-channels/"><u>In 2024, The Ultimate Tutorial for Professional-Looking YouTube Channels</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-youtube-descriptions-revamped-by-template-professionals/"><u>[Updated] YouTube Descriptions Revamped by Template Professionals</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-swift-rescaling-perfect-mac-pixels-with-youtube/"><u>[New] In 2024, Swift Rescaling  Perfect Mac Pixels with YouTube</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/artner-filmmaking-for-channelnode-increase-strategies-for-2024/"><u>[New] Partner Filmmaking for Channelnode Increase Strategies for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ing-revenue-how-much-do-creators-earn-on-youtube-in-2024/"><u>Decoding Revenue  How Much Do Creators Earn on Youtube, In 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-the-next-generation-of-video-communities-post-youtube/"><u>[Updated] The Next Generation of Video Communities Post-YouTube</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-2024-approved-navigating-iphones-most-popular-watermarking-software-solutions/"><u>[New] 2024 Approved  Navigating iPhone's Most Popular Watermarking Software Solutions</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/uick-video-value-calculation-tools-for-2024/"><u>[New] Quick Video Value Calculation Tools for 2024</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/top-8-youtube-thumbnail-grabbers/"><u>Top 8 YouTube Thumbnail Grabbers</u></a></li>
+<li><a href="https://ai-video-editing.techidaily.com/updated-2024-approved-heres-all-about-gif-keyboard-youll-ever-want-to-know/"><u>Updated 2024 Approved Heres All About GIF Keyboard Youll Ever Want to Know</u></a></li>
+<li><a href="https://ai-editing-video.techidaily.com/new-2024-approved-easy-steps-to-make-glitch-effect-with-filmora/"><u>New 2024 Approved Easy Steps to Make Glitch Effect with Filmora</u></a></li>
+<li><a href="https://extra-support.techidaily.com/leveraging-secondary-footage-for-visual-impact-for-2024/"><u>Leveraging Secondary Footage for Visual Impact for 2024</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/a-working-guide-for-pachirisu-pokemon-go-map-on-motorola-moto-g84-5g-drfone-by-drfone-virtual-android/"><u>A Working Guide For Pachirisu Pokemon Go Map On Motorola Moto G84 5G | Dr.fone</u></a></li>
+<li><a href="https://extra-information.techidaily.com/exploring-virtual-worlds-with-samsung-gear-vr-games/"><u>Exploring Virtual Worlds with Samsung Gear VR Games</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/historical-wisdom-on-youtube-for-students/"><u>Historical Wisdom on YouTube for Students</u></a></li>
+</ul></div>

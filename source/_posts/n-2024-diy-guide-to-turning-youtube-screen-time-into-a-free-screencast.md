@@ -1,7 +1,7 @@
 ---
 title: "[New] In 2024, DIY Guide to Turning YouTube Screen Time Into a FREE Screencast"
-date: 2024-06-22 10:40:54
-updated: 2024-06-24 12:19:32
+date: 2024-06-25T17:22:45.404Z
+updated: 2024-06-26T17:22:45.404Z
 tags:
   - ai video
   - ai youtube
@@ -16,9 +16,7 @@ thumbnail: https://thmb.techidaily.com/b60c1fc9251ee88631c28dd2623940b69aaa41245
 
 ## DIY Guide to Turning YouTube Screen Time Into a FREE Screencast
 
-# How To Record Screencast From YouTube For Free
-
-![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
+# How To Record Screencast From YouTube For Free ![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
 
 ##### Max Wales
 
@@ -45,9 +43,7 @@ For Win 7 or later (64-bit)
 
 [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/)
 
-For macOS 10.12 or later
-
-![secure download](https://static.wondershare.com/images-filmora/images/common/securety.svg)Secure Download
+For macOS 10.12 or later ![secure download](https://static.wondershare.com/images-filmora/images/common/securety.svg) Secure Download
 
 ## Recording Screencast Video with YouTube
 
@@ -55,13 +51,13 @@ Step 1: Open YouTube on your computer and sign by using your Google Account. On 
 
 Step 2: On the create an event page, add a title for your screencast video; set privacy terms and then hit “Go Live Now” option.
 
-![YouTube ScreenCast ](https://images.wondershare.com/filmora/article-images/youtube-screencast-events.jpg)
+![YouTube ScreenCast](https://images.wondershare.com/filmora/article-images/youtube-screencast-events.jpg)
 
 Step 3: The Hangout on Air page will get opened. It will allow you to select-deselect webcam recording as well as mic recording.
 
 Step 4: Hit the screen share button from the left toolbox and choose the desktop window that you wish to record. Now press start the Broadcast button to start screen recording. Note that it is a private session that cannot be watched by anyone else.
 
-![YouTube ScreenCast ](https://images.wondershare.com/filmora/article-images/youtube-screencast-hangouts.jpg)
+![YouTube ScreenCast](https://images.wondershare.com/filmora/article-images/youtube-screencast-hangouts.jpg)
 
 Step 5: When your video is ready to go to YouTube video dashboard and choose your recent screencast video. Download it to Google Drive and share it with the world.
 
@@ -113,3 +109,26 @@ Follow @Max Wales
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-tips.techidaily.com/approved-profit-in-the-space-time-continuum-the-art-of-creating-earning-rich-content/"><u>2024 Approved  Profit in the Space-Time Continuum  The Art of Creating Earning-Rich Content</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/approved-viewer-growth-strategy-dynamic-description-templates-for-youtube-success/"><u>2024 Approved  Viewer Growth Strategy  Dynamic Description Templates for YouTube Success</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-how-to-create-youtube-channel-in-mobile-personal-and-business/"><u>[Updated] How to Create YouTube Channel in Mobile [Personal & Business]</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-navigate-to-noteworthy-youtube-commentaries/"><u>[Updated] Navigate to Noteworthy YouTube Commentaries</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/24-the-complete-2023-youtubers-handbook-for-rotated-content/"><u>In 2024, The Complete 2023 Youtuber's Handbook for Rotated Content</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-initiate-your-journey-into-asmr-filming-essential-insights-revealed-for-2024/"><u>[Updated] Initiate Your Journey Into ASMR Filming – Essential Insights Revealed for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-maximizing-engagement-youtube-links-as-a-catalyst/"><u>[Updated] Maximizing Engagement  YouTube Links as a Catalyst</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-unboxing-premium-game-devices-youtube-edition/"><u>[New] In 2024, Unboxing Premium Game Devices  YouTube Edition</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-unleashing-your-creative-spark-stylistic-self-discovery-high-ctr-for-2024/"><u>[Updated] Unleashing Your Creative Spark  Stylistic Self-Discovery [High CTR] for 2024</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/updated-quicken-your-visual-content-best-android-software/"><u>[Updated] Quicken Your Visual Content - Best Android Software</u></a></li>
+<li><a href="https://blog-min.techidaily.com/5-ways-to-teach-you-to-transfer-files-from-poco-x6-to-other-android-devices-easily-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>5 Ways To Teach You To Transfer Files from Poco X6 to Other Android Devices Easily | Dr.fone</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-how-to-use-pokemon-go-joystick-on-vivo-y78plus-drfone-by-drfone-virtual-android/"><u>In 2024, How to use Pokemon Go Joystick on Vivo Y78+? | Dr.fone</u></a></li>
+<li><a href="https://voice-adjusting.techidaily.com/new-mastering-mp4-music-a-collection-of-streamlined-audio-extraction-procedures-set/"><u>New Mastering MP4 Music A Collection of Streamlined Audio Extraction Procedures Set</u></a></li>
+<li><a href="https://ai-video-tools.techidaily.com/new-visual-vibes-mastering-trendy-video-effects/"><u>New Visual Vibes Mastering Trendy Video Effects</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-the-leading-8-linux-programs-for-screenshots/"><u>[Updated] The Leading 8 Linux Programs for Screenshots</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-task-mastery-top-picks-for-efficient-calendar-management-in-fb-for-2024/"><u>[New] Task Mastery  Top Picks for Efficient Calendar Management in FB for 2024</u></a></li>
+<li><a href="https://android-frp.techidaily.com/in-2024-easy-guide-to-nokia-c12-frp-bypass-with-best-methods-by-drfone-android/"><u>In 2024, Easy Guide to Nokia C12 FRP Bypass With Best Methods</u></a></li>
+<li><a href="https://video-creation-software.techidaily.com/updated-many-people-think-that-there-isnt-a-lot-of-good-video-editing-software-for-ubuntu-but-this-isnt-true-here-we-will-cover-the-best-ubuntu-video-editor/"><u>Updated Many People Think that There Isnt a Lot of Good Video Editing Software for Ubuntu, but This Isnt True. Here We Will Cover the Best Ubuntu Video Editor for Your Convenience for 2024</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-unveiling-hidden-shared-memories-in-messenger/"><u>[Updated] Unveiling Hidden Shared Memories in Messenger</u></a></li>
+</ul></div>
