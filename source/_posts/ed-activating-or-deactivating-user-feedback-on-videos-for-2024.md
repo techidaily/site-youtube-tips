@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Activating or Deactivating User Feedback on Videos for 2024"
-date: 2024-06-25T18:05:34.459Z
-updated: 2024-06-26T18:05:34.459Z
+date: 2024-07-03T12:55:37.709Z
+updated: 2024-07-04T12:55:37.709Z
 tags:
   - ai video
   - ai youtube
@@ -16,7 +16,8 @@ thumbnail: https://thmb.techidaily.com/5ee746dbc8ada474503544ca04e806e436db5d410
 
 ## Activating or Deactivating User Feedback on Videos
 
-# How to Turn on or off Comments on YouTube ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
+# How to Turn on or off Comments on YouTube
+![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
 
 ##### Liza Brown
 

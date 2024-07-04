@@ -1,7 +1,7 @@
 ---
 title: "\"In 2024, Time Allocation Mastery  Work & YouTube Synergy\""
-date: 2024-06-25T17:48:08.829Z
-updated: 2024-06-26T17:48:08.829Z
+date: 2024-07-03T12:55:36.598Z
+updated: 2024-07-04T12:55:36.598Z
 tags:
   - ai video
   - ai youtube
@@ -16,7 +16,8 @@ thumbnail: https://thmb.techidaily.com/8d6fc5e965f8f403ab26d9d65a1bca0fa8c0fcf47
 
 ## Time Allocation Mastery: Work & YouTube Synergy
 
-# How to balance YouTube with a Full-Time Job ![](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+# How to balance YouTube with a Full-Time Job
+![](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
 

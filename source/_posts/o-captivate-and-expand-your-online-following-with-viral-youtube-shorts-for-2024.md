@@ -1,7 +1,7 @@
 ---
 title: "How to Captivate and Expand Your Online Following with Viral YouTube Shorts for 2024"
-date: 2024-06-25T17:41:38.837Z
-updated: 2024-06-26T17:41:38.837Z
+date: 2024-07-03T12:55:38.353Z
+updated: 2024-07-04T12:55:38.353Z
 tags:
   - ai video
   - ai youtube
@@ -16,7 +16,8 @@ thumbnail: https://thmb.techidaily.com/1df433206ff11dec7faaaf54cae7b4a5f98f51a6c
 
 ## How to Captivate and Expand Your Online Following with Viral YouTube Shorts
 
-# How to Get More Views with YouTube Shorts ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+# How to Get More Views with YouTube Shorts
+![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
 
@@ -39,7 +40,8 @@ Comparatively different from other videos, the ones that are added under the ‘
 
 ![filmora logo](https://neveragain.allstatics.com/2019/assets/icon/logo/filmora-horizontal.svg)
 
-## A cross-platform for making videos anywhere for all creators ![filmora-02](https://images.wondershare.com/filmora/filmora12/side_brand_filmora12.png)
+## A cross-platform for making videos anywhere for all creators
+![filmora-02](https://images.wondershare.com/filmora/filmora12/side_brand_filmora12.png)
 
  Why your video editing isn't good enough? How about some creative inspo?
 

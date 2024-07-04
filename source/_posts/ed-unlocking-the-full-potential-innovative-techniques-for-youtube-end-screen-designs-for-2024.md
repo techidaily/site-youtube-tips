@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Unlocking the Full Potential  Innovative Techniques for Youtube End Screen Designs for 2024\""
-date: 2024-06-25T17:17:21.490Z
-updated: 2024-06-26T17:17:21.490Z
+date: 2024-07-03T12:55:38.774Z
+updated: 2024-07-04T12:55:38.774Z
 tags:
   - ai video
   - ai youtube
@@ -16,7 +16,8 @@ thumbnail: https://thmb.techidaily.com/4813724d53b5cad6b133b133522844cf1838d9743
 
 ## Unlocking the Full Potential: Innovative Techniques for Youtube End Screen Designs
 
-# How to Add YouTube End Screen and Cards Effectively ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+# How to Add YouTube End Screen and Cards Effectively
+![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
 

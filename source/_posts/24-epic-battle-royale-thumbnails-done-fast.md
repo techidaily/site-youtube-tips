@@ -1,7 +1,7 @@
 ---
 title: "In 2024, Epic Battle Royale Thumbnails, Done Fast!"
-date: 2024-06-25T17:18:27.130Z
-updated: 2024-06-26T17:18:27.130Z
+date: 2024-07-03T12:55:38.615Z
+updated: 2024-07-04T12:55:38.615Z
 tags:
   - ai video
   - ai youtube
@@ -16,7 +16,8 @@ thumbnail: https://thmb.techidaily.com/6d6520e192a843298c5f3fb60d79f701e9d849b7c
 
 ## Epic Battle Royale Thumbnails, Done Fast
 
-# How to Make Fortnite Thumbnail for Free and Easy in 2024 ![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
+# How to Make Fortnite Thumbnail for Free and Easy in 2024
+![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
 
 ##### Ollie Mattison
 

@@ -1,7 +1,7 @@
 ---
 title: "Achieving High Clickthrough Rates with YT Thumbnails"
-date: 2024-06-25T18:08:20.981Z
-updated: 2024-06-26T18:08:20.981Z
+date: 2024-07-03T12:55:37.298Z
+updated: 2024-07-04T12:55:37.298Z
 tags:
   - ai video
   - ai youtube
@@ -16,7 +16,8 @@ thumbnail: https://thmb.techidaily.com/6c0361031673718dd65b08f3b6f24eb590de40f0c
 
 ## Achieving High Clickthrough Rates with YT Thumbnails
 
-# Best YouTube Thumbnail Size: How to Make a Thumbnail for YouTube in 2024 ![author avatar](https://images.wondershare.com/filmora/article-images/benjamin-arango-author.jpg)
+# Best YouTube Thumbnail Size: How to Make a Thumbnail for YouTube in 2024
+![author avatar](https://images.wondershare.com/filmora/article-images/benjamin-arango-author.jpg)
 
 ##### Benjamin Arango
 

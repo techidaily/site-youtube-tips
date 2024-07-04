@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] From Raw to Radiant  Youtube's Art of Visual Aesthetic\""
-date: 2024-06-25T17:51:18.935Z
-updated: 2024-06-26T17:51:18.935Z
+date: 2024-07-03T12:55:37.379Z
+updated: 2024-07-04T12:55:37.379Z
 tags:
   - ai video
   - ai youtube
@@ -16,7 +16,8 @@ thumbnail: https://thmb.techidaily.com/bdb8177ec45e10fcd4ec5499f6e255ec00146feb5
 
 ## From Raw to Radiant: Youtube's Art of Visual Aesthetic
 
-# Video Color Correction for YouTube Beauty ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+# Video Color Correction for YouTube Beauty
+![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
 

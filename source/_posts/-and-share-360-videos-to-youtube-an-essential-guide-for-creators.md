@@ -1,7 +1,7 @@
 ---
 title: "\"Craft and Share 360 Videos to YouTube  An Essential Guide for Creators\""
-date: 2024-06-25T18:31:43.087Z
-updated: 2024-06-26T18:31:43.087Z
+date: 2024-07-03T12:55:36.238Z
+updated: 2024-07-04T12:55:36.238Z
 tags:
   - ai video
   - ai youtube
@@ -16,7 +16,8 @@ thumbnail: https://thmb.techidaily.com/0afe01c2e0f6b1c3ba9a8b87db7e0159921da64d2
 
 ## Craft and Share 360 Videos to YouTube: An Essential Guide for Creators
 
-# 360 Video Editors: How to Upload 360 Video to YouTube ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+# 360 Video Editors: How to Upload 360 Video to YouTube
+![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
 

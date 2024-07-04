@@ -1,7 +1,7 @@
 ---
 title: "In 2024, No Money, No Problem! Your Guide to Free YouTube Ads"
-date: 2024-06-25T17:59:02.483Z
-updated: 2024-06-26T17:59:02.483Z
+date: 2024-07-03T12:55:38.272Z
+updated: 2024-07-04T12:55:38.272Z
 tags:
   - ai video
   - ai youtube
@@ -16,7 +16,8 @@ thumbnail: https://thmb.techidaily.com/80bf249edf159410e9b0aa240c01664195ceb40e2
 
 ## No Money, No Problem! Your Guide to Free YouTube Ads
 
-# How to Create Video Ads for Free in YouTube Video Builder ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+# How to Create Video Ads for Free in YouTube Video Builder
+![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
 

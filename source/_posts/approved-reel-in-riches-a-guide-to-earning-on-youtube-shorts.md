@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Reel In Riches  A Guide to Earning on YouTube Shorts\""
-date: 2024-06-25T17:30:55.852Z
-updated: 2024-06-26T17:30:55.852Z
+date: 2024-07-03T12:55:36.323Z
+updated: 2024-07-04T12:55:36.323Z
 tags:
   - ai video
   - ai youtube
@@ -61,7 +61,8 @@ Once you meet the eligibility criteria, you will be required to follow certain g
 
 Can you monetize YouTube shorts? Yes, in more than one way. The easiest is through the ad-revenue sharing model. Follow these steps to become part of the YPP and start monetizing your Shorts on YouTube:
 
-##### Step 1Sign in to YouTube ![youtube sign in](https://images.wondershare.com/filmora/article-images/2023/how-to-make-money-from-youtube-shorts-requirements-and-earning-potential-2.JPG)
+##### Step 1Sign in to YouTube
+![youtube sign in](https://images.wondershare.com/filmora/article-images/2023/how-to-make-money-from-youtube-shorts-requirements-and-earning-potential-2.JPG)
 
 ##### Step 2Select YouTube Studio
 

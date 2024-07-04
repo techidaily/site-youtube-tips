@@ -1,7 +1,7 @@
 ---
 title: "\"Dismantle That Dominating Green Distortion in Mac-Based Videos\""
-date: 2024-06-25T17:57:15.894Z
-updated: 2024-06-26T17:57:15.894Z
+date: 2024-07-03T12:55:39.444Z
+updated: 2024-07-04T12:55:39.444Z
 tags:
   - ai video
   - ai youtube
@@ -16,7 +16,8 @@ thumbnail: https://thmb.techidaily.com/42d888d9431637ab1388aeb276d6888b24b9d1d85
 
 ## Dismantle That Dominating Green Distortion in Mac-Based Videos
 
-# How to Fix the Green Screen on YouTube on Mac ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+# How to Fix the Green Screen on YouTube on Mac
+![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
 

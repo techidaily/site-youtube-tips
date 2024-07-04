@@ -1,7 +1,7 @@
 ---
 title: "\"Legal Landscapes  Understanding YouTube & CC Divergences\""
-date: 2024-06-25T17:22:11.785Z
-updated: 2024-06-26T17:22:11.785Z
+date: 2024-07-03T12:55:37.720Z
+updated: 2024-07-04T12:55:37.720Z
 tags:
   - ai video
   - ai youtube
@@ -16,7 +16,8 @@ thumbnail: https://thmb.techidaily.com/3322edcb2b3700ce4baa5c0677a8f300e23dbf74c
 
 ## Legal Landscapes: Understanding YouTube & CC Divergences
 
-# Standard YouTube License vs. Creative Commons ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+# Standard YouTube License vs. Creative Commons
+![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
 

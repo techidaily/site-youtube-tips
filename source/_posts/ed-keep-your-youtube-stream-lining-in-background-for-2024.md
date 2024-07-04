@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Keep Your YouTube Stream Lining in Background for 2024"
-date: 2024-06-25T17:29:37.944Z
-updated: 2024-06-26T17:29:37.944Z
+date: 2024-07-03T12:55:38.366Z
+updated: 2024-07-04T12:55:38.366Z
 tags:
   - ai video
   - ai youtube
@@ -16,7 +16,8 @@ thumbnail: https://thmb.techidaily.com/c9a47d41b34d7090487ad8a1c43825738349119fb
 
 ## Keep Your YouTube Stream Lining in Background
 
-# How to Play YouTube in Background on iPhone and Android ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+# How to Play YouTube in Background on iPhone and Android
+![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
 

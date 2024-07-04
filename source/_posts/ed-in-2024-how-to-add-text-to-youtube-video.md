@@ -1,7 +1,7 @@
 ---
 title: "[Updated] In 2024, How to Add Text to YouTube Video"
-date: 2024-06-25T18:18:04.977Z
-updated: 2024-06-26T18:18:04.977Z
+date: 2024-07-03T12:55:39.343Z
+updated: 2024-07-04T12:55:39.343Z
 tags:
   - ai video
   - ai youtube
@@ -16,7 +16,8 @@ thumbnail: https://thmb.techidaily.com/8b3d2d47a5002bc66759eafaa4c246c7aaef6efd4
 
 ## How to Add Text to YouTube Video
 
-# How to Add Text to YouTube Video Before or After Uploading ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+# How to Add Text to YouTube Video Before or After Uploading
+![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
 

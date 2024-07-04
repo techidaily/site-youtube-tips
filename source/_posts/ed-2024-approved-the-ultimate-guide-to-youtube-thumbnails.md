@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  The Ultimate Guide to YouTube Thumbnails\""
-date: 2024-06-25T17:58:30.419Z
-updated: 2024-06-26T17:58:30.419Z
+date: 2024-07-03T12:55:37.610Z
+updated: 2024-07-04T12:55:37.610Z
 tags:
   - ai video
   - ai youtube
@@ -16,7 +16,8 @@ thumbnail: https://thmb.techidaily.com/c7f5000e41b71ee026b5d1dc2b4d2e4d8155a2a1a
 
 ## The Ultimate Guide to YouTube Thumbnails
 
-# The Ultimate Guide to YouTube Thumbnails that Get Views ![](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+# The Ultimate Guide to YouTube Thumbnails that Get Views
+![](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
 

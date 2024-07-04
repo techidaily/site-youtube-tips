@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Mastering YouTube Channel Lockdowns  Device-Specific Tips for 2024\""
-date: 2024-06-25T18:24:11.908Z
-updated: 2024-06-26T18:24:11.908Z
+date: 2024-07-03T12:55:39.510Z
+updated: 2024-07-04T12:55:39.510Z
 tags:
   - ai video
   - ai youtube
@@ -16,7 +16,8 @@ thumbnail: https://thmb.techidaily.com/aef257ce3a4717ff2a174fecf2a8bdf62b913152d
 
 ## Mastering YouTube Channel Lockdowns: Device-Specific Tips
 
-# How to Block YouTube Channels on Computer and Mobile Phones ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+# How to Block YouTube Channels on Computer and Mobile Phones
+![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
 

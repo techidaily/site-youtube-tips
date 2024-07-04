@@ -1,7 +1,7 @@
 ---
 title: "\"Mastering Your Setup  Essential Shooting Accessories\""
-date: 2024-06-25T18:18:28.794Z
-updated: 2024-06-26T18:18:28.794Z
+date: 2024-07-03T12:55:39.080Z
+updated: 2024-07-04T12:55:39.080Z
 tags:
   - ai video
   - ai youtube
@@ -16,7 +16,8 @@ thumbnail: https://thmb.techidaily.com/ef9be7780d43a1d277262443e1e1ad4f9cd5011c4
 
 ## Mastering Your Setup: Essential Shooting Accessories
 
-# YouTube Video Shooting Equipment List: What You Need to Start Recording Videos ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+# YouTube Video Shooting Equipment List: What You Need to Start Recording Videos
+![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
 

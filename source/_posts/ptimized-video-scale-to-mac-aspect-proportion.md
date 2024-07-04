@@ -1,7 +1,7 @@
 ---
 title: "[New] Optimized Video Scale to Mac Aspect Proportion"
-date: 2024-06-25T18:18:26.930Z
-updated: 2024-06-26T18:18:26.930Z
+date: 2024-07-03T12:55:37.370Z
+updated: 2024-07-04T12:55:37.370Z
 tags:
   - ai video
   - ai youtube
@@ -16,7 +16,8 @@ thumbnail: https://thmb.techidaily.com/03b9d4f25f53b702691684fe2aacadda124f8e51c
 
 ## Optimized Video Scale to Mac Aspect Proportion
 
-# Quick Resize YouTube Videos to Right Aspect Ratio on Mac ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
+# Quick Resize YouTube Videos to Right Aspect Ratio on Mac
+![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
 
 ##### Liza Brown
 

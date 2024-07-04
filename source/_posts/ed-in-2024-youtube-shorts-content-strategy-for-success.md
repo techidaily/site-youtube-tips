@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] In 2024, YouTube Shorts  Content Strategy for Success\""
-date: 2024-06-25T17:41:20.254Z
-updated: 2024-06-26T17:41:20.254Z
+date: 2024-07-03T12:55:37.260Z
+updated: 2024-07-04T12:55:37.260Z
 tags:
   - ai video
   - ai youtube
@@ -16,7 +16,8 @@ thumbnail: https://thmb.techidaily.com/af14611bf221d9521ecefac4bb5738408a7016fb6
 
 ## YouTube Shorts: Content Strategy for Success
 
-# All You Need to Know About the YouTube Shorts Fund ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
+# All You Need to Know About the YouTube Shorts Fund
+![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 ##### Shanoon Cox
 

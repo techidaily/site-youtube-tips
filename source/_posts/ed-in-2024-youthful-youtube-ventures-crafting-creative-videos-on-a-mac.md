@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] In 2024, Youthful YouTube Ventures  Crafting Creative Videos on a Mac\""
-date: 2024-06-25T18:29:46.265Z
-updated: 2024-06-26T18:29:46.265Z
+date: 2024-07-03T12:55:36.865Z
+updated: 2024-07-04T12:55:36.865Z
 tags:
   - ai video
   - ai youtube
@@ -16,7 +16,8 @@ thumbnail: https://thmb.techidaily.com/bdb8177ec45e10fcd4ec5499f6e255ec00146feb5
 
 ## Youthful YouTube Ventures: Crafting Creative Videos on a Mac
 
-# How do Beginners Make a Cool Video for YouTube on Mac ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
+# How do Beginners Make a Cool Video for YouTube on Mac
+![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 ##### Shanoon Cox
 

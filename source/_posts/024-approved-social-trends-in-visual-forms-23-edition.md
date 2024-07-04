@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Social Trends in Visual Forms, '23 Edition\""
-date: 2024-06-25T18:02:05.833Z
-updated: 2024-06-26T18:02:05.833Z
+date: 2024-07-03T12:55:37.916Z
+updated: 2024-07-04T12:55:37.916Z
 tags:
   - ai video
   - ai youtube
@@ -16,7 +16,8 @@ thumbnail: https://thmb.techidaily.com/623365f2ffae0d2d8c9a44d31ae5f64f961d3fb3d
 
 ## Social Trends in Visual Forms, '23 Edition
 
-# Infographic - Social Media Trends ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+# Infographic - Social Media Trends
+![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
 

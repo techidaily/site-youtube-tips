@@ -1,7 +1,7 @@
 ---
 title: "[Updated] The Ultimate Guide to Filming for Virality on YouTube"
-date: 2024-06-25T17:28:04.440Z
-updated: 2024-06-26T17:28:04.440Z
+date: 2024-07-03T12:55:38.124Z
+updated: 2024-07-04T12:55:38.124Z
 tags:
   - ai video
   - ai youtube
@@ -16,7 +16,8 @@ thumbnail: https://thmb.techidaily.com/01edaba53137429381532b08b94562d4a741359e1
 
 ## The Ultimate Guide to Filming for Virality on YouTube
 
-# 10 Tips For Shooting Profesional YouTube Videos ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+# 10 Tips For Shooting Profesional YouTube Videos
+![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
 
@@ -80,7 +81,8 @@ thumbnail: https://thmb.techidaily.com/01edaba53137429381532b08b94562d4a741359e1
 
  The best way to deal with out of focus shots is to avoid shooting scenes that include a lot of action because you won't have to pull focus that often.
 
-#### 9. Put The Camera on a Tripod ![Camera tripod](https://images.wondershare.com/filmora/article-images/cartoni-omega-professional-tripod-system.jpg)
+#### 9. Put The Camera on a Tripod
+![Camera tripod](https://images.wondershare.com/filmora/article-images/cartoni-omega-professional-tripod-system.jpg)
 
  The footage you produce should be smooth and free of camera shakes. All video cameras pick up vibrations easily, so even the slightest movement or impact can ruin a shot. Putting the camera on a tripod is one of the best ways to stabilize the shot and avoid camera shaking.
 

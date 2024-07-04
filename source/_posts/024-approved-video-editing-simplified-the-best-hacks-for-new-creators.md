@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Video Editing Simplified  The Best Hacks for New Creators\""
-date: 2024-06-25T17:35:31.582Z
-updated: 2024-06-26T17:35:31.582Z
+date: 2024-07-03T12:55:39.067Z
+updated: 2024-07-04T12:55:39.067Z
 tags:
   - ai video
   - ai youtube
@@ -16,7 +16,8 @@ thumbnail: https://thmb.techidaily.com/e35b3a5c1a462189bf0e7eb85d4007a41df15f6c2
 
 ## Video Editing Simplified: The Best Hacks for New Creators
 
-# YouTube Video Editing Tips for Beginner Editors ![author avatar](https://images.wondershare.fr/filmora/filmora/MarionDubois.jpg)
+# YouTube Video Editing Tips for Beginner Editors
+![author avatar](https://images.wondershare.fr/filmora/filmora/MarionDubois.jpg)
 
 ##### Marion Dubois
 

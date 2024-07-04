@@ -1,7 +1,7 @@
 ---
 title: "[Updated] How to Add Chapters to YouTube Videos"
-date: 2024-06-25T18:03:58.765Z
-updated: 2024-06-26T18:03:58.765Z
+date: 2024-07-03T12:55:39.249Z
+updated: 2024-07-04T12:55:39.249Z
 tags:
   - ai video
   - ai youtube
@@ -16,7 +16,8 @@ thumbnail: https://thmb.techidaily.com/3bbc4ff17b35bac37e3335e5a66057aab2f13c2b0
 
 ## YouTube Video Organization: The Art of Chapter Addition
 
-# How to Add Chapters to YouTube Videos ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+# How to Add Chapters to YouTube Videos
+![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
 

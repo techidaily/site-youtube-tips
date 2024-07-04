@@ -1,7 +1,7 @@
 ---
 title: "\"[New] What Lies Beneath  The Core of ASMR Videos\""
-date: 2024-06-25T17:58:42.478Z
-updated: 2024-06-26T17:58:42.478Z
+date: 2024-07-03T12:55:36.372Z
+updated: 2024-07-04T12:55:36.372Z
 tags:
   - ai video
   - ai youtube
@@ -16,7 +16,8 @@ thumbnail: https://thmb.techidaily.com/930df60c591e2a9cac7ea1bfd12cb488be55e4b8a
 
 ## What Lies Beneath: The Core of ASMR Videos
 
-# Things About ASMR Video You Should Know ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+# Things About ASMR Video You Should Know
+![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
 

@@ -1,7 +1,7 @@
 ---
 title: "Crafting Fast Fortnite Icons in Minutes for 2024"
-date: 2024-06-25T17:29:49.624Z
-updated: 2024-06-26T17:29:49.624Z
+date: 2024-07-03T12:55:39.737Z
+updated: 2024-07-04T12:55:39.737Z
 tags:
   - ai video
   - ai youtube
@@ -16,7 +16,8 @@ thumbnail: https://thmb.techidaily.com/4f252061500e08e9c2f2521977c5b0253a5006254
 
 ## Crafting Fast Fortnite Icons in Minutes
 
-# How to Make Fortnite Thumbnail for Free and Easy in 2024 ![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
+# How to Make Fortnite Thumbnail for Free and Easy in 2024
+![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
 
 ##### Ollie Mattison
 

@@ -1,7 +1,7 @@
 ---
 title: "[Updated] All You Need to Know About the YouTube Shorts Fund for 2024"
-date: 2024-06-25T18:14:06.415Z
-updated: 2024-06-26T18:14:06.415Z
+date: 2024-07-03T12:55:36.167Z
+updated: 2024-07-04T12:55:36.167Z
 tags:
   - ai video
   - ai youtube
@@ -16,7 +16,8 @@ thumbnail: https://thmb.techidaily.com/9c704c9ab8ca818eb8c547f35c543ea321e006214
 
 ## Decoding the Algorithm Behind YouTube Shorts
 
-# All You Need to Know About the YouTube Shorts Fund ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
+# All You Need to Know About the YouTube Shorts Fund
+![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 ##### Shanoon Cox
 

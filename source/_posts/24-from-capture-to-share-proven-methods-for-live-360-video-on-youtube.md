@@ -1,7 +1,7 @@
 ---
 title: "\"In 2024, From Capture to Share  Proven Methods for Live 360° Video on Youtube\""
-date: 2024-06-25T18:07:40.887Z
-updated: 2024-06-26T18:07:40.887Z
+date: 2024-07-03T12:55:37.077Z
+updated: 2024-07-04T12:55:37.077Z
 tags:
   - ai video
   - ai youtube
@@ -16,7 +16,8 @@ thumbnail: https://thmb.techidaily.com/12e88707f59d2cf337816f66e57d39a5f3c787beb
 
 ## From Capture to Share: Proven Methods for Live 360° Video on Youtube
 
-# How to live streaming 360 video to youtube ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+# How to live streaming 360 video to youtube
+![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
 

@@ -1,7 +1,7 @@
 ---
 title: "[New] Transform Spaceships Into Trees – Youtube’s Green Secrets Revealed!"
-date: 2024-06-25T18:22:23.469Z
-updated: 2024-06-26T18:22:23.469Z
+date: 2024-07-03T12:55:36.228Z
+updated: 2024-07-04T12:55:36.228Z
 tags:
   - ai video
   - ai youtube
@@ -16,7 +16,8 @@ thumbnail: https://thmb.techidaily.com/22c39789b5fe1ed667e7cca081a20115c82b1e475
 
 ## Transform Spaceships Into Trees – Youtube’s Green Secrets Revealed
 
-# Watch Youtube green screen videos and inspire your green screen ideas ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+# Watch Youtube green screen videos and inspire your green screen ideas
+![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
 

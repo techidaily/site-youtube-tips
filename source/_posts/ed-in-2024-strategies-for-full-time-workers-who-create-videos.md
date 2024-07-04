@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] In 2024, Strategies for Full-Time Workers Who Create Videos\""
-date: 2024-06-25T17:37:23.678Z
-updated: 2024-06-26T17:37:23.678Z
+date: 2024-07-03T12:55:36.710Z
+updated: 2024-07-04T12:55:36.710Z
 tags:
   - ai video
   - ai youtube
@@ -16,7 +16,8 @@ thumbnail: https://thmb.techidaily.com/5f042bcf8e18adcc53cbb8d889707c4f827028b31
 
 ## Strategies for Full-Time Workers Who Create Videos
 
-# How to balance YouTube with a Full-Time Job ![](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+# How to balance YouTube with a Full-Time Job
+![](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
 

@@ -1,7 +1,7 @@
 ---
 title: "\"[New] In 2024, Style Sleuths  Influential Beauty Creators\""
-date: 2024-06-25T17:39:11.664Z
-updated: 2024-06-26T17:39:11.664Z
+date: 2024-07-03T12:55:39.421Z
+updated: 2024-07-04T12:55:39.421Z
 tags:
   - ai video
   - ai youtube
@@ -16,7 +16,8 @@ thumbnail: https://thmb.techidaily.com/c16b5c04365505f6434ed1ea0641c9d2b73bd5daa
 
 ## Style Sleuths: Influential Beauty Creators
 
-# 10 Most Popular Beauty Gurus on YouTube in 2024 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+# 10 Most Popular Beauty Gurus on YouTube in 2024
+![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
 
@@ -51,7 +52,8 @@ Wanna making your beauty video and makeup video more attractive and get more vie
 * [Mindy McKnight](#part9)
 * [Promise Phan](#part10)
 
-#### 1. Bethany Mota ![Popular Beauty Gurus](https://images.wondershare.com/filmora/article-images/bethany-mota-youtube-channel.jpg)
+#### 1. Bethany Mota
+![Popular Beauty Gurus](https://images.wondershare.com/filmora/article-images/bethany-mota-youtube-channel.jpg)
 
 The American vlogger started her YouTube channel that currently has over 15 million subscribers in 2009\. Bethany is more than just a beauty guru, even though she first became famous for her makeup and fashion videos because in recent years she started producing videos that cover a wide range of topics.
 

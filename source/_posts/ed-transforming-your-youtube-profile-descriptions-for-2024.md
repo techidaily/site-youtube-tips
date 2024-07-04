@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Transforming Your YouTube Profile Descriptions for 2024"
-date: 2024-06-25T17:21:54.725Z
-updated: 2024-06-26T17:21:54.725Z
+date: 2024-07-03T12:55:37.486Z
+updated: 2024-07-04T12:55:37.486Z
 tags:
   - ai video
   - ai youtube
@@ -16,7 +16,8 @@ thumbnail: https://thmb.techidaily.com/14e8ddcfb81fc424c37a798e2f4fac450a83bd3f6
 
 ## Transforming Your YouTube Profile Descriptions
 
-# How to Edit YouTube Channel Description ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+# How to Edit YouTube Channel Description
+![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
 

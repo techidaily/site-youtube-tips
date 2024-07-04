@@ -1,7 +1,7 @@
 ---
 title: "Crafting Unique Thumbnails for YouTube Content for 2024"
-date: 2024-06-25T17:32:09.295Z
-updated: 2024-06-26T17:32:09.295Z
+date: 2024-07-03T12:55:37.107Z
+updated: 2024-07-04T12:55:37.107Z
 tags:
   - ai video
   - ai youtube
@@ -16,7 +16,8 @@ thumbnail: https://thmb.techidaily.com/5c825ad46d87b3691d3904b2e30aab153935e0b73
 
 ## Crafting Unique Thumbnails for YouTube Content
 
-# How To Add Custom Thumbnails to Your YouTube Videos ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+# How To Add Custom Thumbnails to Your YouTube Videos
+![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
 

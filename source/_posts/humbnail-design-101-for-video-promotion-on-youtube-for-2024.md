@@ -1,7 +1,7 @@
 ---
 title: "[New] Thumbnail Design 101 for Video Promotion on YouTube for 2024"
-date: 2024-06-25T17:45:23.601Z
-updated: 2024-06-26T17:45:23.601Z
+date: 2024-07-03T12:55:37.640Z
+updated: 2024-07-04T12:55:37.640Z
 tags:
   - ai video
   - ai youtube
@@ -16,7 +16,8 @@ thumbnail: https://thmb.techidaily.com/6038b4e1d0b30613cb41c0ccc8733d5ac9ac78f01
 
 ## Thumbnail Design 101 for Video Promotion on YouTube
 
-# How to Make YouTube Banners and Thumbnails ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+# How to Make YouTube Banners and Thumbnails
+![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
 

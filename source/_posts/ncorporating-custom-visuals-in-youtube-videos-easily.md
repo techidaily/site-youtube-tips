@@ -1,7 +1,7 @@
 ---
 title: "[New] Incorporating Custom Visuals in YouTube Videos Easily"
-date: 2024-06-25T18:10:34.379Z
-updated: 2024-06-26T18:10:34.379Z
+date: 2024-07-03T12:55:35.992Z
+updated: 2024-07-04T12:55:35.992Z
 tags:
   - ai video
   - ai youtube
@@ -16,7 +16,8 @@ thumbnail: https://thmb.techidaily.com/e763646df56241e163aeceaafcbcf01e71b694cfa
 
 ## Incorporating Custom Visuals in YouTube Videos Easily
 
-# How To Add Custom Thumbnails to Your YouTube Videos ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+# How To Add Custom Thumbnails to Your YouTube Videos
+![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
 

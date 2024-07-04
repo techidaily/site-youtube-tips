@@ -1,7 +1,7 @@
 ---
 title: "Building Captivating Online Media Summaries"
-date: 2024-06-25T18:01:48.115Z
-updated: 2024-06-26T18:01:48.115Z
+date: 2024-07-03T12:55:36.792Z
+updated: 2024-07-04T12:55:36.792Z
 tags:
   - ai video
   - ai youtube
@@ -16,7 +16,8 @@ thumbnail: https://thmb.techidaily.com/b89ffcd4bf4187d5ce782fa255f3d31e70eba20fb
 
 ## Building Captivating Online Media Summaries
 
-# How to Make a Channel Trailer ![](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+# How to Make a Channel Trailer
+![](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
 

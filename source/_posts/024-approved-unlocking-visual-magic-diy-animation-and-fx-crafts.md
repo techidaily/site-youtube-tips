@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Unlocking Visual Magic  DIY Animation and FX Crafts\""
-date: 2024-06-25T18:22:30.885Z
-updated: 2024-06-26T18:22:30.885Z
+date: 2024-07-03T12:55:37.752Z
+updated: 2024-07-04T12:55:37.752Z
 tags:
   - ai video
   - ai youtube
@@ -16,7 +16,8 @@ thumbnail: https://thmb.techidaily.com/1a71493edba37cb030611c5a8b9738f6d63a9069f
 
 ## Unlocking Visual Magic: DIY Animation and FX Crafts
 
-# How to Animate and Make Your Own Effects ![](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+# How to Animate and Make Your Own Effects
+![](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
 

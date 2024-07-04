@@ -1,7 +1,7 @@
 ---
 title: "Boost Creativity with Free Audio Effects Online"
-date: 2024-06-25T18:31:49.633Z
-updated: 2024-06-26T18:31:49.633Z
+date: 2024-07-03T12:55:37.863Z
+updated: 2024-07-04T12:55:37.863Z
 tags:
   - ai video
   - ai youtube
@@ -16,7 +16,8 @@ thumbnail: https://thmb.techidaily.com/f03d30631576de9c6f4ebbf1b70482dc429c1bbf9
 
 ## Boost Creativity with Free Audio Effects Online
 
-# Download Free Sound Effects for YouTubers ![](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+# Download Free Sound Effects for YouTubers
+![](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
 

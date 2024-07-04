@@ -1,7 +1,7 @@
 ---
 title: "[New] The Fundamentals of Crafting YouTube Videos From Scratch"
-date: 2024-06-25T17:28:09.152Z
-updated: 2024-06-26T17:28:09.152Z
+date: 2024-07-03T12:55:39.874Z
+updated: 2024-07-04T12:55:39.874Z
 tags:
   - ai video
   - ai youtube
@@ -16,7 +16,8 @@ thumbnail: https://thmb.techidaily.com/4a9b602cddaa14e95b4c74e25b7d2e53d393546d8
 
 ## The Fundamentals of Crafting YouTube Videos From Scratch
 
-# How to Write a Script for a YouTube Video ![](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+# How to Write a Script for a YouTube Video
+![](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
 

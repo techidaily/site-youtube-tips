@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Unlocking Income From YouTube as a Newbie"
-date: 2024-06-25T17:18:02.623Z
-updated: 2024-06-26T17:18:02.623Z
+date: 2024-07-03T12:55:37.977Z
+updated: 2024-07-04T12:55:37.977Z
 tags:
   - ai video
   - ai youtube
@@ -16,7 +16,8 @@ thumbnail: https://thmb.techidaily.com/4f66184ac0a8648b46c6ad4d0861ce71f7dbc55ba
 
 ## Unlocking Income From YouTube as a Newbie
 
-# Infographic - 8 Ways to Make Money on YouTube for Beginners ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+# Infographic - 8 Ways to Make Money on YouTube for Beginners
+![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
 

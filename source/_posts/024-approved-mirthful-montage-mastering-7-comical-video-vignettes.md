@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Mirthful Montage  Mastering 7 Comical Video Vignettes\""
-date: 2024-06-25T17:17:34.451Z
-updated: 2024-06-26T17:17:34.451Z
+date: 2024-07-03T12:55:38.056Z
+updated: 2024-07-04T12:55:38.056Z
 tags:
   - ai video
   - ai youtube
@@ -16,7 +16,8 @@ thumbnail: https://thmb.techidaily.com/4f0baa4676690f713a7c64c49fa175c4aff67762b
 
 ## Mirthful Montage: Mastering 7 Comical Video Vignettes
 
-# 7 Comedy YouTube Video Ideas That Only Funny People Are Allowed to Try ![](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+# 7 Comedy YouTube Video Ideas That Only Funny People Are Allowed to Try
+![](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
 

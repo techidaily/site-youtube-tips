@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Streaming Star Status - Buttons & Growth Accolades for 2024\""
-date: 2024-06-25T17:56:31.126Z
-updated: 2024-06-26T17:56:31.126Z
+date: 2024-07-03T12:55:37.310Z
+updated: 2024-07-04T12:55:37.310Z
 tags:
   - ai video
   - ai youtube
@@ -16,7 +16,8 @@ thumbnail: https://thmb.techidaily.com/2b0e79e191f0ed82f151a5598b1f3bbb7dbdcce94
 
 ## Streaming Star Status - Buttons & Growth Accolades
 
-# YouTube Subscriber Awards! The Play Button Awards for Creators ![](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+# YouTube Subscriber Awards! The Play Button Awards for Creators
+![](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
 
