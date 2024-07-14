@@ -1,7 +1,7 @@
 ---
 title: "[New] How to Upload Shorts Video on YouTube?"
-date: 2024-06-25T18:18:26.003Z
-updated: 2024-06-26T18:18:26.003Z
+date: 2024-07-12T23:22:59.041Z
+updated: 2024-07-13T23:22:59.041Z
 tags:
   - ai video
   - ai youtube
@@ -40,7 +40,8 @@ The fact is, if you are using a computer to upload short videos to YouTube, the 
 
 Once you have a video recorded using the first two guidelines from the above list, you can use the instructions given below to upload the media on YouTube:
 
-#### Step 1: Select a Short Video to Upload ![Upload YouTube Shorts Video to desktop](https://images.wondershare.com/filmora/article-images/upload-short-videos-on-youtube-pc.jpg)
+#### Step 1: Select a Short Video to Upload
+![Upload YouTube Shorts Video to desktop](https://images.wondershare.com/filmora/article-images/upload-short-videos-on-youtube-pc.jpg)
 
 Launch your favorite web browser on your PC, go to YouTube, make sure to sign in to your YouTube account, click the **Create** (**Camera**) icon from the top-right corner of the web page, click **SELECT FILES** on the **Upload videos** window, and locate, select, and upload a short video from your PC to the portal.
 
@@ -82,11 +83,13 @@ The process of **uploading YouTube Shorts** from the mobile app is fairly simple
 
 **Note:** Make sure to have the target video on the smartphone and that you have downloaded, installed, and signed in to the YouTube app before proceeding.
 
-#### Step 1: Select a Video to Upload ![Select a Video to Upload as Shorts](https://images.wondershare.com/filmora/article-images/select-shorts-videos-to-upload-on-youtube.jpg)
+#### Step 1: Select a Video to Upload
+![Select a Video to Upload as Shorts](https://images.wondershare.com/filmora/article-images/select-shorts-videos-to-upload-on-youtube.jpg)
 
 On your Android or iOS smartphone, launch the YouTube app, tap the **+** (**Create**) icon from the bottom, tap **Create a Short** from the **Create** box that pops up from the bottom, tap **Upload** from the bottom-right corner of the next screen, and select and upload a short, 60 seconds video recorded in portrait orientation from your device’s storage to the app.
 
-#### Step 2: Add Details ![add details to Shorts video](https://images.wondershare.com/filmora/article-images/add-details-to-youtube-shrots-video.jpg)
+#### Step 2: Add Details
+![add details to Shorts video](https://images.wondershare.com/filmora/article-images/add-details-to-youtube-shrots-video.jpg)
 
 On the next screen, tap **NEXT**, user the **Music** and **Text** icons at the bottom-left corner to add a background music and caption to the video respectively, and tap **NEXT** from the top-right corner. On the next screen, enter a name for the video in the **Title** field along with the **#Shorts** tag, and tap **Select audience** to choose your preferred audience.
 
@@ -151,3 +154,40 @@ Follow @Richard Bennett
      data-full-width-responsive="true"></ins>
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-2024-approved-harnessing-hype-strategies-to-elevate-your-instagram-presence/"><u>[New] 2024 Approved  Harnessing Hype  Strategies to Elevate Your Instagram Presence</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/new-sparking-interest-customized-anime-style-subscribers-on-your-youtube-channel-filmora/"><u>[New] Sparking Interest  Customized, Anime-Style Subscribers on Your YouTube Channel (Filmora)</u></a></li>
+<li><a href="https://video-ai-editor.techidaily.com/free-animated-logo-design-software-top-picks-and-expert-advice/"><u>Free Animated Logo Design Software Top Picks and Expert Advice</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/cutting-edge-techniques-to-elevate-fb-video-in-full-screen/"><u>Cutting Edge Techniques to Elevate FB Video in Full Screen</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/7-ways-to-unlock-a-locked-tecno-spark-10-5g-phone-by-drfone-android/"><u>7 Ways to Unlock a Locked Tecno Spark 10 5G Phone</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/-vocal-changer-tools-for-digital-personalities/"><u>Prime Vocal Changer Tools for Digital Personalities</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/-witness-youtube-techniques-for-rapid-rendering-for-2024/"><u>Quick-Witness YouTube Techniques for Rapid Rendering for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/24-nine-crucial-strategies-to-elevate-your-youtube-presence/"><u>In 2024, Nine Crucial Strategies to Elevate Your Youtube Presence</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/024-approved-digital-dreams-unite-conference/"><u>[New] 2024 Approved  Digital Dreams Unite Conference</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/-your-course-to-partner-status-via-a-rapid-10000-views-journey-for-2024/"><u>Chart Your Course to Partner Status via a Rapid 10,000 Views Journey for 2024</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/updated-2024-approved-screenflow-for-mac-review/"><u>[Updated] 2024 Approved  ScreenFlow for Mac Review</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/-traffic-with-these-essential-hashtags-for-youtube-gamers/"><u>Boost Traffic with These Essential Hashtags for YouTube Gamers</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/-inducing-humor-in-hits-for-2024/"><u>Groan-Inducing Humor in Hits for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/-shaky-footage-proper-tripod-usage-techniques-in-vlog-creation-for-2024/"><u>Avoid Shaky Footage  Proper Tripod Usage Techniques in Vlog Creation for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/024-approved-decode-and-resolve-youtube-short-errors/"><u>[New] 2024 Approved  Decode and Resolve YouTube Short Errors</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/-turn-artistry-professionally-crafted-valorant-game-imagery/"><u>Quick-Turn Artistry  Professionally Crafted Valorant Game Imagery</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/-standout-videos-with-professional-free-banner-samples/"><u>Craft Standout Videos with Professional, Free Banner Samples</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/024-approved-boosting-your-youtube-with-partner-videos/"><u>[New] 2024 Approved  Boosting Your YouTube with Partner Videos</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/-more-viewers-to-your-videos-top-growth-hacks-for-2024/"><u>Drive More Viewers to Your Videos  Top Growth Hacks for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/-into-youtube-metrics-using-the-power-of-social-blade-for-2024/"><u>Delve Into YouTube Metrics Using the Power of Social Blade for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/be-community-guidelines-that-you-should-know/"><u>YouTube Community Guidelines That You Should Know</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-how-to-optimize-facebook-seo-with-10-surefire-ways-for-2024/"><u>[New] How to Optimize Facebook SEO with 10 Surefire Ways for 2024</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/easy-steps-to-recover-deleted-music-from-honor-magic-6-by-fonelab-android-recover-music/"><u>Easy steps to recover deleted music from Honor Magic 6</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/0-companion-apps-for-seamless-video-to-mp3-conversions/"><u>Top 10 Companion Apps for Seamless Video to Mp3 Conversions</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/approved-navigating-youtube-music-eclecticism/"><u>2024 Approved  Navigating YouTube Music Eclecticism</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/-new-heights-boosting-youtube-viewership-for-2024/"><u>Reach New Heights  Boosting YouTube Viewership for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/024-approved-discover-the-power-of-youtube-editing-a-compre-written-in-code-the-intricacies-of-javascript-functions/"><u>[New] 2024 Approved  Discover the Power of YouTube Editing  A Compre Written in Code  The Intricacies of JavaScript Functions</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/024-approved-building-engaging-learning-experiences-youtube-as-your-classroom-screen/"><u>[New] 2024 Approved  Building Engaging Learning Experiences  YouTube as Your Classroom Screen</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/how-to-transfer-data-from-lava-agni-2-5g-to-any-ios-devices-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Data from Lava Agni 2 5G to Any iOS Devices | Dr.fone</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/new-2024-approved-navigating-video-sharing-from-imovie-to-the-vimeo-network/"><u>[New] 2024 Approved  Navigating Video Sharing  From iMovie to the Vimeo Network</u></a></li>
+<li><a href="https://audio-editing.techidaily.com/expert-strategies-for-clearer-dialogue-and-ambiance-in-imovie-projects-for-2024/"><u>Expert Strategies for Clearer Dialogue and Ambiance in iMovie Projects for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/0-highest-performing-business-youtube-platforms-explained/"><u>[New] 10 Highest Performing Business YouTube Platforms Explained</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/-your-youtube-content-with-these-free-sounds-for-2024/"><u>Score Your YouTube Content With These Free Sounds for 2024</u></a></li>
+</ul></div>

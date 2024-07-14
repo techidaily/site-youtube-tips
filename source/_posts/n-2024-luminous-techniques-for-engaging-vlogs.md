@@ -1,7 +1,7 @@
 ---
 title: "[New] In 2024, Luminous Techniques for Engaging Vlogs"
-date: 2024-06-25T17:38:26.981Z
-updated: 2024-06-26T17:38:26.981Z
+date: 2024-07-12T22:36:02.138Z
+updated: 2024-07-13T22:36:02.138Z
 tags:
   - ai video
   - ai youtube
@@ -16,7 +16,8 @@ thumbnail: https://thmb.techidaily.com/017337439b4f792b0246468061b8e1aa8f8f36d01
 
 ## Luminous Techniques for Engaging Vlogs
 
-# Lighting Tips for Vlogging: How to Light ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+# Lighting Tips for Vlogging: How to Light
+![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
 
@@ -26,7 +27,8 @@ One of the best things you can do for your video quality is to ensure you have g
 
 Going outside and using natural light is the cheapest way to get a lot of light for your videos. If your vlog is not suited to the great outdoors then you need to get more strategic. You can turn on all the lights in your living room and still end up with a dark, grainy, video.
 
-## Video Lighting Basics: Three Point Lighting ![Lighting for YouTube Video](https://images.wondershare.com/filmora/article-images/three-point-lighting.jpg)
+## Video Lighting Basics: Three Point Lighting
+![Lighting for YouTube Video](https://images.wondershare.com/filmora/article-images/three-point-lighting.jpg)
 
 The most common technique of lighting a scene is called **three-point lighting**. It involves three different sources of light in the shot and is used by portrait photographers, which is also a great method for lighting your vlog.
 
@@ -103,3 +105,70 @@ Follow @Richard Bennett
      data-full-width-responsive="true"></ins>
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-stream.techidaily.com/2024-approved-the-beginners-blueprint-for-mobile-youtube-videos/"><u>2024 Approved  The Beginner's Blueprint for Mobile YouTube Videos</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-2024-approved-zoom-in-how-to-sequentially-play-youtube-videos-for-free/"><u>[Updated] 2024 Approved  Zoom In  How to Sequentially Play YouTube Videos for Free</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-in-2024-youtube-enhancement-the-art-of-background-blur/"><u>[Updated] In 2024, YouTube Enhancement  The Art of Background Blur</u></a></li>
+<li><a href="https://ai-video-editing.techidaily.com/updated-how-to-create-a-powerpoint-looping-slideshow/"><u>Updated How to Create a PowerPoint Looping Slideshow</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/2024-approved-top-5-budget-friendly-gaming-mice-under-100/"><u>2024 Approved  Top 5 Budget-Friendly Gaming Mice (Under $100)</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/new-the-ultimate-method-for-making-tiktok-audio-your-ringtone/"><u>[New] The Ultimate Method for Making TikTok Audio Your Ringtone</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-effortless-guide-to-free-melodies-in-youtube-productions/"><u>[Updated] In 2024, Effortless Guide to Free Melodies in YouTube Productions</u></a></li>
+<li><a href="https://change-location.techidaily.com/a-working-guide-for-pachirisu-pokemon-go-map-on-samsung-galaxy-a05s-drfone-by-drfone-virtual-android/"><u>A Working Guide For Pachirisu Pokemon Go Map On Samsung Galaxy A05s | Dr.fone</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-understanding-youtubes-view-threshold-for-money-for-2024/"><u>[Updated] Understanding Youtube’s View Threshold for Money for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/tep-by-step-on-streaming-google-meet-directly-to-youtube-channel-for-2024/"><u>[New] Step by Step on Streaming Google Meet Directly to YouTube Channel for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/24-become-a-science-whiz-with-these-prime-15-youtube-picks/"><u>In 2024, Become a Science Whiz with These Prime 15 YouTube Picks</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/raft-clearer-crisper-youtube-videos-with-quality-tools/"><u>[New] Craft Clearer, Crisper YouTube Videos with Quality Tools</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/he-ultimate-guide-to-aspect-ratios-for-youtube-images-for-2024/"><u>[New] The Ultimate Guide to Aspect Ratios for YouTube Images for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-ultimate-recorder-options-for-livestreaming-on-youtube/"><u>[Updated] Ultimate Recorder Options for Livestreaming on YouTube</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-affordable-gear-for-aspiring-content-creators/"><u>[Updated] Affordable Gear for Aspiring Content Creators</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/updated-direct-screen-capture-chrome-os-tool/"><u>[Updated] Direct Screen Capture Chrome OS Tool</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ing-down-tseries-income-strategy-on-youtube-platform/"><u>Breaking Down TSeries' Income Strategy on YouTube Platform</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/different-methods-to-unlock-your-iphone-15-plus-drfone-by-drfone-ios/"><u>Different Methods To Unlock Your iPhone 15 Plus | Dr.fone</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-a-comprehensive-overview-of-youtube-standards-for-content-creators-for-2024/"><u>[Updated] A Comprehensive Overview of YouTube Standards for Content Creators for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-youtube-subscriber-chart-5-most-subscribed-youtuber/"><u>[New] In 2024, YouTube Subscriber Chart - 5 Most Subscribed YouTuber</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-the-professionals-path-expert-strategies-for-360-youtube-live-broadcasting-for-2024/"><u>[Updated] The Professional's Path  Expert Strategies for 360° Youtube Live Broadcasting for 2024</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/captivating-cinematic-experience-video-filters-for-pcmobile-for-2024/"><u>Captivating Cinematic Experience  Video Filters for PC/Mobile for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/natomy-of-an-anti-viewer-cutting-edge-strategies-for-reversed-youtube-videos-for-2024/"><u>[New] Anatomy of an Anti-Viewer  Cutting Edge Strategies for Reversed YouTube Videos for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-streamline-your-vlog-with-video-length-optimization/"><u>[New] In 2024, Streamline Your Vlog with Video Length Optimization</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-analyze-youtube-data-efficiently-with-social-blade-tools-for-2024/"><u>[New] Analyze YouTube Data Efficiently with Social Blade Tools for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-in-2024-wisdom-waves-prime-ed-channels-online/"><u>[Updated] In 2024, Wisdom Waves  Prime Ed Channels Online</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/fumbling-clips-to-viral-videos-youtube-edits-made-easy-with-sony-vegas-for-2024/"><u>From Fumbling Clips to Viral Videos  YouTube Edits Made Easy with Sony Vegas for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-in-2024-virality-vault-uncovering-keywords-that-drive-video-shares/"><u>[Updated] In 2024, Virality Vault  Uncovering Keywords That Drive Video Shares</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/in-2024-mastering-asmr-filming-techniques-essential-tips-unveiled/"><u>In 2024, Mastering ASMR Filming Techniques  Essential Tips Unveiled</u></a></li>
+<li><a href="https://location-fake.techidaily.com/3utools-virtual-location-not-working-on-oppo-reno-10-proplus-5g-fix-now-drfone-by-drfone-virtual-android/"><u>3uTools Virtual Location Not Working On Oppo Reno 10 Pro+ 5G? Fix Now | Dr.fone</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/waves-in-youtube-essential-mobile-based-production-tips-for-2024/"><u>Make Waves in YouTube  Essential Mobile-Based Production Tips for 2024</u></a></li>
+<li><a href="https://games-able.techidaily.com/streamlining-your-playstyle-for-cs2-on-mac/"><u>Streamlining Your Playstyle for CS2 on Mac</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-incorporate-no-cost-tunes-to-boost-your-vlogs-for-2024/"><u>[Updated] Incorporate No-Cost Tunes to Boost Your Vlogs for 2024</u></a></li>
+<li><a href="https://ai-driven-video-production.techidaily.com/2024-approved-free-avi-video-rotation-tools-compare-the-best-options-for-windows-mac-mobile-and-online/"><u>2024 Approved Free AVI Video Rotation Tools Compare the Best Options for Windows, MAC, Mobile & Online</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/024-approved-youtube-foundations-building-a-brand-and-generating-income-for-novices/"><u>[New] 2024 Approved  Youtube Foundations  Building a Brand & Generating Income for Novices</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/in-2024-easy-guide-how-to-bypass-vivo-y17s-frp-android-10111213-by-drfone-android/"><u>In 2024, Easy Guide How To Bypass Vivo Y17s FRP Android 10/11/12/13</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-preserve-and-organize-transforming-snaps-into-gallery-photos/"><u>[New] Preserve and Organize  Transforming Snaps Into Gallery Photos</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-free-banner-templates-and-makers-for-youtube/"><u>[Updated] Free Banner Templates & Makers for YouTube</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-infographic-social-strategies-for-budget-brands/"><u>[Updated] Infographic  Social Strategies for Budget Brands</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/24-decoding-earnings-for-content-producers-on-short-form-platform/"><u>In 2024, Decoding Earnings for Content Producers on Short-Form Platform</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-masterclass-on-uploading-youtube-vids-to-fb-groups/"><u>[New] In 2024, Masterclass on Uploading YouTube Vids to FB Groups</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-leveraging-colored-backdrops-for-seamless-edits/"><u>[New] In 2024, Leveraging Colored Backdrops for Seamless Edits</u></a></li>
+<li><a href="https://win11.techidaily.com/bring-home-the-fun-smartphone-games-to-desktop-with-win-11-and-google-play/"><u>Bring Home the Fun: Smartphone Games to Desktop with Win 11 & Google Play</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-the-essence-of-great-edu-videos-a-compreenasion-guide-to-youtube-excellence/"><u>[Updated] The Essence of Great Edu-Videos  A Compreenasion Guide to YouTube Excellence</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-leveraging-imovies-power-for-youtube-presence-and-growth/"><u>[New] In 2024, Leveraging IMovie's Power for YouTube Presence and Growth</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/-video-platform-suits-you-better-tiktok-or-youtube-shorts/"><u>Which Video Platform Suits You Better  TikTok or YouTube Shorts?</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ning-distinctive-denouements/"><u>Designing Distinctive Denouements</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/new-masterclass-choosing-the-top-fps-games-for-2024/"><u>[New] Masterclass  Choosing the Top FPS Games for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-unlocking-the-mysteries-behind-youtube-wealth-ajey-nagar-edition-for-2024/"><u>[Updated] Unlocking the Mysteries Behind YouTube Wealth - Ajey Nagar Edition for 2024</u></a></li>
+<li><a href="https://extra-support.techidaily.com/in-2024-step-by-step-enablingdisabling-picture-in-picture/"><u>In 2024, Step by Step  Enabling/Disabling Picture-in-Picture</u></a></li>
+<li><a href="https://article-helps.techidaily.com/updated-in-2024-the-ultimate-tool-for-video-cuts-full-review-of-vivacut-24-edition/"><u>[Updated] In 2024, The Ultimate Tool for Video Cuts  Full Review of VivaCut '24 Edition</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-in-2024-simplified-customization-for-your-youtube-channel-url/"><u>[Updated] In 2024, Simplified Customization for Your YouTube Channel URL</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-securely-separating-youtube-songs-3-approaches-available-for-free-for-2024/"><u>[Updated] Securely Separating YouTube Songs  3 Approaches Available for Free for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-essential-youtube-strategies-compiling-10-basic-yet-engaging-ideas-for-everyone/"><u>[Updated] Essential YouTube Strategies  Compiling 10 Basic Yet Engaging Ideas for Everyone</u></a></li>
+<li><a href="https://voice-adjusting.techidaily.com/updated-in-2024-identify-stomach-gas-acoustics-recording/"><u>Updated In 2024, Identify Stomach Gas Acoustics Recording</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/what-is-mukbang-and-how-to-make-mukbang-videos/"><u>What Is Mukbang and How to Make Mukbang Videos</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/24-crafting-content-for-success-how-to-start-your-own-youtube-chanel/"><u>In 2024, Crafting Content for Success  How to Start Your Own YouTube Chanel</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/updated-in-2024-top-tier-apps-to-elevate-your-tiktok-videos-on-windows/"><u>[Updated] In 2024, Top-Tier Apps to Elevate Your TikTok Videos on Windows</u></a></li>
+<li><a href="https://voice-adjusting.techidaily.com/add-music-to-photo-for-free-pc-and-mobile-for-2024/"><u>Add Music to Photo for Free PC & Mobile for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/24-infinite-inspiration-cost-free-youtube-theming/"><u>In 2024, Infinite Inspiration  Cost-Free YouTube Theming</u></a></li>
+<li><a href="https://ai-video-editing.techidaily.com/updated-add-zoom-blur-effect-in-photoshop-step-by-step/"><u>Updated Add Zoom Blur Effect In Photoshop Step by Step</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-video-production-evolution-prime-lenses-for-youtube-enthusiasts/"><u>[Updated] Video Production Evolution  Prime Lenses for YouTube Enthusiasts</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/updated-gopro-karma-drone-review/"><u>[Updated] GoPro Karma Drone Review</u></a></li>
+</ul></div>

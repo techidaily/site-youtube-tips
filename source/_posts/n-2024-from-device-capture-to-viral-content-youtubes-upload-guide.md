@@ -1,7 +1,7 @@
 ---
 title: "\"[New] In 2024, From Device Capture to Viral Content  YouTube's Upload Guide\""
-date: 2024-06-25T17:46:59.966Z
-updated: 2024-06-26T17:46:59.966Z
+date: 2024-07-12T22:46:03.691Z
+updated: 2024-07-13T22:46:03.691Z
 tags:
   - ai video
   - ai youtube
@@ -40,7 +40,8 @@ The fact is, if you are using a computer to upload short videos to YouTube, the 
 
 Once you have a video recorded using the first two guidelines from the above list, you can use the instructions given below to upload the media on YouTube:
 
-#### Step 1: Select a Short Video to Upload ![Upload YouTube Shorts Video to desktop](https://images.wondershare.com/filmora/article-images/upload-short-videos-on-youtube-pc.jpg)
+#### Step 1: Select a Short Video to Upload
+![Upload YouTube Shorts Video to desktop](https://images.wondershare.com/filmora/article-images/upload-short-videos-on-youtube-pc.jpg)
 
 Launch your favorite web browser on your PC, go to YouTube, make sure to sign in to your YouTube account, click the **Create** (**Camera**) icon from the top-right corner of the web page, click **SELECT FILES** on the **Upload videos** window, and locate, select, and upload a short video from your PC to the portal.
 
@@ -82,11 +83,13 @@ The process of **uploading YouTube Shorts** from the mobile app is fairly simple
 
 **Note:** Make sure to have the target video on the smartphone and that you have downloaded, installed, and signed in to the YouTube app before proceeding.
 
-#### Step 1: Select a Video to Upload ![Select a Video to Upload as Shorts](https://images.wondershare.com/filmora/article-images/select-shorts-videos-to-upload-on-youtube.jpg)
+#### Step 1: Select a Video to Upload
+![Select a Video to Upload as Shorts](https://images.wondershare.com/filmora/article-images/select-shorts-videos-to-upload-on-youtube.jpg)
 
 On your Android or iOS smartphone, launch the YouTube app, tap the **+** (**Create**) icon from the bottom, tap **Create a Short** from the **Create** box that pops up from the bottom, tap **Upload** from the bottom-right corner of the next screen, and select and upload a short, 60 seconds video recorded in portrait orientation from your device’s storage to the app.
 
-#### Step 2: Add Details ![add details to Shorts video](https://images.wondershare.com/filmora/article-images/add-details-to-youtube-shrots-video.jpg)
+#### Step 2: Add Details
+![add details to Shorts video](https://images.wondershare.com/filmora/article-images/add-details-to-youtube-shrots-video.jpg)
 
 On the next screen, tap **NEXT**, user the **Music** and **Text** icons at the bottom-left corner to add a background music and caption to the video respectively, and tap **NEXT** from the top-right corner. On the next screen, enter a name for the video in the **Title** field along with the **#Shorts** tag, and tap **Select audience** to choose your preferred audience.
 
@@ -151,3 +154,42 @@ Follow @Richard Bennett
      data-full-width-responsive="true"></ins>
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-tips.techidaily.com/cast-your-music-mp3-conversion-and-upload-on-youtube/"><u>Broadcast Your Music  MP3 Conversion and Upload on YouTube</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/achieve-professional-aesthetics-embedding-watermarks-and-branding-in-videos-for-2024/"><u>Achieve Professional Aesthetics  Embedding Watermarks & Branding in Videos for 2024</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-unlocking-studio-secrets-extensive-xvideoreview-for-2024/"><u>[Updated] Unlocking Studio Secrets  Extensive XVideoReview for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-2024-approved-ace-your-marketing-game-top-5-youtube-techniques-unveiled/"><u>[Updated] 2024 Approved  Ace Your Marketing Game  Top 5 YouTube Techniques Unveiled</u></a></li>
+<li><a href="https://voice-adjusting.techidaily.com/2024-approved-achieving-clear-sound-mixes-with-audio-ducking-techniques-in-adobe-premiere-pro-for-windows-users/"><u>2024 Approved Achieving Clear Sound Mixes with Audio Ducking Techniques in Adobe Premiere Pro for Windows Users</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-2024-approved-essential-listings-for-easy-access-to-youtube-intro-files/"><u>[Updated] 2024 Approved  Essential Listings for Easy Access to YouTube Intro Files</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/auen-uncovering-hidden-shorts-content/"><u>Overhauen  Uncovering Hidden Shorts Content</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-in-2024-pivoting-to-passive-income-the-youtube-expedition-without-ads/"><u>[Updated] In 2024, Pivoting to Passive Income  The YouTube Expedition Without Ads</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-are-there-legal-constraints-in-capturing-online-video-screenshots/"><u>[Updated] Are There Legal Constraints in Capturing Online Video Screenshots?</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-essential-steps-for-seamlessly-clearing-youtube-feedback-for-2024/"><u>[Updated] Essential Steps for Seamlessly Clearing YouTube Feedback for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-2024-approved-live-subscriber-count-meters/"><u>[Updated] 2024 Approved  Live Subscriber Count Meters</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-optimizing-youtube-content-for-instagram-platforms-for-2024/"><u>[Updated] Optimizing YouTube Content for Instagram Platforms for 2024</u></a></li>
+<li><a href="https://ai-vdieo-software.techidaily.com/updated-unleash-your-creativity-best-mobile-video-editing-apps/"><u>Updated Unleash Your Creativity Best Mobile Video Editing Apps</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-2024-approved-essential-video-stock-investment-guides/"><u>[Updated] 2024 Approved  Essential Video Stock Investment Guides</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-in-2024-culinary-connoisseurs-must-watch-food-content/"><u>[Updated] In 2024, Culinary Connoisseurs  Must-Watch Food Content</u></a></li>
+<li><a href="https://article-files.techidaily.com/new-elevate-your-sketches-essential-free-drawing-software-on-mac-for-2024/"><u>[New] Elevate Your Sketches - Essential Free Drawing Software on Mac for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-safarichrome-youtube-on-the-move-autoplay-options-for-2024/"><u>[Updated] Safari/Chrome  YouTube On-the-Move AutoPlay Options for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-in-2024-masterclass-crafting-cinematic-youtube-videos-with-adobe-premiere/"><u>[Updated] In 2024, Masterclass  Crafting Cinematic YouTube Videos with Adobe Premiere</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-the-ultimate-collection-of-top-ranked-cost-free-youtube-short-video-downloader-apps-for-2024/"><u>[Updated] The Ultimate Collection of Top-Ranked, Cost-Free YouTube Short Video Downloader Apps for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/approved-digital-freedom-list-best-10-mp3-makers/"><u>2024 Approved  Digital Freedom List  Best 10 MP3 Makers</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-in-2024-elite-streaming-sensations-worlds-most-popular-video-content-makers/"><u>[Updated] In 2024, Elite Streaming Sensations  World's Most Popular Video Content Makers</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-the-countdown-of-content-youtubes-1-videos-by-minutes-for-2024/"><u>[Updated] The Countdown of Content  YouTube's #1 Videos by Minutes for 2024</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-how-to-change-spotify-location-after-moving-to-another-country-on-vivo-s18-drfone-by-drfone-virtual-android/"><u>In 2024, How to Change Spotify Location After Moving to Another Country On Vivo S18 | Dr.fone</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-insightful-rank-watchers-optimizing-your-video-performance-for-2024/"><u>[Updated] Insightful Rank Watchers  Optimizing Your Video Performance for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-in-2024-the-dual-approach-mastering-two-point-of-view-techniques-in-your-youtube-reaction-video-content/"><u>[Updated] In 2024, The Dual Approach – Mastering Two-Point of View Techniques in Your YouTube Reaction Video Content</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/updated-extensive-review-the-360-degree-capture-of-samsung/"><u>[Updated] Extensive Review  The 360-Degree Capture of Samsung</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/approved-prime-source-directory-downloading-youtube-video-intros/"><u>2024 Approved  Prime Source Directory  Downloading YouTube Video Intros</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-the-evolution-of-streaming-youtube-tv-in-focus-for-2024/"><u>[Updated] The Evolution of Streaming  YouTube TV In Focus for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-innovative-tactics-to-amplify-game-vids-via-hashtags/"><u>[Updated] Innovative Tactics to Amplify Game Vids via Hashtags</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-the-route-to-revenue-crafting-content-around-consumer-commodities/"><u>[Updated] The Route to Revenue  Crafting Content Around Consumer Commodities</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-in-2024-conquer-youtubes-realms-a-step-by-step-video-uploading-guidebook/"><u>[Updated] In 2024, Conquer YouTube's Realms  A Step-by-Step Video Uploading Guidebook</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ase-your-online-presence-youtube-methods-for-2024/"><u>Increase Your Online Presence  YouTube Methods for 2024</u></a></li>
+<li><a href="https://some-skills.techidaily.com/trusted-6-online-communities-driving-business-growth-for-2024/"><u>Trusted 6 Online Communities Driving Business Growth for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-mastering-engagement-a-compendium-of-the-top-20-youtube-hacks/"><u>[Updated] Mastering Engagement  A Compendium of the Top 20 YouTube Hacks</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-recover-old-videos-from-your-vivo-s17t-by-fonelab-android-recover-video/"><u>How to recover old videos from your Vivo S17t</u></a></li>
+</ul></div>

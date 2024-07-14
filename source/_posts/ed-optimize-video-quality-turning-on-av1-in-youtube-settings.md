@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Optimize Video Quality  Turning ON AV1 in YouTube Settings\""
-date: 2024-06-25T17:24:55.377Z
-updated: 2024-06-26T17:24:55.377Z
+date: 2024-07-12T22:20:14.415Z
+updated: 2024-07-13T22:20:14.415Z
 tags:
   - ai video
   - ai youtube
@@ -24,13 +24,15 @@ Do you notice that many YouTube videos have been streamed in AV1? **YouTube AV1*
 
 Do you wonder how to turn on **AV1 settings on YouTube**? For your information, AV1 is a video codec that is developed by a consortium of companies. It offers you advanced compression, enabling you to do smoother HD streaming and data savings for the video. Google also has already implemented AV1 use on YouTube. To turn on AV1 settings on YouTube, here are the steps:
 
-##### Step1Go to playback and performance ![youtube settings](https://images.wondershare.com/filmora/article-images/2022/11/av1-settings-on-youtube-2.jpg)
+##### Step1Go to playback and performance
+![youtube settings](https://images.wondershare.com/filmora/article-images/2022/11/av1-settings-on-youtube-2.jpg)
 
 * To turn on the AV1 settings, go to your YouTube account, after that click "Playback and Performance".
 * In the AV1 settings. Besides "Auto (Recommended)", there are other two options, which are "Prefer AV1 for SD" and also "Always prefer SD".
 * "Always Prefer AV1" uses the codec whenever it is available for a video while "Prefer AV1 for SD" limits it to SD videos. There are two options to avoid low-performance devices when AV1 videos are played on YouTube. You can select "Always Prefer AV1" to see if your device performance is good enough when you play videos on YouTube that support AV1.
 
-##### Step2Test if the AV1 settings are already enabled in your video ![av1 settings](https://images.wondershare.com/filmora/article-images/2022/11/av1-settings-on-youtube-3.jpg)
+##### Step2Test if the AV1 settings are already enabled in your video
+![av1 settings](https://images.wondershare.com/filmora/article-images/2022/11/av1-settings-on-youtube-3.jpg)
 
 You may ask how to confirm your YouTube videos are playing with AV1 Codec. Well, you can search playlist on YouTube with the keywords "[4K, 5K, and 8K videos with the new AV1 Codec](https://www.youtube.com/playlist?list=PLRJRxnLlXbB0ETtMprpLypZs68duRS1t1)". You can test it by playing one of the videos. You have to right-click on the media player and then select "Stats for nerd". If it shows the av01 codec there, then the AV1 settings are enabled already.
 
@@ -112,3 +114,59 @@ For today, YouTube encodes all the videos with the VP9 codec, but for some reaso
      data-full-width-responsive="true"></ins>
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-tips.techidaily.com/ed-smart-growth-metropolis-balancing-development-and-nature-for-2024/"><u>[Updated] Smart Growth Metropolis  Balancing Development and Nature for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/econstructing-the-legal-framework-of-youtube-and-cc-licenses-for-2024/"><u>[New] Deconstructing the Legal Framework of Youtube & CC Licenses for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-elevate-your-content-game-tactics-for-optimal-youtube-featured-channels-for-2024/"><u>[Updated] Elevate Your Content Game  Tactics for Optimal YouTube Featured Channels for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-in-2024-toddlers-fortune-on-screen-young-ryan-as-top-youtuber-earner/"><u>[Updated] In 2024, Toddler's Fortune on Screen  Young Ryan As Top YouTuber Earner</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-profiting-from-gaming-channels-for-2024/"><u>[Updated] Profiting From Gaming Channels for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-5-innovative-youtube-thumbnail-designers-for-aspiring-filmmakers/"><u>[Updated] 5 Innovative YouTube Thumbnail Designers for Aspiring Filmmakers</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-in-2024-a-guide-to-free-you-from-youtubes-extra-bar-width/"><u>[Updated] In 2024, A Guide to Free You From YouTube's Extra Bar Width</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/re-the-world-of-custom-thumbnails-top-6-tools-reviewed/"><u>Explore the World of Custom Thumbnails - Top 6 Tools Reviewed</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/-audio-solution-for-iphone-find-the-best-6-free-apps-for-youtube-to-mp3-for-2024/"><u>Ideal Audio Solution for iPhone  Find the Best 6 Free Apps for YouTube-to-MP3 for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-invaluable-resource-for-zero-cost-video-and-photo-providers/"><u>[Updated] Invaluable Resource for Zero-Cost Video and Photo Providers</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-skyrocketing-subscribers-free-techniques-for-youtube-success-for-2024/"><u>[Updated] Skyrocketing Subscribers  Free Techniques for YouTube Success for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/-for-livelihood-mastering-youtubes-true-numbers/"><u>Views for Livelihood  Mastering YouTube's True Numbers</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/onetizing-popularity-pay-per-million-views-for-2024/"><u>[New] Monetizing Popularity  Pay Per Million Views for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-2024-approved-the-foundation-for-success-equipping-new-channels/"><u>[Updated] 2024 Approved  The Foundation for Success  Equipping New Channels</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/2024-approved-how-to-improve-video-quality-in-zoom-meetings/"><u>2024 Approved  How to Improve Video Quality in Zoom Meetings?</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/in-2024-transform-your-set-design-top-8-sites-providing-free-green-screen-footage-and-backdrop/"><u>In 2024, Transform Your Set Design  Top 8 Sites Providing Free Green Screen Footage & Backdrop</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-skyrocket-your-channel-navigating-through-youtube-stats-for-2024/"><u>[Updated] Skyrocket Your Channel  Navigating Through YouTube Stats for 2024</u></a></li>
+<li><a href="https://smart-video-editing.techidaily.com/updated-in-2024-bring-your-song-to-life-10-top-music-video-producers/"><u>Updated In 2024, Bring Your Song to Life 10 Top Music Video Producers</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/24-maximize-impact-with-professional-360-video-uploads-for-youtube/"><u>In 2024, Maximize Impact with Professional 360° Video Uploads for YouTube</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/uintessential-quotient-subscriber-rankings/"><u>The Quintessential Quotient  Subscriber Rankings</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-2024-approved-youtube-shorts-earning-blueprint/"><u>[Updated] 2024 Approved  Youtube Shorts Earning Blueprint</u></a></li>
+<li><a href="https://ai-video-tools.techidaily.com/new-2024-approved-the-best-explainer-video-makers-for-businesses/"><u>New 2024 Approved The Best Explainer Video Makers for Businesses</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-2024-approved-save-space-and-time-with-fb-video-conversion-tools/"><u>[Updated] 2024 Approved  Save Space & Time with FB Video Conversion Tools</u></a></li>
+<li><a href="https://animation-videos.techidaily.com/in-2024-tutorial-on-making-unity-2d-animation/"><u>In 2024, Tutorial on Making Unity 2D Animation</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/24-best-practices-in-selecting-youtube-video-extractor-apps-for-android/"><u>In 2024, Best Practices in Selecting YouTube Video Extractor Apps for Android</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/new-efface-markings-iosandroid-apps-for-clear-videos-for-2024/"><u>[New] Efface Markings  IOS/Android Apps for Clear Videos for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/outube-view-bots-how-to-increase-youtube-views-in-2024/"><u>[New] YouTube View Bots  How to Increase YouTube Views, In 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/24-the-complete-2023-youtubers-handbook-for-rotated-content/"><u>In 2024, The Complete 2023 Youtuber's Handbook for Rotated Content</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/24-easy-start-the-definitive-guide-to-free-channel-openers/"><u>In 2024, Easy Start  The Definitive Guide to Free Channel Openers</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-2024-approved-complete-code-of-conduct-for-youtube-creators/"><u>[Updated] 2024 Approved  Complete Code of Conduct for YouTube Creators</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/024-approved-visionaries-mastering-the-art-of-multimedia-synthesis/"><u>[New] 2024 Approved  Visionaries Mastering the Art of Multimedia Synthesis</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/updated-making-funny-photos-no-fees-involved/"><u>[Updated] Making Funny Photos  No Fees Involved</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-in-2024-monetize-more-strategies-for-youtubes-updated-partner-plan/"><u>[Updated] In 2024, Monetize More  Strategies for YouTube's Updated Partner Plan</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-in-2024-best-screener-tech-perfect-for-creating-viral-youtube-moments/"><u>[Updated] In 2024, Best Screener Tech  Perfect for Creating Viral YouTube Moments</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/nlocking-creative-potential-embedding-online-videos-in-slideshows-for-2024/"><u>[New] Unlocking Creative Potential  Embedding Online Videos in Slideshows for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-2024-approved-the-ultimate-guide-to-8-mirrorless-cameras-for-vloggers/"><u>[Updated] 2024 Approved  The Ultimate Guide to 8 Mirrorless Cameras for Vloggers</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/0-gaming-youtubers-you-may-want-to-subscribe/"><u>Top 10 Gaming YouTubers You May Want to Subscribe</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/approved-fast-tip-mastering-green-screen-techniques/"><u>2024 Approved  Fast Tip  Mastering Green Screen Techniques</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-your-quick-path-to-multimedia-tweeting/"><u>[New] Your Quick Path to Multimedia Tweeting</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-social-media-live-services-showdown-facebook-vs-youtube-vs-twitter-spaces/"><u>[Updated] Social Media Live Services Showdown  Facebook Vs. YouTube Vs. Twitter Spaces</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-migrate-android-data-from-motorola-edge-2023-to-new-android-phone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Migrate Android Data From Motorola Edge 2023 to New Android Phone? | Dr.fone</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-free-online-services-for-youtube-subtitles-download-for-2024/"><u>[Updated] Free Online Services for YouTube Subtitles Download for 2024</u></a></li>
+<li><a href="https://ai-driven-video-production.techidaily.com/new-2024-approved-get-lumafusion-for-mac-explore-the-best-video-editing-alternatives/"><u>New 2024 Approved Get Lumafusion for Mac Explore the Best Video Editing Alternatives</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-2024-approved-top-ranked-screen-recorder-for-seamless-youtubing/"><u>[Updated] 2024 Approved  Top-Ranked Screen Recorder for Seamless YouTubing</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-restore-missing-call-logs-from-realme-c55-by-fonelab-android-recover-call-logs/"><u>How To  Restore Missing Call Logs from Realme C55</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-in-2024-stealthy-ios-youtube-bgm-sessions/"><u>[Updated] In 2024, Stealthy iOS  YouTube BGM Sessions</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/24-step-by-step-backlink-blueprint-for-channel-growth/"><u>In 2024, Step-by-Step Backlink Blueprint for Channel Growth</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-step-by-step-process-of-amplifying-your-channel-with-high-impact-placement/"><u>[Updated] Step-by-Step Process of Amplifying Your Channel with High-Impact Placement</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-in-2024-from-speech-to-text-a-complete-free-workshop-on-youtube-transcription/"><u>[Updated] In 2024, From Speech to Text  A Complete, FREE Workshop on YouTube Transcription</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/rime-freefire-content-creation-on-youtube/"><u>[New] Prime FreeFire Content Creation on YouTube</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-learn-to-produce-fb-video-ads-using-free-kit/"><u>[New] Learn to Produce FB Video Ads Using Free Kit</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-smooth-cinematography-premium-stabilizer-recommendations-for-2024/"><u>[Updated] Smooth Cinematography  Premium Stabilizer Recommendations for 2024</u></a></li>
+</ul></div>

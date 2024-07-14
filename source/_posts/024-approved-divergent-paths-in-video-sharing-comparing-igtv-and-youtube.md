@@ -1,0 +1,183 @@
+---
+title: "\"[New] 2024 Approved  Divergent Paths in Video Sharing  Comparing IGTV & YouTube\""
+date: 2024-07-12T23:48:26.148Z
+updated: 2024-07-13T23:48:26.148Z
+tags:
+  - ai video
+  - ai youtube
+categories:
+  - ai
+  - youtube
+description: "\"This Article Describes [New] 2024 Approved: Divergent Paths in Video Sharing: Comparing IGTV & YouTube\""
+excerpt: "\"This Article Describes [New] 2024 Approved: Divergent Paths in Video Sharing: Comparing IGTV & YouTube\""
+keywords: "IGTV Versus YouTube,Video Platform Comparison,IGTV Viewership,YouTube Streaming,Content Distribution Channels,Social Media Video Sharing,Viewer Engagement Strategies"
+thumbnail: https://thmb.techidaily.com/80c97e26a42ec85426e926d8a619570205ae66ef3c841d342bad4a1013bf8d86.jpg
+---
+
+## Divergent Paths in Video Sharing: Comparing IGTV & YouTube
+
+# IGTV VS YouTube: Should Video Content Creators Use One Platform or The Other?
+
+![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
+
+##### Shanoon Cox
+
+ Mar 27, 2024• Proven solutions
+
+IGTV receives quite a lot of attention from marketers and content creators alike. Some even go so far to compare **IGTV to YouTube**, currently, the largest video sharing platform in the world that hosts 300 minutes of video each minute. IGTV may have fewer users than YouTube, but that doesn’t mean you can’t find a way to use it effectively for a wide array of different purposes. So, in this article, we are going to take a look at the advantages and disadvantages of each platform in order to help you discover how you can utilize each of these social networks to broaden the audience for the content you share online.
+
+**You May Also Like:**
+[Instagram Reels VS Instagram Stories--Everything You Need to Know >>](https://tools.techidaily.com/wondershare/filmora/download/)
+[YouTube Shorts vs. TikTok: Which One Is Better? >>](https://tools.techidaily.com/wondershare/filmora/download/)
+
+## IGTV VS YouTube: What's the difference
+
+Comparison between IGTV and YouTube is somewhat unfair towards the former since IGTV is a much younger platform that still needs time to develop. YouTube, on the other hand, has a reputation as one of the most reliable video sharing platforms ever created that enables people from all walks of life to upload and share music, movies, gaming videos and virtually any other type of moving images. Even so, let’s take a look at major differences and similarities between IGTV and YouTube.
+
+#### Have a Quick Glance of the Differences
+
+01 [Interface Differences](#part1)
+
+02 [The Upload Process](#part2)
+
+03 [Discovering New Content](#part3)
+
+03 [Monetization](#part4)
+
+03 [Analytics and Insights](#part5)
+
+#### 1. Interface Differences
+
+Despite the fact that you can access IGTV from a web browser, this platform is predominantly dedicated to videos that are going to be watched on mobile devices. This also means that the thumbnails of the videos you uploaded to your IGTV channel are going to be displayed differently than those on your YouTube channel. The interfaces of these two social networks are entirely different, but if you are a newcomer to each of these platforms you won’t have much trouble getting used to them.
+
+#### 2. The Upload Process
+
+The fact that you can only upload vertically oriented videos to IGTV somewhat limits your options because you either have to record a video for IGTV specifically or you must edit a horizontally oriented video and change its aspect ratio to 9:16\. You can upload videos to YouTube and IGTV directly from your computer or you can use iPhone and Android-based apps to capture videos with your phone and upload them to either of these platforms. The maximum duration of an IGTV video can’t exceed sixty minutes, while the default duration of all videos on YouTube is set to 15 minutes. Nonetheless, if you own a verified YouTube account, you can upload videos that have 128GB and last up to 12 hours.
+
+At the moment the videos you want to upload to your IGTV channel have to be saved in the MP4 file format because the platform still doesn’t offer support for any other video file format. YouTube grants much more freedom in this respect as it allows you to upload videos saved in AVI, FLV, MOV, MP4 and other commonly used file formats.
+
+#### 3. Discovering New Content
+
+IGTV is more than a decade younger than YouTube, so you shouldn’t be surprised if you’re having trouble discovering new content. Moreover, IGTV’s search engine is still relatively new and it is much less powerful than the one used by YouTube. This is the reason why the videos you upload to your YouTube channel are going to be much easier to find via a simple Google search than those you shared on IGTV. Besides, YouTube offers much more new content on a daily basis than IGTV, and it is clear that the Instagram’s new brainchild still has ways to go before it reaches the point when it can challenge the largest video sharing platform in the world in terms of diversity of the content that it delivers to its users.
+
+#### 4. Monetization
+
+At the moment, views and likes can’t be monetized on IGTV, so most influencers rely on sponsorships from brands. Things may change as the platform grows, but for the time being IGTV doesn’t provide the content creators with any compensation for the work they are putting in. YouTube allows content creators to monetize their videos through Google Adsense for years, and some of its most prominent users like PewDiePie or Logan Paul have earned hundreds of millions of dollars by posting new content on their YouTube channels. Keep in mind that you are going to need at least a thousand subscribers and 4,000 hours of viewing time before you can enable YouTube’s Monetize feature.
+
+#### 5. Analytics and Insights
+
+Knowing how many people watched the entire video or how many likes and comments certain types of videos get can help you produce content that attracts a larger audience on all social networks. The metrics such as engagement or view-through rates can be essential during online marketing campaigns as they can suggest how many people are watching your videos and for how long. The analytics tools YouTube provides are much more diverse than those offered by IGTV that only lets you see the audience retention graph and the number of views and comments a video currently has. YouTube is an obviously a much better option for anyone who wants to conduct an in-depth analysis of their content’s performance, although the tools on IGTV are still powerful enough to indicate which type of content your audience likes the most.
+
+## Why Shouldn’t You Use YouTube and IGTV For the Same Purposes?
+
+You shouldn’t assume that you can post the same type of videos on your YouTube and IGTV channels, just because they are both video sharing platforms. The content you create for your IGTV channel needs to be dynamic and entertaining in order to captivate the audience’s attention. Posting tutorials or hour-long gaming videos on IGTV won’t attract as many viewers as on YouTube, which is why businesses who want to use IGTV to promote their products and services need to choose the content carefully. Furthermore, the videos that last between two and five minutes are still by far the most popular on IGTV, so even though technically you can upload a video that lasts one hour to your IGTV channel, the chances are that such long videos won’t get a lot of views.
+
+IGTV is probably best used as a tool that can help improve the engagement with your followers on Instagram, but if you want to become an established video content creator, then running a YouTube channel is simply a much better option. It still remains to be seen how will IGTV evolve in the years to come, but at the present moment this platform doesn’t really have any chance of challenging YouTube’s position as the world’s leading video sharing platform.
+
+However, no matter which video platform you choose, you need to ensure the videos you create are of high quality. A good video editing software like Filmora can help you acheive this goal.
+
+**Useful Features of Filmora**
+
+* Cokor Matching: Apply color correction setting to multiple clips on one-click.
+* Effects: Create blockbuster videos with preset effects.
+* Motion Tracking: Track moving items and add elements to it at ease.
+* And more waiting for you to discover.
+
+[![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
+
+![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
+
+Shanoon Cox
+
+Shanoon Cox is a writer and a lover of all things video.
+
+Follow @Shanoon Cox
+
+
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-format="autorelaxed"
+     data-ad-client="ca-pub-7571918770474297"
+     data-ad-slot="1223367746"></ins>
+
+
+
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-client="ca-pub-7571918770474297"
+     data-ad-slot="8358498916"
+     data-ad-format="auto"
+     data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-tips.techidaily.com/024-approved-elevate-your-videos-auditory-experience-on-youtube/"><u>[New] 2024 Approved  Elevate Your Video's Auditory Experience on YouTube</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/024-approved-essential-photo-tools-top-9-camgear-enhancers-for-filmmakers/"><u>[New] 2024 Approved  Essential Photo Tools  Top 9 CamGear Enhancers for Filmmakers</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/024-approved-income-levels-of-mr-beast/"><u>[New] 2024 Approved  Income Levels of Mr. Beast</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/024-approved-secret-watchers-how-to-hide-youtube-playback/"><u>[New] 2024 Approved  Secret Watchers  How to Hide YouTube Playback</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/024-approved-score-high-on-youtube-with-these-ranking-factors/"><u>[New] 2024 Approved  Score High on YouTube with These Ranking Factors</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/mastering-gif-transformation-to-stickers-on-whatsapp-discord-and-telegram/"><u>Mastering GIF Transformation  To Stickers on WhatsApp, Discord & Telegram</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/024-approved-navigating-the-best-video-formats-for-your-youtube-channel/"><u>[New] 2024 Approved  Navigating the Best Video Formats for Your YouTube Channel</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/updated-how-to-turn-off-default-recommended-podcast-listings-in-spotify/"><u>[Updated] How to Turn Off Default Recommended Podcast Listings in Spotify</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/024-approved-proven-techniques-for-amplifying-your-impact-on-youtube-shorts/"><u>[New] 2024 Approved  Proven Techniques for Amplifying Your Impact on YouTube Shorts</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/how-to-screen-mirroring-oppo-k11x-to-pc-drfone-by-drfone-android/"><u>How to Screen Mirroring Oppo K11x to PC? | Dr.fone</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-harmonious-social-media-incorporating-soundtracks-into-fb-videos/"><u>[Updated] Harmonious Social Media  Incorporating Soundtracks Into FB Videos</u></a></li>
+<li><a href="https://windows11.techidaily.com/reviving-your-excel-layout-fixing-failed-new-cell-insertions-on-pc/"><u>Reviving Your Excel Layout: Fixing Failed New Cell Insertions on PC</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/024-approved-monetization-strategies-for-gamers/"><u>[New] 2024 Approved  Monetization Strategies for Gamers</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/2024-approved-singe-sounds-to-complement-ppt-slides/"><u>2024 Approved  Singe Sounds to Complement PPT Slides</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-expanding-your-audience-stream-successfully-across-30plus-outlets/"><u>[Updated] 2024 Approved  Expanding Your Audience  Stream Successfully Across 30+ Outlets</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/024-approved-perfect-pixels-selecting-best-cameras-for-yt/"><u>[New] 2024 Approved  Perfect Pixels  Selecting Best Cameras For YT</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/024-approved-methods-for-eliminating-invisible-youtube-playback/"><u>[New] 2024 Approved  Methods for Eliminating Invisible YouTube Playback</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/new-how-to-capture-your-linkinscape-content-top-6-tools-for-it/"><u>[New] How to Capture Your Linkinscape Content  Top 6 Tools for It</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/024-approved-keyword-proficiency-at-little-to-none-guide-to-the-top-7-youtube-tag-extractor-apps/"><u>[New] 2024 Approved  Keyword Proficiency at Little to None  Guide to the Top 7 Youtube Tag Extractor Apps</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/024-approved-essential-rules-of-engagement-on-youtube/"><u>[New] 2024 Approved  Essential Rules of Engagement on YouTube</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/in-2024-comprehensive-guide-to-mastering-your-photos-with-facetune/"><u>In 2024, Comprehensive Guide to Mastering Your Photos with Facetune</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/024-approved-the-numbers-game-estimating-income-from-viral-content/"><u>[New] 2024 Approved  The Numbers Game  Estimating Income From Viral Content</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/new-in-2024-blending-techniques-for-top-tier-tiktok-video-quality/"><u>[New] In 2024, Blending Techniques for Top-Tier TikTok Video Quality</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/024-approved-perfect-your-asmr-recordings-with-these-mic-choices/"><u>[New] 2024 Approved  Perfect Your ASMR Recordings with These Mic Choices</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/chip-synergy-flawless-video-editing-redefined-by-m1s-efficiency-for-2024/"><u>Chip Synergy  Flawless Video Editing Redefined by M1's Efficiency for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/024-approved-dominating-viewers-spaces-channel-empire-rules/"><u>[New] 2024 Approved  Dominating Viewers' Spaces  Channel Empire Rules</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/024-approved-dive-into-a-stream-of-9-full-length-festive-flicks-no-charge/"><u>[New] 2024 Approved  Dive Into a Stream of 9 Full-Length Festive Flicks - No Charge</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/024-approved-infuse-your-visuals-with-melody-adding-music-in-youtube-editing/"><u>[New] 2024 Approved  Infuse Your Visuals With Melody  Adding Music in YouTube Editing</u></a></li>
+<li><a href="https://extra-support.techidaily.com/updated-lightning-fast-windowed-photo-reader-for-win11/"><u>[Updated] Lightning-Fast Windowed Photo Reader for Win11</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-ultimate-asmr-content-guides/"><u>[Updated] Ultimate ASMR Content Guides</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/024-approved-prowess-in-phrasing-best-tags-for-gamer-videos/"><u>[New] 2024 Approved  Prowess in Phrasing  Best Tags for Gamer Videos</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/updated-2024-approved-8-best-open-source-video-conferencing-software-for-enterprise/"><u>[Updated] 2024 Approved  8 Best Open Source Video Conferencing Software for Enterprise</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/024-approved-engaging-everyone-quickly-which-platform-triumphs-for-shorter-videos/"><u>[New] 2024 Approved  Engaging Everyone Quickly  Which Platform Triumphs for Shorter Videos?</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/024-approved-seamless-youtube-editing-the-ultimate-finalcut-pro-guidebook/"><u>[New] 2024 Approved  Seamless YouTube Editing  The Ultimate FinalCut Pro Guidebook</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/024-approved-reclaiming-brightness-in-youtube-videos/"><u>[New] 2024 Approved  Reclaiming Brightness in YouTube Videos</u></a></li>
+<li><a href="https://extra-support.techidaily.com/updated-share-your-latest-audio-exploration/"><u>[Updated] Share Your Latest Audio Exploration</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/024-approved-the-insiders-guide-to-fixing-popular-youtube-short-problems/"><u>[New] 2024 Approved  The Insider's Guide to Fixing Popular YouTube Short Problems</u></a></li>
+<li><a href="https://audio-shaping.techidaily.com/updated-in-2024-audio-integration-in-motion-picture-editing-a-step-by-step-approach/"><u>Updated In 2024, Audio Integration in Motion Picture Editing A Step-by-Step Approach</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/024-approved-html-techniques-for-youtube-playlist-web-insertion/"><u>[New] 2024 Approved  HTML Techniques for YouTube Playlist Web Insertion</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/new-in-2024-pro-tips-for-using-filters-on-zoom-for-crystal-clear-calls/"><u>[New] In 2024, Pro Tips for Using Filters on Zoom for Crystal Clear Calls</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/024-approved-flix-fortune-hashtags-for-high-impact-low-length-video-content/"><u>[New] 2024 Approved  Flix Fortune  Hashtags for High Impact, Low-Length Video Content</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/024-approved-mac-mavericks-blueprint-for-crafting-captivating-youtube-content/"><u>[New] 2024 Approved  Mac Mavericks' Blueprint for Crafting Captivating YouTube Content</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/in-2024-how-to-unlock-apple-iphone-11-pro-max-without-passcode-by-drfone-ios/"><u>In 2024, How to Unlock Apple iPhone 11 Pro Max Without Passcode?</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/024-approved-first-steps-launching-a-youtube-channel-for-profit/"><u>[New] 2024 Approved  First Steps  Launching a YouTube Channel for Profit</u></a></li>
+<li><a href="https://extra-information.techidaily.com/unveiling-5-excellent-mac-livestream-software/"><u>Unveiling 5 Excellent Mac Livestream Software</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/024-approved-quick-resize-youtube-videos-to-right-aspect-ratio-on-mac/"><u>[New] 2024 Approved  Quick Resize YouTube Videos to Right Aspect Ratio on Mac</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-best-youtube-ad-creators/"><u>[Updated] In 2024, Best YouTube Ad Creators</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/how-to-reset-gmail-password-on-realme-12-proplus-5g-devices-by-drfone-android/"><u>How to Reset Gmail Password on Realme 12 Pro+ 5G Devices</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/024-approved-streamline-your-seo-strategy-with-the-leading-7-online-youtube-tags-tools/"><u>[New] 2024 Approved  Streamline Your SEO Strategy with the Leading 7 Online Youtube Tags Tools</u></a></li>
+<li><a href="https://extra-support.techidaily.com/in-2024-learn-how-to-directly-control-your-iphones-orientation/"><u>In 2024, Learn How to Directly Control Your iPhone's Orientation</u></a></li>
+<li><a href="https://ai-video-apps.techidaily.com/2024-approved-windows-live-movie-maker-tutorial-adding-a-slow-motion-effect-to-your-videos/"><u>2024 Approved Windows Live Movie Maker Tutorial Adding a Slow Motion Effect to Your Videos</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/024-approved-master-content-analysis-discovering-the-best-7-budget-friendly-youtube-taggification-tools/"><u>[New] 2024 Approved  Master Content Analysis  Discovering the Best 7 Budget-Friendly YouTube Taggification Tools</u></a></li>
+<li><a href="https://discord-videos.techidaily.com/updated-in-2024-step-in-the-journey-to-mastering-discord-text-styles/"><u>[Updated] In 2024, Step-In  The Journey to Mastering Discord Text Styles</u></a></li>
+<li><a href="https://video-capture.techidaily.com/step-by-step-techniques-for-high-quality-lenovo-captures-for-2024/"><u>Step-by-Step Techniques for High Quality Lenovo Captures for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/024-approved-mastering-content-visibility-on-youtube-your-guide-to-effective-featured-channels/"><u>[New] 2024 Approved  Mastering Content Visibility on YouTube  Your Guide to Effective Featured Channels</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/024-approved-instant-designing-techniques-for-fortnite-images/"><u>[New] 2024 Approved  Instant Designing Techniques for Fortnite Images</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/024-approved-mastering-the-art-of-youtube-teaser-videos/"><u>[New] 2024 Approved  Mastering the Art of YouTube Teaser Videos</u></a></li>
+<li><a href="https://howto.techidaily.com/android-screen-stuck-general-oppo-reno-10-pro-5g-partly-screen-unresponsive-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Android Screen Stuck General Oppo Reno 10 Pro 5G Partly Screen Unresponsive | Dr.fone</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/ultimate-shortcut-tactics-for-optimal-voice-input-on-win-11/"><u>Ultimate Shortcut Tactics for Optimal Voice Input on Win 11</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/024-approved-excellent-7-dslrs-elevating-live-stream-cinematic-style/"><u>[New] 2024 Approved  Excellent 7 DSLRs Elevating Live-Stream Cinematic Style</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/024-approved-the-art-of-balance-mastering-tripod-usage-in-video-blogging/"><u>[New] 2024 Approved  The Art of Balance  Mastering Tripod Usage in Video Blogging</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/updated-2024-approved-embrace-classic-gaming-leading-ps3-tools-for-pcs/"><u>[Updated] 2024 Approved  Embrace Classic Gaming  Leading PS3 Tools for PCs</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/024-approved-the-comprehensive-blueprint-for-youtube-earnings-enhancement/"><u>[New] 2024 Approved  The Comprehensive Blueprint for YouTube Earnings Enhancement</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/024-approved-pro-freefire-compiling-premier-gaming-vids-and-hashtags/"><u>[New] 2024 Approved  Pro-FreeFire  Compiling Premier Gaming Vids and Hashtags</u></a></li>
+<li><a href="https://smart-video-creator.techidaily.com/new-mp4-video-metadata-management-tools-top-picks-for-2024/"><u>New MP4 Video Metadata Management Tools Top Picks for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/024-approved-step-by-step-capturing-ios-device-screen-on-video/"><u>[New] 2024 Approved  Step-by-Step  Capturing iOS Device Screen on Video</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-how-to-unlock-atandt-apple-iphone-15-plus-with-3-methods-by-drfone-ios/"><u>In 2024, How to Unlock AT&T Apple iPhone 15 Plus with 3 Methods</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/024-approved-the-best-asmr-microphones-you-should-try/"><u>[New] 2024 Approved  The Best ASMR Microphones You Should Try</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/updated-in-2024-ultimate-quicktime-lapse-setup-for-5/"><u>[Updated] In 2024, Ultimate Quicktime-Lapse Setup for #5</u></a></li>
+</ul></div>

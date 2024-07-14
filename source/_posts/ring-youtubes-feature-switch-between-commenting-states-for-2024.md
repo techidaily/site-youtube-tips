@@ -1,7 +1,7 @@
 ---
 title: "\"Mastering YouTube's Feature  Switch Between Commenting States for 2024\""
-date: 2024-06-25T17:30:00.723Z
-updated: 2024-06-26T17:30:00.723Z
+date: 2024-07-12T22:26:10.141Z
+updated: 2024-07-13T22:26:10.141Z
 tags:
   - ai video
   - ai youtube
@@ -16,7 +16,8 @@ thumbnail: https://thmb.techidaily.com/78573d1d50e3fe1a208211e6210a893de5cb63383
 
 ## Mastering YouTube's Feature: Switch Between Commenting States
 
-# How to Turn on or off Comments on YouTube ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
+# How to Turn on or off Comments on YouTube
+![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
 
 ##### Liza Brown
 
@@ -163,3 +164,58 @@ Follow @Liza Brown
      data-full-width-responsive="true"></ins>
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-tips.techidaily.com/ifestyle-logging-101-keeping-viewers-hooked-everyday/"><u>[New] Lifestyle Logging 101  Keeping Viewers Hooked Everyday</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/k-6-free-youtube-endings-for-pros-for-2024/"><u>Unlock 6 Free YouTube Endings for Pros for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-reverse-video-magic-online-step-by-step-guides/"><u>[Updated] Reverse Video Magic Online  Step-by-Step Guides</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/he-game-changer-implementing-custom-gaming-banners/"><u>[New] The Game Changer  Implementing Custom Gaming Banners</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-youtube-awareness-tactics-for-social-media-visibility-for-2024/"><u>[Updated] YouTube Awareness  Tactics for Social Media Visibility for 2024</u></a></li>
+<li><a href="https://games-able.techidaily.com/reinstating-aps-restart-license-on-ps5/"><u>Reinstating Aps: Restart License on PS5</u></a></li>
+<li><a href="https://extra-information.techidaily.com/2024-approved-10-affordable-mobile-apps-to-boost-your-images-visual-impact/"><u>2024 Approved  10 Affordable Mobile Apps to Boost Your Image's Visual Impact</u></a></li>
+<li><a href="https://some-skills.techidaily.com/updated-unleash-superior-hd-videos-on-android-devices/"><u>[Updated] Unleash Superior HD Videos on Android Devices</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-in-2024-self-portraits-for-social-media-success/"><u>[Updated] In 2024, Self-Portraits for Social Media Success</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-managing-a-day-job-and-your-thriving-youtube-channel-for-2024/"><u>[Updated] Managing a Day Job and Your Thriving YouTube Channel for 2024</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/innovative-ways-to-create-captivating-slow-motion-videos-for-instagram-fame/"><u>Innovative Ways to Create Captivating Slow Motion Videos for Instagram Fame</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/approved-cut-cost-unlock-creativity-step-by-step-guide-to-professional-green-screen-effects-from-top-4-channels/"><u>2024 Approved  Cut Cost, Unlock Creativity  Step-by-Step Guide to Professional Green Screen Effects From Top 4 Channels</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/updated-joke-jungle-tiktoks-cracking-content-creators-for-2024/"><u>[Updated] Joke Jungle  TikTok's Cracking Content Creators for 2024</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/new-in-2024-how-to-get-your-youtube-video-seen-6-easy-steps/"><u>[New] In 2024, How to Get Your YouTube Video Seen - 6 Easy Steps</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-essential-10-history-youtube-feeds-for-learners-for-2024/"><u>[Updated] Essential 10 History YouTube Feeds For Learners for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-the-essential-guide-free-youtube-image-saving/"><u>[Updated] The Essential Guide  FREE YouTube Image Saving</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-step-backward-in-time-reversing-youtube-media/"><u>[Updated] Step Backward in Time  Reversing YouTube Media</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-the-playbook-for-parallel-pursuit-of-youtube-videos/"><u>[Updated] The Playbook for Parallel Pursuit of Youtube Videos</u></a></li>
+<li><a href="https://discord-videos.techidaily.com/new-top-choices-in-custom-discord-fonts-mobile-devices-for-2024/"><u>[New] Top Choices in Custom Discord Fonts - Mobile Devices for 2024</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/2024-approved-audience-expansion-strategies-that-honor-youtube-standards/"><u>2024 Approved  Audience Expansion Strategies That Honor YouTube Standards</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/approved-from-blank-canvas-to-biggest-hit-mastering-youtube-thumbnail-sizes/"><u>2024 Approved  From Blank Canvas to Biggest Hit  Mastering YouTube Thumbnail Sizes</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-in-2024-youtube-artistry-designing-channels-visual-assets-bannersicons/"><u>[Updated] In 2024, YouTube Artistry  Designing Channels' Visual Assets (Banners/Icons)</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/24-video-revenue-battlefield-dm-versus-yo-analysis/"><u>In 2024, Video Revenue Battlefield  Dm Versus Yo Analysis</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/updated-in-2024-cameras-unveiled-the-beginners-guide-to-action-shooting/"><u>[Updated] In 2024, Cameras Unveiled  The Beginner's Guide to Action Shooting</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-tips-and-tricks-adjusting-aspect-ratios-for-effective-fb-sharing-for-2024/"><u>[New] Tips & Tricks  Adjusting Aspect Ratios for Effective FB Sharing for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-2024-approved-incorporating-visual-media-into-free-writings/"><u>[Updated] 2024 Approved  Incorporating Visual Media Into Free Writings</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/new-2024-approved-premier-5-minute-longshot-recorder/"><u>[New] 2024 Approved  Premier 5-Minute Longshot Recorder</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/approved-mitigating-the-risk-of-youtube-sanctions/"><u>2024 Approved  Mitigating the Risk of YouTube Sanctions</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/approved-the-visionarys-toolkit-for-personalized-animation-techniques/"><u>2024 Approved  The Visionary's Toolkit for Personalized Animation Techniques</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/twitch-time-warp-strategies-for-2024/"><u>Twitch Time Warp Strategies for 2024</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/in-2024-the-updated-method-to-bypass-xiaomi-redmi-k70e-frp-by-drfone-android/"><u>In 2024, The Updated Method to Bypass Xiaomi Redmi K70E FRP</u></a></li>
+<li><a href="https://graphic-issues.techidaily.com/overcoming-mirrored-window-issue-windows-11/"><u>Overcoming Mirrored Window Issue: Windows 11</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/in-2024-about-tecno-camon-20-premier-5g-frp-bypass-by-drfone-android/"><u>In 2024, About Tecno Camon 20 Premier 5G FRP Bypass</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-embarking-on-style-and-niche-discovery-journey/"><u>[Updated] Embarking on Style & Niche Discovery Journey</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/updated-in-2024-best-windows-video-calls-the-top-8-list/"><u>[Updated] In 2024, Best Windows Video Calls  The Top 8 List</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/apexs-single-player-focus-how-to-optimize-your-game-experience-for-2024/"><u>Apex's Single Player Focus  How to Optimize Your Game Experience for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-affordable-mcb-theme-images-for-channels/"><u>[New] In 2024, Affordable MCB Theme Images for Channels</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/hoosing-your-best-gif-creator-a-comparative-analysis/"><u>[New] Choosing Your Best GIF Creator  A Comparative Analysis</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-the-cinematographers-journey-shooting-top-notch-youtube-content/"><u>[Updated] The Cinematographer's Journey  Shooting Top-Notch YouTube Content</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/lueprint-to-climbing-your-way-up-in-youtube-ranks-for-2024/"><u>The Blueprint to Climbing Your Way Up in YouTube Ranks for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/etting-the-scene-ideal-video-aspect-ratios-and-widths-for-youtube/"><u>[New] Setting the Scene  Ideal Video Aspect Ratios & Widths for YouTube</u></a></li>
+<li><a href="https://audio-editing.techidaily.com/updated-find-crowd-cheering-effect/"><u>Updated Find Crowd Cheering Effect</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/in-2024-get-the-edge-with-a-premier-zero-cost-voice-change-software/"><u>In 2024, Get the Edge with a Premier, Zero-Cost Voice Change Software</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/approved-opening-doors-creating-an-account-on-youtube/"><u>2024 Approved  Opening Doors  Creating an Account on YouTube</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-how-to-unlock-nubia-red-magic-8s-proplus-pattern-lock-if-forgotten-6-ways-by-drfone-android/"><u>In 2024, How to Unlock Nubia Red Magic 8S Pro+ Pattern Lock if Forgotten? 6 Ways</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/he-breakdown-how-your-earnings-are-divided-in-youtube-shorts/"><u>[New] The Breakdown  How Your Earnings Are Divided in YouTube Shorts</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-rapidly-evolving-yt-spaces-enhancing-cerebral-growth-for-2024/"><u>[Updated] Rapidly Evolving YT Spaces Enhancing Cerebral Growth for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-low-investment-high-rewards-channel-size-doesnt-deter-sponsorship/"><u>[Updated] Low-Investment, High Rewards  Channel Size Doesn't Deter Sponsorship</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/he-ultimate-microphone-list-for-best-asmr-sound-for-2024/"><u>[New] The Ultimate Microphone List for Best ASMR Sound for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/approved-weighing-the-video-sharing-options-for-personal-use-tiktok-vs-youtube-shorts/"><u>2024 Approved  Weighing the Video Sharing Options for Personal Use  TikTok vs YouTube Shorts</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/new-strategic-steps-for-a-million-viewing-video-masterpiece/"><u>[New] Strategic Steps for a Million-Viewing Video Masterpiece</u></a></li>
+</ul></div>
