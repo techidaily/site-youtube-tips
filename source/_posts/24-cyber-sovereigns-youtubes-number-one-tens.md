@@ -1,0 +1,207 @@
+---
+title: "\"In 2024, Cyber Sovereigns  YouTube’s Number One Tens\""
+date: 2024-07-29T14:02:51.433Z
+updated: 2024-07-30T14:02:51.433Z
+tags:
+  - ai video
+  - ai youtube
+categories:
+  - ai
+  - youtube
+description: "\"This Article Describes In 2024, Cyber Sovereigns: YouTube’s Number One Tens\""
+excerpt: "\"This Article Describes In 2024, Cyber Sovereigns: YouTube’s Number One Tens\""
+keywords: "Cyber Dominance,YouTube Leaders,Top Teners,Digital Elites,Online Titans,Video Giants,Sovereign Streams"
+thumbnail: https://thmb.techidaily.com/4ccddc2cbd35cdd9b67d25078c429c9af70b9857f2a9c36b863ed5899c4ce463.jpg
+---
+
+## Cyber Sovereigns: YouTube’s Number One Tens
+
+# Top 10 Female Gamers on YouTube | 2024 Updated
+
+<!-- affiliate ads begin -->
+<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BGeneral%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/general-970x90.gif" border="0"></a>
+<!-- affiliate ads end -->
+![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+##### Richard Bennett
+
+ Mar 27, 2024• Proven solutions
+
+Even though they are largely overshadowed by their male counterparts, **female gamers** still attract large audiences on YouTube. As a matter of fact, some of the most popular gaming channels on YouTube are hosted by female gamers.
+
+What's more, women may not earn as much as the most popular male gamers through this video-sharing platform, but this doesn't mean that there aren't successful female gamers out there who earn their living by playing the games they love. So here it is, an article dedicated solely to women who love to play video games. Let's see who are the most popular girls in the world of gaming.
+
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4572700&QTY=1&AFFILIATE=108875&CART=1"><img src="	https://www.tubedigger.com/wp-content/uploads/2020/08/tubedigger-software-new.png" border="0">TubeDigger - online video downloader from mostly any site</a>
+<!-- affiliate ads end -->
+## Start YouTube Success Journey with [Filmora Instant Mode](https://tools.techidaily.com/wondershare/filmora/download/)
+
+Want to start a YouTube channel and be successful? An attractive video will save your efforts. To make a good YouTube video, you may need a satisfactory video editor. Filmora video editor allows you to record and [edit videos](https://tools.techidaily.com/wondershare/filmora/download/) with excellent video editing tools. With the Instant Mode in Filmora V11, you can create a YouTube video faster with plentiful video templates and video effects. Check what you can do with Filmora V11 with the below videos and download the free trial version of Flimora and start your video creation today.
+
+<!-- affiliate ads begin -->
+<a href="https://arkmc.pxf.io/c/5597632/427477/5172" target="_top" id="427477"><img src="//a.impactradius-go.com/display-ad/5172-427477" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://arkmc.pxf.io/i/5597632/427477/5172" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+[![Download Filmora X Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora X Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
+
+---
+
+<!-- affiliate ads begin -->
+<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BEducational%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/educational-970x90.gif" border="0"></a>
+<!-- affiliate ads end -->
+## Top 10 Female Gamers on YouTube
+
+1. [iHasCupquake](#part1)
+2. [SSSniperWolf](#part2)
+3. [LDShadowLady](#part3)
+4. [KittyKatGaming](#part4)
+5. [stacyplays](#part5)
+6. [Aphmau](#part6)
+7. [Gaming With Jen](#part7)
+8. [YOGSCAST Hannah](#part8)
+9. [Yammy](#part9)
+10. [Sqaishey Quack](#part10)
+
+#### 1. [iHasCupquake](https://www.youtube.com/channel/UCqg2eLFNUu3QN3dttNeOWkw)
+
+Tiffany Garcia aka iHasCupquake has been around for quite a while. She started uploading videos back in 2010 and her videos have collected more than 2 billion views over the years. This charming American started her career with a series of League of Legends and World of Warcraft videos, but she became a YouTube superstar after switching to Minecraft.
+
+Her modded series called 'Oasis' which contained over a hundred videos was a major success Today, Tiffany's channel has 6.3 million subscribers and she holds the record for most video views by a female game broadcaster on YouTube.
+
+#### 2. [SSSniperWolf](https://www.youtube.com/user/SSSniperWolf/featured)
+
+One of the most popular female gamers comes from Liverpool, England. Her first name is Lia and she has been a part of YouTube's gaming community since 2013\. She also uploads videos and vlogs that cover different non-gaming-related topics to her channel on a daily basis.
+
+Lia loves playing Call of Duty, which can be easily deduced from the contents of her channel's homepage, but the long list of games she covered in her videos cover includes Overwatch, Fortnite, or Grand Theft Auto. On May 19\. 2018 SSSniperWolf channel has reached 9 million subscribers.
+
+#### 3. [LDShadowLady](https://www.youtube.com/user/ldshadowlady)
+
+Yet another Brit on this list, whose extraordinary story has inspired numerous gamers to start their own YouTube channels. Lizzy created a channel in an attempt to perfect her Call of Duty skills, and her first video lasted around 12 seconds. But then she discovered Minecraft and became fascinated with the game's endless possibilities.
+
+Soon enough, she had an entire team of gamers who helped her develop her own games within the Minecraft universe and create epic battles that attracted millions of viewers. LDShadowLady channel has 3.9 million subscribers and over 1.5 billion total views which just shows the extent of Lizy's stardom.
+
+#### 4. [KittyKatGaming](https://www.youtube.com/channel/UCzHWMl59l72-lZQDA0uW8yg)
+
+Suzanne 'Suzy' Berhow is a popular YouTuber who manages three channels. Most people know her as a member of the Game Grumps crew, she is married to Arin Henson, one of the hosts of this web-based gaming show. Before becoming a star on YouTube, Suzy was a model, and one of her channels called Motrem3r is dedicated to makeup tutorials and fashion.
+
+She mostly uploads LetsPlay videos to her KittyKatGaming channel and covers all types of video games, regardless of the genre. Even though Suzy's gaming channel has only 350.000 subscribers she is still considered one of the most influential female gamers on YouTube.
+
+#### 5. [stacyplays](https://www.youtube.com/stacyplays)
+
+A Minecraft enthusiast who became widely celebrated for her overly enthusiastic commentary style created the stacyplays channel in 2013\. Stacy Hinojosa is a beloved YouTube figure who frequently refers to her fans as 'Potato Flakes' and she often includes fanart in her series called Dogcraft.
+
+She posts a new video every other day and as expected, the majority of them are Minecraft-themed. She occasionally ventures into vlogging, although her stacyvlogs channel receives significantly less attention than her gaming channel which has 1.3 million subscribers. Stacy loves collaborating with other gamers on YouTube, and she is also a consultant for the Epic Reads channel.
+
+#### 6. [Aphmau](https://www.youtube.com/ChallengeAcceptedInc)
+
+This channel was initially started under the name Challenge Accepted Inc by a group of friends who wanted to share their gaming experiences online. Soon, three members of the original crew left, which left Jess, better known as Aphmau, and Dom who changed the channel's name to Aphmau Gaming.
+
+The duo became famous for their roleplay series Minecraft Diaries, Minecraft Kindergarten, or Mod Mod World. Just four years after creating the channel they have managed to amass over 3 million subscribers. Jess runs the BluJayStudios a team of gamers who help her create her stunning gaming videos.
+
+#### 7. [Gaming With Jen](https://www.youtube.com/user/GamingWithJen)
+
+Famous for saying things like 'OMG! I totally Daver Copperfield that like a boss!' or 'The sink is shipping!' Jennifer Flagg or simply Jen is one of the most popular female gamers on YouTube. She is married to Patrick Brown the mastermind behind the PopularMMOs channel. Like her husband, Jen loves playing Minecraft and most of the videos on her channel are in one way or the other about this game.
+
+Together with her husband, Jen is working on the Roblox series that is hosted on her channel which currently has over 4 million subscribers. She also frequently appears in videos Patrick uploads to his PopularMMOs channel.
+
+#### 8. [YOGSCAST Hannah](https://www.youtube.com/channel/UCj%5FdHQWv08dQ0fv6IrzTChQ)
+
+YOGACAST channel was started by a couple of friends back in 2009 and it has since grown into a network of channels and a media production company that offers reviews of all types of video games. Hannah Rutherford is one of the network's most prominent members and her channel currently has 1.2 million subscribers. She joined the company in 2010 as Operations Manager, but she has moved on to running her own channel since then.
+
+Hannah uploads videos daily and mostly plays games with great narratives and lots of action, but you can find anything on her channel from God of War to Assassin's Creed.
+
+#### 9. [Yammy](https://www.youtube.com/channel/UCj%5FdHQWv08dQ0fv6IrzTChQ)
+
+Even though the majority of the videos on Yummy's channel are Minecraft-themed she also plays a bunch of other games like The Sims or Call of Duty. Together with LDShadowLady, Yammy is a member of the Pixel Pact, a crew that consists solely of female gamers and which was founded in 2013.
+
+The membership in the crew also helped her jump-start her career and to gain the recognition she deserves within YouTube's Minecraft community. As of June 2018, Jummy's YouTube channel has 1.5 million subscribers and 300 million total views. She is married to a fellow YouTuber and a gamer who uses the online pseudonym Koil1990.
+
+#### 10. [Sqaishey Quack](https://www.youtube.com/user/sqaishey)
+
+The beautiful and talented Bethany Bates is a passionate Minecraft player who creates LetsPlay videos. Her Sqaishey Quack channel has 977 thousand subscribers, while her videos attract thousands of views on a daily basis. Besides gaming, Bethany is also a skilled musician, and her gaming YouTube channel was initially created just for fun. She runs the Squishy Extra channel on YouTube where she posts her music videos and vlogs.
+
+Bethany also collaborated on a 'Cave den series' with the YouTuber behind Stampylongnose and Stampylonghead channels who she also dates. She has produced a number of web-based series on her own YouTube channel, including Twins, Ponds, or Club Penguin Island, to mention a few.
+
+**Conclusion:**
+
+These women belong to the very top of YouTube's gaming community and they deserve the same amount of attention as their male colleagues. All of the female gamers featured in this article produce videos that are fun to watch and which offer an endless source of entertainment. Want to cooperate with top YouTubers in your industry for your business? Try the [InflueNex](https://www.influenex.com/) influencer marketing platform to find, manage and contact the YouTube influencers. Who is your favorite female gamer on this list? Did we fail to mention someone? Let us know in the comments.
+
+<!-- affiliate ads begin -->
+<a href="https://twopages.pxf.io/c/5597632/1873313/18544" target="_top" id="1873313"><img src="//a.impactradius-go.com/display-ad/18544-1873313" border="0" alt="" width="1080" height="1263"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1873313/18544" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+[![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
+
+<!-- affiliate ads begin -->
+<a href="https://versadesk.pxf.io/c/5597632/1892107/21290" target="_top" id="1892107"><img src="//a.impactradius-go.com/display-ad/21290-1892107" border="0" alt="" width="1200" height="628"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1892107/21290" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+Richard Bennett
+
+Richard Bennett is a writer and a lover of all things video.
+
+Follow @Richard Bennett
+
+
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-format="autorelaxed"
+     data-ad-client="ca-pub-7571918770474297"
+     data-ad-slot="1223367746"></ins>
+
+
+
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-client="ca-pub-7571918770474297"
+     data-ad-slot="8358498916"
+     data-ad-format="auto"
+     data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-tips.techidaily.com/024-approved-beat-procrastination-with-instant-access-to-your-youtube-favorites/"><u>[New] 2024 Approved  Beat Procrastination with Instant Access to Your Youtube Favorites</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/024-approved-behind-the-scenes-of-gamers-elite-setup/"><u>[New] 2024 Approved  Behind the Scenes of Gamers' Elite Setup</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/024-approved-boost-your-channel-top-14-gaming-vids-for-youtube-success/"><u>[New] 2024 Approved  Boost Your Channel  Top 14 Gaming Vids for YouTube Success</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/024-approved-boosting-youtube-traffic-outsmarting-automated-viewers/"><u>[New] 2024 Approved  Boosting YouTube Traffic  Outsmarting Automated Viewers</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/024-approved-convincing-audiences-to-join-a-positive-approach/"><u>[New] 2024 Approved  Convincing Audiences to Join  A Positive Approach</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/024-approved-direct-download-and-conversion-best-youtube-to-mp3-software/"><u>[New] 2024 Approved  Direct Download & Conversion  Best YouTube to MP3 Software</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/024-approved-free-easy-tag-extraction-compilation-of-7-best-no-cost-online-tools/"><u>[New] 2024 Approved  Free, Easy Tag Extraction  Compilation of 7 Best No-Cost Online Tools</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/024-approved-live-stream-success-obs-steps-to-shine-on-youtube/"><u>[New] 2024 Approved  Live Stream Success  OBS Steps to Shine on Youtube</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/024-approved-mapping-social-interest-to-video-idea-generation-with-google/"><u>[New] 2024 Approved  Mapping Social Interest to Video Idea Generation with Google</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/024-approved-masterclass-for-viral-talent/"><u>[New] 2024 Approved  Masterclass for Viral Talent</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/024-approved-mastering-the-art-of-uploading-youtube-shorts-on-devices/"><u>[New] 2024 Approved  Mastering the Art of Uploading YouTube Shorts on Devices</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/024-approved-spice-up-viewers-innovative-cooking-channel-naming-tips/"><u>[New] 2024 Approved  Spice Up Viewers  Innovative Cooking Channel Naming Tips</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/024-approved-step-up-vfx-game-discover-these-8-sites-for-free-backdrops-and-footage/"><u>[New] 2024 Approved  Step Up VFX Game - Discover These 8 Sites for FREE Backdrops & Footage</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/024-approved-the-definitive-users-manual-for-youtube-tv/"><u>[New] 2024 Approved  The Definitive User's Manual for YouTube TV</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/-vision-realized-creating-and-launching-an-engaging-youtube-chanel-for-2024/"><u>[New] A Vision Realized  Creating and Launching an Engaging YouTube Chanel for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-elite-unmanned-aerial-vehicles-up-for-grabs/"><u>[New] Elite Unmanned Aerial Vehicles Up for Grabs</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-unveiling-the-mysteries-accessing-secretive-youtube-content/"><u>[New] Unveiling the Mysteries  Accessing Secretive YouTube Content</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/updated-horizon-captured-which-camera-takes-the-lead/"><u>[Updated] Horizon Captured  Which Camera Takes the Lead?</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-in-2024-conquer-snapchat-lens-design-two-easy-approaches/"><u>[Updated] In 2024, Conquer Snapchat Lens Design  Two Easy Approaches</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/2024-approved-brief-blueprints-sending-ios-videos-and-images/"><u>2024 Approved  Brief Blueprints  Sending iOS Videos & Images</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/2024-approved-direct-comparison-weighing-obs-against-twitch-channel-space/"><u>2024 Approved  Direct Comparison  Weighing OBS Against Twitch Channel Space</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/2024-approved-perfecting-your-performance-logging-the-ultimate-guide-for-capturing-roblox-on-a-mac/"><u>2024 Approved  Perfecting Your Performance Logging  The Ultimate Guide for Capturing Roblox on a Mac</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/2024-approved-sculpt-striking-signs-with-stock-designs-at-no-cost/"><u>2024 Approved  Sculpt Striking Signs with Stock Designs at No Cost</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/3-solutions-to-hard-reset-vivo-y02t-phone-using-pc-drfone-by-drfone-reset-android-reset-android/"><u>3 Solutions to Hard Reset Vivo Y02T Phone Using PC | Dr.fone</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/breaking-barriers-to-sound-in-twitters-visual-share-for-2024/"><u>Breaking Barriers to Sound in Twitter's Visual Share for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/-your-vision-online-mobilizing-content-creation-with-ease-and-simplicity/"><u>Bring Your Vision Online  Mobilizing Content Creation with Ease and Simplicity</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/-into-discussions-of-dedicated-viewers-for-2024/"><u>Delve Into Discussions of Dedicated Viewers for 2024</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-restore-wiped-music-on-galaxy-m14-4g-by-fonelab-android-recover-music/"><u>How to restore wiped music on Galaxy M14 4G</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/how-to-solve-youtube-video-distorted-issue-for-2024/"><u>How to Solve YouTube Video Distorted Issue for 2024</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/how-to-turn-on-hdr-settings-in-windows-11/"><u>How to Turn On HDR Settings in Windows 11</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/-audio-transformer-devices-for-youtube-experts/"><u>Ideal Audio Transformer Devices for YouTube Experts</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/in-2024-how-many-attempts-to-unlock-apple-iphone-x-drfone-by-drfone-ios/"><u>In 2024, How Many Attempts To Unlock Apple iPhone X | Dr.fone</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/in-2024-how-to-effortlessly-record-voices-using-windows-11-techniques/"><u>In 2024, How to Effortlessly Record Voices Using Windows 11 Techniques</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-apps-from-itel-s23plus-to-another-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Apps from Itel S23+ to Another | Dr.fone</u></a></li>
+<li><a href="https://fox-http.techidaily.com/in-2024-inside-look-how-dell-p2715q-delivers-on-4k-quality/"><u>In 2024, Inside Look  How Dell P2715Q Delivers on 4K Quality</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/in-2024-the-photography-gurus-guide-to-date-stamping/"><u>In 2024, The Photography Guru's Guide to Date Stamping</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/in-2024-understanding-and-complying-with-instagrams-audio-ownership-laws/"><u>In 2024, Understanding and Complying with Instagram's Audio Ownership Laws</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/-music-moments-character-compositions/"><u>Micro-Music Moments  Character Compositions</u></a></li>
+<li><a href="https://review-topics.techidaily.com/poco-bypass-tools-to-bypass-lock-screen-poco-m6-pro-4g-by-drfone-android-unlock-android-unlock/"><u>Poco Bypass Tools to Bypass Lock Screen(Poco M6 Pro 4G)</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/-a-light-on-your-content-creation-for-2024/"><u>Shine a Light on Your Content Creation for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/-length-amplify-impact-youtube-video-editing/"><u>Slash Length, Amplify Impact  YouTube Video Editing</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/-the-size-efficient-techniques-for-reducing-youtube-video-lengths-for-2024/"><u>Slash the Size  Efficient Techniques for Reducing YouTube Video Lengths for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/0-emerging-youtube-channels-to-spark-motivation-for-2024/"><u>Top 10 Emerging YouTube Channels to Spark Motivation for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/0-secrets-for-successful-youtube-music-reaction-videos-for-2024/"><u>Top 10 Secrets for Successful YouTube Music Reaction Videos for 2024</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/top-strategies-for-ps4-video-game-preservation-for-2024/"><u>Top Strategies for PS4 Video Game Preservation for 2024</u></a></li>
+</ul></div>
