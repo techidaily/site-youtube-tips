@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  IOS & Android Tips for Silent YouTube Viewing\""
-date: 2024-07-12T23:53:09.902Z
-updated: 2024-07-13T23:53:09.902Z
+date: 2024-08-08T11:37:50.739Z
+updated: 2024-08-09T11:37:50.739Z
 tags:
   - ai video
   - ai youtube
@@ -18,6 +18,9 @@ thumbnail: https://thmb.techidaily.com/5648c434c12cbf88b15506d6d23b8724252689511
 
 # How to Play YouTube in Background on iPhone and Android
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082532/7443" target="_top" id="2082532"><img src="//a.impactradius-go.com/display-ad/7443-2082532" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082532/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
@@ -30,6 +33,9 @@ Another reason why people may want to listen to YouTube in the background could 
 
 With that said, here you will learn how to **play YouTube in the background on iPhone** **or Android** both with and without any specific app.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2087394/7443" target="_top" id="2087394"><img src="//a.impactradius-go.com/display-ad/7443-2087394" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087394/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Best Paid Solution for Playing YouTube in Background: YouTube Premium
 
 YouTube Premium, formerly YouTube Red, is a paid subscription with three types of plans namely ‘Individual’, ‘Family’, and ‘Student’ offered by the streaming giant for $11.99, $17.99, and $6.99 per month respectively. All the plans give you ad-free and uninterrupted streaming experience.
@@ -48,12 +54,21 @@ Once you have subscribed for the YouTube Premium Individual plan, and downloaded
 
 Launch **YouTube Music**, search for your favorite music using the **Search** icon at the top-right corner, tap the song in the suggestions list, and then tap the name of the track to start playing.
 
+<!-- affiliate ads begin -->
+<a href="https://electronicx.pxf.io/c/5597632/1872456/14483" target="_top" id="1872456"><img src="//a.impactradius-go.com/display-ad/14483-1872456" border="0" alt="" width="500" height="375"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1872456/14483" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![YouTube Premium Play Music background](https://images.wondershare.com/filmora/article-images/youtube-premium-play-music-background.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://store.advancedwebranking.com/order/checkout.php?PRODS=4715051&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/14edc6ebfdae2e23bbed83d67f50e983/products/33_awr%20logo.png" border="0"></a>
+<!-- affiliate ads end -->
 ### Step 2: Switch to Audio Only (Optional)
 
 Tap anywhere on the video player window, and tap **Audio** from the top of the screen to switch to the audio only mode where the video of the song won’t be played.
 
+<!-- affiliate ads begin -->
+
+<!-- affiliate ads end -->
 ### Step 3: Play YouTube in Background
 
 Use your phone-specific button or option to minimize YouTube Music. You can then either continue using your smartphone normally, or turn off the screen to **play YouTube in background**.
@@ -62,12 +77,19 @@ Use your phone-specific button or option to minimize YouTube Music. You can then
 
 If you don’t want to pay for YouTube Premium, there are a few other workarounds that you can try to play YouTube in background on your iPhone. One of the easiest methods among them is explained below:
 
+<!-- affiliate ads begin -->
+<a href="https://checkout.devart.com/order/checkout.php?PRODS=5023555&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/45b430710ad04765a6afd58d9d9fafca/products/dotConnect_O.png" border="0">dotConnect for Oracle is an ADO.NET data provider for Oracle with Entity Framework Support.</a>
+<!-- affiliate ads end -->
 ### Step 1: Play YouTube Video on Browser
 
 Launch Safari on your iPhone, and go to [**www.youtube.com**](https://www.youtube.com) (important). Make sure to type the URL in the address bar so the YouTube app doesn’t start, and you can access YouTube from within the browser window itself.
 
 Use the regular method to search for the video you want to play in the background, and tap the **Play** button to start streaming.
 
+<!-- affiliate ads begin -->
+<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698998&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/MacBook_Pro_lyrx-withsinger-tv.png" border="0">LYRX is an easy-to-use karaoke software with the professional features karaoke hosts need to perform with precision. LYRX is karaoke show hosting software that supports all standard karaoke file types as well as HD video formats, and it’s truly fun to use. 
+LYRX Karaoke Software MAC/WINDOWS (Includes Activation For 3 Machines)</a>
+<!-- affiliate ads end -->
 ### Step 2: Open a New Tab
 
 Tap the **All Tabs** icon from the bottom-right corner of the browser, and tap **+** from the bottom-center. Notice how the YouTube video continues to play even when you are on the new tab.
@@ -76,14 +98,23 @@ Tap the **All Tabs** icon from the bottom-right corner of the browser, and tap *
 
 Press the **Home** button or swipe up on iPhone X or above to get to the Home screen. You can notice how YouTube still continues to stream. From this point onward, you can either start using your iPhone normally, or turn off the screen and let your device **play YouTube in background**.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4728277&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/f7f07e7dab09533bc71247a5b29a7373/products/1_iDeviceMessageBox.png" border="0"></a>
+<!-- affiliate ads end -->
 ## How to Play YouTube Videos in Background on Android
 
 The process to **play YouTube in background** on an Android smartphone is slightly different than what it is on an iPhone if you don’t have a Premium subscription. To get this done on your Android, you must:
 
+<!-- affiliate ads begin -->
+<a href="https://bluettide.pxf.io/c/5597632/2042332/17092" target="_top" id="2042332"><img src="//a.impactradius-go.com/display-ad/17092-2042332" border="0" alt="BLUETTI NEW LAUNCH AC180T" width="960" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2042332/17092" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Step 1: Switch to Desktop Mode
 
 Launch Google Chrome (default) on your Android phone, and go to [**www.youtube.com**](https://www.youtube.com). Click the **More options** icon (with three vertically aligned dots) from the top-right corner of the browser, and check the **Desktop site** box from the menu that appears.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2087264/19272" target="_top" id="2087264"><img src="//a.impactradius-go.com/display-ad/19272-2087264" border="0" alt="" width="336" height="280"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2087264/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Switch to YouTube desktop site on Android](https://images.wondershare.com/filmora/article-images/switch-to-desktop-site-youtube.jpg)
 
 ### Step 2: Search for and Stream a Video
@@ -94,6 +125,9 @@ Use the **Search** bar at the top of the interface to search for and tap the vid
 
 Once the video starts streaming, get back to the Home screen, pull down the **Notification** bar from the top (if the streaming stops), and press the **Play** button to **play YouTube in background** on your Android smartphone.
 
+<!-- affiliate ads begin -->
+<a href="https://checkout.abbyy.com/order/checkout.php?PRODS=39254762&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/0e5fb5c76fca16adbee503c9aff393cd/products/11_FR-Badges-NEW-FR-Standard-16-WIN-200.png" border="0"> PDF application, powered by AI-based OCR, for unified workflows with both digital and scanned documents. </a>
+<!-- affiliate ads end -->
 ![Play YouTube  background on Android](https://images.wondershare.com/filmora/article-images/play-youtube-background-android.jpg)
 
 ## 3 Best Apps to Play YouTube Videos in Background on Android
@@ -145,3 +179,48 @@ Follow @Richard Bennett
      data-full-width-responsive="true"></ins>
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-tips.techidaily.com/024-approved-tastemakers-playbook-recipes-for-attractive-channel-names/"><u>[New] 2024 Approved  Tastemakers' Playbook  Recipes for Attractive Channel Names</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/024-approved-unleash-creativity-pro-guide-for-youtube-studio-editing/"><u>[New] 2024 Approved  Unleash Creativity  Pro Guide for YouTube Studio Editing</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/new-architecting-an-inspiring-tiktok-conclusion/"><u>[New] Architecting an Inspiring TikTok Conclusion</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-expert-advice-on-lighting-your-youtube-content-perfectly-for-2024/"><u>[New] Expert Advice on Lighting Your YouTube Content Perfectly for 2024</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-fb-videos-to-mp3s-free-online-convert-2023/"><u>[New] FB Videos to MP3s - Free Online Convert 2023</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-effortless-engagement-how-to-craft-a-direct-subscribe-link/"><u>[New] In 2024, Effortless Engagement  How to Craft a Direct Subscribe Link</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-synchronize-your-surfing-master-multi-video-youtube-use/"><u>[New] In 2024, Synchronize Your Surfing  Master Multi-Video YouTube Use</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/odify-youtube-video-visibility-with-ease/"><u>[New] Modify YouTube Video Visibility with Ease</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-real-time-transmission-of-recorded-content-on-social-media-via-facebook/"><u>[New] Real-Time Transmission of Recorded Content on Social Media via Facebook</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/atirical-video-gems-the-ultimate-list-of-humor-channels/"><u>[New] Satirical Video Gems  The Ultimate List of Humor Channels</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ransfer-tactics-for-seamless-online-video-sharing-for-2024/"><u>[New] Transfer Tactics for Seamless Online Video Sharing for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-2024-approved-inspiration-boost-with-leading-hr-tapes/"><u>[Updated] 2024 Approved  Inspiration Boost with Leading HR Tapes</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-2024-approved-unleash-creativity-unlimited-samples-of-50-youtube-banners-for-free/"><u>[Updated] 2024 Approved  Unleash Creativity  Unlimited Samples of 50 YouTube Banners for Free!</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-acquire-high-quality-sounds-for-media-creators/"><u>[Updated] Acquire High-Quality Sounds for Media Creators</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-elevate-your-videos-with-complimentary-banners-here-in-2024/"><u>[Updated] Elevate Your Videos with Complimentary Banners, Here, In 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-in-2024-asmr-content-deep-dive-101/"><u>[Updated] In 2024, ASMR Content Deep Dive 101</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-in-2024-harness-youtube-opportunities-via-strategic-creator-studio-application/"><u>[Updated] In 2024, Harness YouTube Opportunities via Strategic Creator Studio Application</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-in-2024-optimal-hash-tags-for-youtube-success-story/"><u>[Updated] In 2024, Optimal Hash Tags for YouTube Success Story</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-pioneer-productions-leading-free-editors-on-android/"><u>[Updated] Pioneer Productions  Leading Free Editors on Android</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-premier-directory-of-economical-visual-content-providers-for-2024/"><u>[Updated] Premier Directory of Economical Visual Content Providers for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-quash-unwanted-youtube-suggested-videos-for-2024/"><u>[Updated] Quash Unwanted YouTube Suggested Videos for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-the-ultimate-guide-to-crafting-engaging-asmr-content/"><u>[Updated] The Ultimate Guide to Crafting Engaging ASMR Content</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-youtubes-non-indexable-content-decoding-the-unlisted-phenomenon/"><u>[Updated] YouTube's Non-Indexable Content  Decoding the Unlisted Phenomenon</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-discover-the-power-of-panasonics-hx-a1-actioncam/"><u>2024 Approved  Discover the Power of Panasonic's HX-A1 ActionCam</u></a></li>
+<li><a href="https://fox-that.techidaily.com/achieve-peak-performance-calibrating-the-iphone-battery-in-just-six-steps/"><u>Achieve Peak Performance: Calibrating the iPhone Battery in Just Six Steps</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/from-fragmented-to-flawless-mastering-kinemaster-edits/"><u>From Fragmented to Flawless  Mastering Kinemaster Edits</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/1722974698299-get-your-xbox-wireless-gear-running-instant-driver-download/"><u>Get Your Xbox Wireless Gear Running: Instant Driver Download</u></a></li>
+<li><a href="https://review-topics.techidaily.com/how-to-leave-a-life360-group-on-tecno-spark-20-pro-without-anyone-knowing-drfone-by-drfone-virtual-android/"><u>How To Leave a Life360 Group On Tecno Spark 20 Pro Without Anyone Knowing? | Dr.fone</u></a></li>
+<li><a href="https://review-topics.techidaily.com/how-to-transfer-whatsapp-from-iphone-15-plus-to-androidios-drfone-by-drfone-transfer-whatsapp-from-ios-transfer-whatsapp-from-ios/"><u>How To Transfer WhatsApp From iPhone 15 Plus to Android/iOS? | Dr.fone</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/24-essential-templates-and-makers-insights-for-end-credits/"><u>In 2024, Essential Templates & Makers' Insights for End Credits</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-fixing-foneazy-mockgo-not-working-on-asus-rog-phone-8-drfone-by-drfone-virtual-android/"><u>In 2024, Fixing Foneazy MockGo Not Working On Asus ROG Phone 8 | Dr.fone</u></a></li>
+<li><a href="https://video-capture.techidaily.com/in-2024-in-depth-exploration-of-durecorder-features/"><u>In 2024, In-Depth Exploration of DuRecorder Features</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/24-key-strategies-for-adding-timestamps-in-youtube-content/"><u>In 2024, Key Strategies for Adding Timestamps in YouTube Content</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/in-2024-optimize-your-iphones-camera-for-perfection/"><u>In 2024, Optimize Your iPhone's Camera for Perfection</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/in-2024-things-you-should-know-when-unlocking-total-wireless-of-iphone-6s-drfone-by-drfone-ios/"><u>In 2024, Things You Should Know When Unlocking Total Wireless Of iPhone 6s | Dr.fone</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-wireless-methods-to-mirrorapple-iphone-12-and-ipad-to-fire-stick-with-ease-drfone-by-drfone-ios/"><u>In 2024, Wireless Methods to MirrorApple iPhone 12 & iPad to Fire Stick With Ease | Dr.fone</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/izing-mastery-harness-the-power-of-your-youtube-content-on-mobile-for-2024/"><u>Monetizing Mastery  Harness the Power of Your YouTube Content on Mobile for 2024</u></a></li>
+<li><a href="https://win-dash.techidaily.com/quick-setup-obtain-and-install-focusrite-scarlett-2i2-drivers-on-your-pc/"><u>Quick Setup: Obtain & Install Focusrite Scarlett 2I2 Drivers on Your PC</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ess-video-integration-on-youtube-platform-for-2024/"><u>Seamless Video Integration on YouTube Platform for 2024</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/strategic-campaign-planning-for-health-brands-for-2024/"><u>Strategic Campaign Planning for Health Brands for 2024</u></a></li>
+<li><a href="https://iphone-transfer.techidaily.com/ultimate-guide-how-to-transfer-music-from-apple-iphone-12-pro-to-iphone-drfone-by-drfone-transfer-from-ios/"><u>Ultimate Guide, How to Transfer Music From Apple iPhone 12 Pro to iPhone | Dr.fone</u></a></li>
+</ul></div>
