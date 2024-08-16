@@ -1,0 +1,243 @@
+---
+title: "In 2024, Top 10 Steps to Design Free YouTube Video Ads"
+date: 2024-08-15T23:01:40.095Z
+updated: 2024-08-16T23:01:40.095Z
+tags:
+  - ai video
+  - ai youtube
+categories:
+  - ai
+  - youtube
+description: "This Article Describes In 2024, Top 10 Steps to Design Free YouTube Video Ads"
+excerpt: "This Article Describes In 2024, Top 10 Steps to Design Free YouTube Video Ads"
+keywords: "YouTube Ad Creation Guide,Free Video Ad Design Tips,Effective YouTube Promotion Strategies,Crafting Engaging Ad Videos,YouTube Video Marketing Ideas,Top Ad Design Techniques,Free Video Ads for YouTube"
+thumbnail: https://thmb.techidaily.com/7886b93aef2a0639ec1e094763681d9231c505608c149e23de7fcb6df36e4813.JPG
+---
+
+## Top 10 Steps to Design Free YouTube Video Ads
+
+# How to Create Video Ads for Free in YouTube Video Builder
+
+![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+##### Richard Bennett
+
+ Mar 27, 2024• Proven solutions
+
+Many people find it challenging to create compelling video advertisements for their brand promotions. While some of the creative tools might be expensive, the easy ones have a steep learning curve, and engaging a professional designer wouldn’t be something you might be ready for. **YouTube Video Builder** is a great solution for any such situation.
+
+With that being said, the following sections talk about what **YouTube Video Builder** is, how is it useful, what advantages does it offer, and how can you create professional video adverts using the tool.
+
+* [Part 1: What Is YouTube Video Builder?](#part1)
+* [Part 2: How Does YouTube Video Builder Work?](#part2)
+* [Part 3: How to Get YouTube Video Builder?](#part3)
+* [Part 4: How to Make Video Ads for Free with YouTube Video Builder?](#part4)
+* [Part 5: Tips for Making Good Video Ads with YouTube Video Builder](#part5)
+
+---
+
+## Part 1: What Is YouTube Video Builder?
+
+YouTube recently came up with an online tool, **YouTube Video Builder**, that, as the name suggests, enables you as an organization to prepare videos for free. These videos could be anywhere from 6 to 15 seconds long and are most appropriate for advertisements. Once created, the films can be used in the campaigns to promote your brand and/or products online.
+
+However, you must keep the following few things handy before starting with **YouTube Video Builder** to prepare a video advertisement:
+
+* **Logo**
+
+You must have a good-quality photo of your [brand logo](https://tools.techidaily.com/wondershare/filmora/download/) that you want to add to the video as a watermark. This gives your organization online recognition.
+
+* **HD Images**
+
+At the time of this writing, **YouTube Video Builder** only allows you to add still images. The tool compiles these photos using a theme that you select, and enables you to add background music to make the advert more engaging. Therefore, it is imperative to have high-definition images of your product(s) that you want to create a promotional video for.
+
+* **Google Chrome Browser**
+
+You must have the latest version of the Google Chrome web browser installed on your computer.
+
+* **YouTube Channel**
+
+Because **YouTube Video Builder** will publish your video advertisements on YouTube itself, you must have your own [YouTube Channel created](https://tools.techidaily.com/wondershare/filmora/download/), configured, and properly functioning so the posting process remains smooth and seamless.
+
+* **Availability of the Tool and Features**
+
+**YouTube Video Builder** is still in the Beta phase, and therefore you may not have access to all the features that the tool has to offer. However, this majorly depends on the region of your residence. As of now, the utility is not even available in some countries of the world.
+
+<!-- affiliate ads begin -->
+<a href="https://caperobbin.sjv.io/c/5597632/2006123/18460" target="_top" id="2006123"><img src="//a.impactradius-go.com/display-ad/18460-2006123" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2006123/18460" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+## Part 2: How Does YouTube Video Builder Work?
+
+As explained earlier, **YouTube Video Builder** is an online tool that works on the latest version of the Google Chrome browser. The web interface of the utility has separate blocks (or placeholders if you want to call them) for different types of images. For instance, there is a placeholder for your logo, and a couple of other blank slots where you can import the photos from your computer.
+
+There are some text input fields that you can populate with the relevant information such as the name of the video, the product’s name that you wish to promote, and many other things. There is a storyboard at the bottom of the interface that helps give your video a theme and the alignment of the ingredients that you have imported from your computer.
+
+Finally, you can add background music to the video from the royalty-free tracks that can be accessed from the built-in library, and you are all set to go.
+
+<!-- affiliate ads begin -->
+<a href="https://purchase.swifdoo.com/order/checkout.php?PRODS=40002162&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8b932759a5a04ddb34bf79e3f9072e4b/products/1_Product%20box%20white-1024x1024.png" border="0">SwifDoo PDF Perpetual (1 PC) Free upgrade. No monthly fees ever. 
+</a>
+<!-- affiliate ads end -->
+## Part 3: How Can I Get YouTube Video Builder?
+
+Because YouTube Video Builder is in its Beta phase, at the time of this writing you are required to send an access request to Google using your account that you want to use to create the videos from. You can send your requests to: <https://services.google.com/fb/forms/videobuilderbeta/>.
+
+Once your request is approved, you can then use the same Google account to sign in to the **YouTube Video Builder** portal, and start preparing your video advertisements. Here, it is important to understand that the Google account that you use to send an access request and prepare the videos must be the same ID that has your active and functional YouTube Channel.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2068407/7443" target="_top" id="2068407"><img src="//a.impactradius-go.com/display-ad/7443-2068407" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068407/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+## Part 4: How to Make Video Ads for Free with YouTube Video Builder?
+
+Once you have access to the Beta version of **YouTube Video Builder**, you can start creating the video ads for free. You can learn the process of how this can be done by following the simple instructions given below:
+
+#### Step 1: Prepare a Console
+
+After signing in to your **YouTube Video Builder** account, on the main interface, click **Select Layout** from the navigation bar at the right if not already selected, pick a layout that best suits your needs, and click **Use Layout**.
+
+![ YouTube Video Builder ](https://images.wondershare.com/filmora/article-images/youtube-video-builder-select-layout.jpg)
+<!-- affiliate ads begin -->
+<a href="https://homestyler.sjv.io/c/5597632/2044747/22993" target="_top" id="2044747"><img src="//a.impactradius-go.com/display-ad/22993-2044747" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2044747/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+Next, from the **Color & Logo** section, choose the base (background) and text colors using their corresponding tools from under the **Brand colors** section.
+
+![Create video with YouTube Video Builder ](https://images.wondershare.com/filmora/article-images/youtube-video-builder-select-color-logo.jpg)
+
+After this, insert an image of your brand logo in the block under the **Logos** category.
+
+![Create video with YouTube Video Builder ](https://images.wondershare.com/filmora/article-images/youtube-video-builder-insert-brand-logo.jpg)
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4729320&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/f7f07e7dab09533bc71247a5b29a7373/products/2_iDeviceMessageBox.png" border="0"></a>
+<!-- affiliate ads end -->
+
+#### Step 2: Add the Ingredients
+
+When you are on the **Images & Text** section of the navigation bar, pick the high-definition photos from the **Storyboard** at the bottom, and add them to the **Image 1**, **Image 2**, and **Image 3** boxes accordingly.
+
+![Create video with YouTube Video Builder ](https://images.wondershare.com/filmora/article-images/youtube-video-builder-insert-images-texts.jpg)
+<!-- affiliate ads begin -->
+<a href="https://lightailing.sjv.io/c/5597632/1725213/17190" target="_top" id="1725213"><img src="//a.impactradius-go.com/display-ad/17190-1725213" border="0" alt="" width="1000" height="1000"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1725213/17190" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+Now, scroll down to the **Text** section, and add the relevant content in the available text input fields. Make sure to add a compelling **Call to action** text to give the viewers a free passage to connect with you.
+
+![Create video with YouTube Video Builder with CTA ](https://images.wondershare.com/filmora/article-images/youtube-video-builder-call-to-action-texts.jpg)
+
+#### Step 3: Make Cosmetic Manipulations
+
+From the **Pick a Font** section of the navigation bar, click the **Google Fonts catalog** link to search for a unique font, and once found, type its name in the available field to use that font.
+
+![Create video with YouTube Video Builder - change font ](https://images.wondershare.com/filmora/article-images/youtube-video-builder-pickup-video-text-fonts.jpg)
+
+Alternatively, you can leave the default one selected. When on the **Select Music** section, choose your preferred background music from the drop-down list that is present under the section.
+
+![Create video with YouTube Video Builder with music ](https://images.wondershare.com/filmora/article-images/youtube-video-builder-select-music-for-video.jpg)
+
+Finally, click **Create video**, and wait while **YouTube Video Builder** takes you to the **Preview, Save, Share** section, and generates your video.
+
+![ YouTube Video Builder Video create video  ](https://images.wondershare.com/filmora/article-images/youtube-video-builder-create-video.jpg)
+<!-- affiliate ads begin -->
+<a href="https://electronicx.pxf.io/c/5597632/1872456/14483" target="_top" id="1872456"><img src="//a.impactradius-go.com/display-ad/14483-1872456" border="0" alt="" width="500" height="375"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1872456/14483" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+#### Step 4: Save the Video and Begin Promotion
+
+After the video is generated, play to preview the film. If everything looks good, click **Save video**.
+
+![ YouTube Video Builder Video Preview and Save  ](https://images.wondershare.com/filmora/article-images/youtube-video-builder-save-preview-video.jpg)
+
+On the next page, click **Copy** to copy the video link, and share it with your friends, colleagues, and family members for their feedback.
+
+![ YouTube Video Builder Video Copy Link  ](https://images.wondershare.com/filmora/article-images/youtube-video-builder-copy-link.jpg)
+
+Next, scroll down to get to the **Create Campaign** section of the navigation bar, and from the left screen, click **Create campaign** to begin a campaign to promote your brand and/or product(s).
+
+![ YouTube Video Builder Video Create Campaign ](https://images.wondershare.com/filmora/article-images/youtube-video-builder-create-campaign.jpg)
+
+#### Part 5: Tips for Making Good Video Ads with YouTube Video Builder
+
+The whole point here is to prepare your video adverts with the least investment and almost no effort. The following few tips would help you achieve this with ease:
+
+* Make sure to gather all the ingredients such as the photos of the products, brand logo, etc. before starting with the video creation process
+* Set a layout, font, theme color, and background music that compliments the product(s) you wish to promote
+* Remain consistent with the theme color, fonts, etc. throughout the video
+* Make sure to include a catchy ‘Call for action’ text in your video ad
+* Make as many modifications as you want before publishing the ad on your YouTube Channel. Avoid doing any amendments after the ad has been posted
+* Share the link of your video with as many people as you possibly can to make your product(s) and brand visible and popular
+* Make sure to use the ad in your campaigns to make people aware of your brand/product(s)
+
+**Conclusion**
+
+The bitter truth is, producing videos, especially for brand promotions requires expert creators, expensive tools, and a good amount of work experience. Although all these can be managed if you have some spare funds, **YouTube Video Builder** helps you create advertising videos of up to 15 seconds with ease and for free. All you need is access to **YouTube Video Builder**, your own YouTube Channel, your brand logo, and high-definition photos of your product(s).
+
+![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+Richard Bennett
+
+Richard Bennett is a writer and a lover of all things video.
+
+Follow @Richard Bennett
+
+
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-format="autorelaxed"
+     data-ad-client="ca-pub-7571918770474297"
+     data-ad-slot="1223367746"></ins>
+
+
+
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-client="ca-pub-7571918770474297"
+     data-ad-slot="8358498916"
+     data-ad-format="auto"
+     data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-sure.techidaily.com/024-approved-improve-your-youtube-description-using-amazing-templates/"><u>[New] 2024 Approved  Improve Your YouTube Description Using Amazing Templates</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/new-2024-approved-prime-windows-snipper-apps-listed-at-5/"><u>[New] 2024 Approved  Prime Windows Snipper Apps Listed at #5</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/024-approved-the-ultimate-list-of-world-explorers-on-youtube/"><u>[New] 2024 Approved  The Ultimate List of World Explorers on Youtube</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/new-eight-free-android-recorders-top-selection-list-for-2024/"><u>[New] Eight Free Android Recorders – Top Selection List for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ow-to-add-video-to-text-for-free-for-2024/"><u>[New] How to Add Video to Text for Free for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-locating-and-unveiling-your-personalized-melodic-repository-on-youtube/"><u>[New] In 2024, Locating and Unveiling Your Personalized Melodic Repository on Youtube</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-net-worth-of-kids-celebrity-reaches-new-heights/"><u>[New] In 2024, Net Worth of Kids Celebrity Reaches New Heights</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-the-smartphones-role-in-video-content-making-youtube-thumbnails-stand-out/"><u>[New] In 2024, The Smartphone's Role in Video Content  Making YouTube Thumbnails Stand Out</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-top-10-fearful-video-blogs-overcoming-each-challenge/"><u>[New] In 2024, Top 10 Fearful Video Blogs  Overcoming Each Challenge</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/avigating-the-process-of-verifying-your-youtube-id/"><u>[New] Navigating the Process of Verifying Your YouTube ID</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ltimate-trend-watcher-track-top-8-rankings/"><u>[New] Ultimate Trend Watcher  Track Top 8 Rankings</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/tilizing-youtubes-annotation-feature/"><u>[New] Utilizing YouTube's Annotation Feature</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-2024-approved-kickstarting-your-digital-voice-the-complete-process-of-starting-a-youtube-chanel/"><u>[Updated] 2024 Approved  Kickstarting Your Digital Voice  The Complete Process of Starting a YouTube Chanel</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-2024-approved-stand-out-in-a-sea-of-content-our-offer-includes-50-free-banners/"><u>[Updated] 2024 Approved  Stand Out in a Sea of Content - Our Offer Includes 50 Free Banners</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-a-closer-look-at-high-end-vr-walking-machines-for-2024/"><u>[Updated] A Closer Look at High-End VR Walking Machines for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-fast-fixed-ways-to-scramble-youtube-watchlist-content/"><u>[Updated] Fast Fixed Ways to Scramble YouTube Watchlist Content</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-in-2024-how-to-effortlessly-eradicate-unwanted-youtube-feedback/"><u>[Updated] In 2024, How to Effortlessly Eradicate Unwanted YouTube Feedback</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-in-2024-mastering-youtube-sounds-4-top-budget-friendly-apps/"><u>[Updated] In 2024, Mastering YouTube Sounds - 4 Top Budget-Friendly Apps</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/26454177-updated-initiating-a-thriving-youtube-channel-avoid-these-8-essential-blunders/"><u>[Updated] Initiating a Thriving YouTube Channel? Avoid These 8 Essential Blunders!</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/updated-mastering-the-zoom-tool-on-snapchat-for-better-photos-and-videos/"><u>[Updated] Mastering the Zoom Tool on Snapchat for Better Photos & Videos</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-maximizing-youtube-revenue-understanding-adsense-payments-per-thousand-views-for-2024/"><u>[Updated] Maximizing Youtube Revenue  Understanding AdSense Payments per Thousand Views for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-schedule-smarter-the-art-of-youtube-content-timing-for-2024/"><u>[Updated] Schedule Smarter  The Art of YouTube Content Timing for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-sourav-joshis-financial-blueprint-for-online-content-creators-2024/"><u>[Updated] Sourav Joshi's Financial Blueprint for Online Content Creators, 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-the-premier-selection-of-11-costless-yt-moniker-makers/"><u>[Updated] The Premier Selection of 11 Costless YT Moniker Makers</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-web-integration-adding-youtube-playlists-easily-for-2024/"><u>[Updated] Web Integration  Adding YouTube Playlists Easily for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/approved-channel-conversion-secrets-yt-vs-igtv/"><u>2024 Approved  Channel Conversion Secrets  YT Vs IGTV</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/2024-approved-effortless-gameplay-enhancement-with-simple-screen-recorders/"><u>2024 Approved  Effortless Gameplay Enhancement with Simple Screen Recorders</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/2024-approved-mastery-of-fb-instream-ad-setup-and-evaluation-techniques-in-digital-marketing/"><u>2024 Approved  Mastery of FB Instream Ad Setup & Evaluation Techniques in Digital Marketing</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/approved-quick-hands-turning-photos-into-compelling-youtube-thumbnails/"><u>2024 Approved  Quick Hands  Turning Photos Into Compelling YouTube Thumbnails</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/2024-approved-secrets-to-shooting-exceptional-micro-videos/"><u>2024 Approved  Secrets to Shooting Exceptional Micro Videos</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/2024-approved-top-10-freefire-game-hacks-for-youtube-gamers/"><u>2024 Approved  Top 10 FreeFire Game Hacks for YouTube Gamers</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/movie-swaps-top-7-alternate-films-for-2024/"><u>Best Movie Swaps  Top 7 Alternate Films for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ructing-captivating-conclusions/"><u>Constructing Captivating Conclusions</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ng-common-mishaps-youtube-short-edition/"><u>Curbing Common Mishaps  YouTube Short Edition</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ng-exposure-cost-effective-promotion-hacks-for-youtubers/"><u>Gaining Exposure  Cost-Effective Promotion Hacks for YouTubers</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/24-charting-a-path-to-profit-calculating-video-view-requirements/"><u>In 2024, Charting a Path to Profit  Calculating Video View Requirements</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/24-final-thoughts-in-journalistic-styling/"><u>In 2024, Final Thoughts in Journalistic Styling</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/24-premiere-masterclass-making-your-videos-shine-on-youtube/"><u>In 2024, Premiere Masterclass  Making Your Videos Shine on YouTube</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/24-swift-sketches-of-fortnite-game-screenshots/"><u>In 2024, Swift Sketches of Fortnite Game Screenshots</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/24-the-complete-users-manual-to-youtube-editing-via-finalcut-pro/"><u>In 2024, The Complete User's Manual to YouTube Editing via FinalCut Pro</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/inside-outlook-unveiling-vrs-downfalls-for-2024/"><u>Inside Outlook  Unveiling VR's Downfalls for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ts-to-standout-final-scenes-on-yt-platforms/"><u>Secrets to Standout Final Scenes on YT Platforms</u></a></li>
+<li><a href="https://extra-information.techidaily.com/setting-up-zoom-like-a-pro/"><u>Setting Up Zoom Like a Pro</u></a></li>
+<li><a href="https://driver-install.techidaily.com/smooth-lenovo-g580-driver-upgrades/"><u>Smooth Lenovo G580 Driver Upgrades</u></a></li>
+</ul></div>

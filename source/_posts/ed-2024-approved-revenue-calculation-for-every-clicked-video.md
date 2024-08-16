@@ -1,0 +1,220 @@
+---
+title: "\"[Updated] 2024 Approved  Revenue Calculation for Every Clicked Video\""
+date: 2024-08-15T22:57:16.643Z
+updated: 2024-08-16T22:57:16.643Z
+tags:
+  - ai video
+  - ai youtube
+categories:
+  - ai
+  - youtube
+description: "\"This Article Describes [Updated] 2024 Approved: Revenue Calculation for Every Clicked Video\""
+excerpt: "\"This Article Describes [Updated] 2024 Approved: Revenue Calculation for Every Clicked Video\""
+keywords: "\"Video Revenue Metrics,Click-to-Earn Analysis,Conversion Rate Videos,Per-Click Profit Video,Earnings per View (EPV),Video Ad Monetization,ROI in Video Marketing\""
+thumbnail: https://thmb.techidaily.com/2b0e79e191f0ed82f151a5598b1f3bbb7dbdcce948e1ec31321e7ff03bc36bee.jpg
+---
+
+## Revenue Calculation for Every Clicked Video
+
+# How Much Money Do YouTubers Make Per View
+
+![](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+##### Richard Bennett
+
+ Nov 01, 2022• Proven solutions
+
+[0](#commentsBoxSeoTemplate)
+
+Can you make a living on YouTube? Everyone knows that big YouTubers get paid through the ads that play ahead of their videos. More and more YouTubers keep showing how much money they are making from YouTube via the lifestyles they lead. It begs the question - how much money do YouTubers make?
+
+One of the main questions is "how many views do you need to start making money on YouTube?" The answer to this question is complicated. You need 4,000 hours of annual viewing time and 1,000 subscribers on your channel to sign up for monetization, but just being able to monetize your videos doesn’t mean you’re going to make money.
+
+The reason is that YouTubers are not paid per view, they are paid per ad impression.
+
+* [Types of YouTube Ads - What is an Ad Impression?](#types)
+* [CPI Rates Explained](#cpi)
+* [How Much Do Big YouTubers Make?](#bigyoutubers)
+* [Why No Longer 10,000 Views?](#milestone)
+
+Want a fast answer about how much money a YouTuber makes? [Check out these calculators](https://tools.techidaily.com/wondershare/filmora/download/).
+
+## Types of YouTube Ads – What is an Ad Impression?
+
+If you ask YouTubers about how much they make per thousand views, you'll probably get a different answer depending on the person on who you ask. You may have already heard things like $5 per thousand views or $1,000 per 1 million views, but neither of these is for sure.
+
+Google’s AdSense service, through which YouTubers make money, pays YouTubers for ad impressions. For most types of ads – including short pre-roll ads, the ads which appear at the bottoms of videos while they play, and the ads which appear as banners to the side of YouTube’s player – an ad impression means someone clicking on the ad and choosing to visit the advertiser’s site. One exception is skippable video ads, for which an impression is created when a viewer watches the ad for 30 seconds.
+
+YouTubers do not make money on the views of their videos, because not all viewers click on ads. Many viewers bypass ads completely using ad-blockers. The amount of money YouTubers earn from a single ad impression is called their CPI or "cost per impression."
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082541/7443" target="_top" id="2082541"><img src="//a.impactradius-go.com/display-ad/7443-2082541" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082541/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+## CPI Rates Explained
+
+YouTube advertising is currently managed inside the AdSense platform. In case you're not familiar with AdSense, you can have 2 different kinds of ads - the cost per click (CPC) or the cost per view (CPV).
+
+#### Cost Per Click ads
+
+The advertiser pays based on how many clicks he was able to get with that particular ad. These kinds of ads usually appear on the right side of your YouTube channel or they can also appear at the bottom of the screen, during the video.
+
+#### Cost Per View ads
+
+the advertiser will pay based on the views he had of the ad and not based on the clicks he was able to generate. One of the things that many people aren't aware of is the fact that the viewer needs to spend at least 30 seconds watching the ad or half the ad, whichever comes first. This means that a single viewer can continue clicking on the ad multiple times that the advertiser won't be billed for all those clicks because he is only paying for views.
+
+#### Never Click on the CPC ads of Your Own YouTube Videos
+
+If any of your friends ever suggest that they are going to do so to help you out tell them not to. AdSense has a rate of ad-clicks that it considers normal and if you get significantly more clicks than that it will think you’re artificially pushing that number up by either clicking yourself or having someone do it for you. If this happens they will ban you from AdSense and, although there is an appeals process, it is unlikely you will ever get your account back and be able to monetize videos again.
+
+How much you make from an ad on YouTube depends on your CPI, cost per impression. Simply put, this is the rate that YouTube will pay you for every 1,000 views or clicks of the ads that are attached to your videos. Even though it would be a lot simpler if YouTube had their current CPI rates available, they don’t. These rates vary depending on the ad, the types of videos you make, and how popular your channel is. It is actually against YouTube’s rules for YouTubers to share their personal CPI rates publicly.
+
+Most people tend to assume that CPI rates are between $0.05 and $10\. This huge difference is justified by YouTube by saying that they use a very complicated algorithm to determine your CPI rate. According to them, it includes evaluating factors like the ads, the type of audience who views your video, audience engagement, audience retention, and the price of the ads.
+
+<!-- affiliate ads begin -->
+<a href="https://aidotcom.pxf.io/c/5597632/2086436/19576" target="_top" id="2086436"><img src="//a.impactradius-go.com/display-ad/19576-2086436" border="0" alt="" width="1500" height="400"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2086436/19576" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+## How Much Do Big YouTubers Make?
+
+Many people are aspiring to make money as famous YouTubers, but it is not an easy task. You have a long way to go before you start making any money at all.
+
+In general, it’s reasonable to expect to start earning some money when you get to 1 million subscribers. This is the point at which you can start treating YouTube as your job, but the truth is that you will still not be making amazing money. At 1 million subscribers you will only be starting to be seen as someone important in your industry. You won’t even necessarily be "YouTube famous" yet – there are a lot of channels with 1 million subs.
+
+Even though most people think that YouTube channels with 1 million subscribers are already making a good amount of money and that they are already at the top, the truth is that they’ve just started climbing. They aren't even near the top. Just to give you a better idea, there are more than 2,400 YouTube channels with more than 1 million subscribers.
+
+According to Google, when an advertiser pays $100 to Google, Google pays $68 to the publisher (in this case, the publisher is a YouTube creator).
+
+![How Much Do YouTuber Makes](https://images.wondershare.com/filmora/article-images/how-much-do-youtubers-make.png)
+<!-- affiliate ads begin -->
+<a href="https://store.movavi.com/affiliate.php?ACCOUNT=MOVAVI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.movavi.com%3FAFFILIATE%3D108875%26RESOURCE%3DMovavi%2BScreen%2BRecorder%2Bbox"><img src="https://mcusercontent.com/0885a03ded3d480dca9287f12/images/f026b149-fc7c-fd54-5f3e-1460bbb19b6b.jpg" border="0"></a>
+<!-- affiliate ads end -->
+
+_This graphic won't apply to every situation because every situation is unique. It's just an example using assumed numbers._
+
+#### How much money for 1,000 YouTube views?
+
+15% of 1,000 is 150
+
+150x CPI ($0.18) = $27\*
+
+51% of $27 = $13
+
+Using these rates, 1000 views are worth $13!
+
+\*CPI vary
+
+Assuming that the average rate is about $0.18 per impression, you still need to factor in that most people don't click on ads or watch skippable video ads for 30 seconds. Only about 15% of viewers tend to watch the complete ad (or, at least half of it). So, considering that you have 1,000 views on your video, only 150 viewers watched your complete ad. So, at $0.18 per view, Google will charge $27 to the advertiser and the YouTube channel will get 51% of that, meaning the creator will earn $13 per 1,000 views.
+
+[Want to know how much YouTube pays for 1 million views](https://tools.techidaily.com/wondershare/filmora/download/)?
+
+It will take you a long time to start earning enough money to support yourself through AdSense. That’s why AdSense isn’t the primary way that huge YouTube stars make money. In addition to AdSense revenue you can (and should) also consider other opportunities such as product placement, endorsements, and brand sponsorships. Many YouTubers also make some money from selling their merchandise.
+
+Some YouTubers earn millions of dollars every year. Although the exact numbers have never been disclosed, many different websites have made educated guesses.
+
+Forbes publishes an annual list of the highest-paid YouTubers, which includes revenue from things like book deals and makeup lines. It is useful to look at this list gain have some perspective about how big YouTubers make their money, and how big they had to get to make it.
+
+As of 2017, YouTube gamer Daniel Middleton (DanTDM) is the highest-paid YouTuber earning 16 million dollars. He is followed by gamer Evan Fong (Vanoss Gaming) with $15.5 million, Dude Perfect with $14 million, and Mark Fischbach (Markiplier) and Logan Paul with $12.5 million. However, as we already mentioned, even though a substantial part of the income of these YouTube stars comes from YouTube/AdSense, the bulk of it comes from things like merchandise and sponsorships.
+
+Instead of relying on YouTube to pay them, YouTubers need to seek out other ways of [leveraging the YouTube platform to earn money](https://tools.techidaily.com/wondershare/filmora/download/).
+
+We all agree that being a YouTube star isn't an easy path. However, if you honestly love what you do, then you will be willing to put effort into making great videos regularly. Part of that is also being willing to take the time to promote them and yourself, as well as putting time and effort into forging a good relationship with your audience.
+
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4621764&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.x-mirage.com/x-mirage/img/page-home.jpg" border="0"></a>
+<!-- affiliate ads end -->
+## Why No Longer 10,000 Views?
+
+YouTube used to let anybody monetize their videos, but that has now changed. Then for a while, you'll qualify for monetization after reaching 10,000-lifetime views on your channel. But as of 2018, the rules to YouTube monetization has gotten more challenging.
+
+To monetize you must have:
+
+\- 4,000 of annual watch time
+
+\- 1,000 subscribers
+
+The reason for this is that YouTube was having trouble with channels that were trying to monetize stolen or inappropriate content, besides, YouTubers are gaming the system by using automated programs to gain more views. By making creators get more watch time and subscribers before they apply for monetization, YouTube has been able to create a review process in which they can prove that the channel has a legitimate audience and stop content thieves and criminals from making money. Naturally, this new rule also makes it very difficult for new YouTubers to make money.
+
+_Are you finding it difficult to earn money on YouTube? Subscribe to the [Filmora.io YouTube channel](https://www.youtube.com/channel/UCuD18o7XuDBqMlDTCrJ2ReA) for more tips on channel monetization._
+
+![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+<!-- affiliate ads begin -->
+<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=1300375&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-15_%281%29.jpg" border="0"></a>
+<!-- affiliate ads end -->
+
+Richard Bennett
+
+Richard Bennett is a writer and a lover of all things video.
+
+Follow @Richard Bennett
+
+
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-format="autorelaxed"
+     data-ad-client="ca-pub-7571918770474297"
+     data-ad-slot="1223367746"></ins>
+
+
+
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-client="ca-pub-7571918770474297"
+     data-ad-slot="8358498916"
+     data-ad-format="auto"
+     data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-videos.techidaily.com/new-2024-approved-insta-story-hack-for-stealthy-tech-users/"><u>[New] 2024 Approved  Insta Story Hack for Stealthy Tech Users</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/chieve-youtube-profitability-the-milestone-of-500plus-subscribers-unlocked-for-2024/"><u>[New] Achieve Youtube Profitability  The Milestone of 500+ Subscribers Unlocked for 2024</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/new-becoming-a-trendsetter-youtube-video-tactics-for-2024/"><u>[New] Becoming a Trendsetter  YouTube Video Tactics for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/est-practices-for-youtube-video-brightness-and-contrast/"><u>[New] Best Practices for YouTube Video Brightness and Contrast</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/new-chorus-chronicles-new-speaker-insights-for-2024/"><u>[New] Chorus Chronicles  New Speaker Insights for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ow-to-upload-shorts-video-on-youtube/"><u>[New] How to Upload Shorts Video on YouTube?</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-audio-overhaul-methods-for-content-creators-online/"><u>[New] In 2024, Audio Overhaul Methods for Content Creators Online</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-discovering-the-stars-of-youtubes-best-music-videos-2023/"><u>[New] In 2024, Discovering the Stars of YouTube's Best Music Videos, 2023</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/new-in-2024-ideal-video-editor-unleashed-for-vimeo-videos/"><u>[New] In 2024, Ideal Video Editor Unleashed for Vimeo Videos</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-in-2024-mastering-negative-playback-on-your-instagram-feed/"><u>[New] In 2024, Mastering Negative Playback on Your Instagram Feed</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-in-2024-premier-selection-of-moving-typefaces/"><u>[New] In 2024, Premier Selection of Moving Typefaces</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/new-incredible-virtual-room-encounters-for-2024/"><u>[New] Incredible Virtual Room Encounters for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ptimized-video-scale-to-mac-aspect-proportion/"><u>[New] Optimized Video Scale to Mac Aspect Proportion</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/kyrocket-your-rankings-top-youtube-seo-gadgets-for-2024/"><u>[New] Skyrocket Your Rankings  Top YouTube SEO Gadgets for 2024</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-wattpad-stars-moments-on-snapchat/"><u>[New] Wattpad Stars Moments on Snapchat</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/outube-archiving-a-guide-to-moving-to-dailymotion/"><u>[New] YouTube Archiving  A Guide to Moving to Dailymotion</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/updated-2024-approved-a-comprehensive-approach-to-adding-text-overlays-vimeo/"><u>[Updated] 2024 Approved  A Comprehensive Approach to Adding Text Overlays (Vimeo)</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-2024-approved-elevate-your-viewing-game-with-concurrent-channel-watches/"><u>[Updated] 2024 Approved  Elevate Your Viewing Game with Concurrent Channel Watches</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-2024-approved-premium-portables-laptops-to-supercharge-your-creative-work/"><u>[Updated] 2024 Approved  Premium Portables  Laptops to Supercharge Your Creative Work</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-2024-approved-tiktok-and-youtube-shorts-comparison-for-individual-social-media-users/"><u>[Updated] 2024 Approved  TikTok & YouTube Shorts Comparison for Individual Social Media Users</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-break-down-top-7-video-streaming-tools-that-revolutionize-youtube-broadcasts-iphonesandroid-for-2024/"><u>[Updated] Break Down  Top 7 Video Streaming Tools that Revolutionize YouTube Broadcasts (iPhones/Android) for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-in-2024-how-to-add-text-to-youtube-video/"><u>[Updated] In 2024, How to Add Text to YouTube Video</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-in-2024-implementing-youtubes-custom-markup-guide/"><u>[Updated] In 2024, Implementing YouTube's Custom Markup Guide</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-in-2024-vibrant-visual-photo-assemblies-for-joyful-living/"><u>[Updated] In 2024, Vibrant Visual Photo Assemblies for Joyful Living</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-innovative-and-inexpensive-the-best-free-youtube-name-generators/"><u>[Updated] Innovative & Inexpensive  The Best Free YouTube Name Generators</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-mastering-zero-cost-online-seminars-youtube-edition/"><u>[Updated] Mastering Zero-Cost Online Seminars  YouTube Edition</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-prime-tools-turning-youtube-videos-into-text/"><u>[Updated] Prime Tools  Turning YouTube Videos Into Text</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-quick-video-growth-top-20-hacks-for-instant-impact/"><u>[Updated] Quick Video Growth  Top 20 Hacks for Instant Impact</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-social-stardom-spectrum-global-internet-icons-for-2024/"><u>[Updated] Social Stardom Spectrum  Global Internet Icons for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-the-art-of-thumbnail-design-choosing-best-fonts-for-2024/"><u>[Updated] The Art of Thumbnail Design  Choosing Best Fonts for 2024</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/2-ways-to-monitor-samsung-galaxy-s24-ultra-activity-drfone-by-drfone-virtual-android/"><u>2 Ways to Monitor Samsung Galaxy S24 Ultra Activity | Dr.fone</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/approved-channel-cash-flow-harnessing-youtube-ad-revenue-anywhere/"><u>2024 Approved  Channel Cash Flow  Harnessing YouTube Ad Revenue Anywhere</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/approved-rank-higher-on-youtube-essential-seo-tips-unveiled/"><u>2024 Approved  Rank Higher on YouTube  Essential SEO Tips Unveiled</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/2024-approved-reimagine-your-screen-mastery-of-win11-backdrops/"><u>2024 Approved  Reimagine Your Screen  Mastery of Win11 Backdrops</u></a></li>
+<li><a href="https://extra-support.techidaily.com/2024-approved-strategic-approaches-to-mass-acquirement-of-tiktok-videos/"><u>2024 Approved  Strategic Approaches to Mass Acquirement of TikTok Videos</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/4-ways-to-unlock-iphone-6s-to-use-usb-accessories-without-passcode-by-drfone-ios/"><u>4 Ways to Unlock iPhone 6s to Use USB Accessories Without Passcode</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ual-voyage-through-youtubes-2017-data-deluge/"><u>A Visual Voyage Through Youtube's 2017 Data Deluge</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/massive-audience-on-youtube-in-minutes-2-ways-for-2024/"><u>Gain Massive Audience on YouTube in Minutes (2 Ways) for 2024</u></a></li>
+<li><a href="https://android-location.techidaily.com/getting-the-pokemon-go-gps-signal-not-found-11-error-in-honor-magic-5-pro-drfone-by-drfone-virtual/"><u>Getting the Pokemon Go GPS Signal Not Found 11 Error in Honor Magic 5 Pro | Dr.fone</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/o-download-youtube-thumbnail-in-3-waysonlinewinmac/"><u>How to Download Youtube Thumbnail in 3 Ways [Online/Win/Mac]</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-15-best-strongest-pokemon-to-use-in-pokemon-go-pvp-leagues-for-realme-v30t-drfone-by-drfone-virtual-android/"><u>In 2024, 15 Best Strongest Pokémon To Use in Pokémon GO PvP Leagues For Realme V30T | Dr.fone</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/in-2024-3-easy-ways-to-factory-reset-a-locked-iphone-xs-without-itunes-by-drfone-ios/"><u>In 2024, 3 Easy Ways to Factory Reset a Locked iPhone XS Without iTunes</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/in-2024-foundations-of-fluid-graphics-a-primer/"><u>In 2024, Foundations of Fluid Graphics  A Primer</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/24-hottest-youtube-music-playback-responses-23/"><u>In 2024, Hottest YouTube Music Playback Responses '23</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/24-how-to-easily-add-subtitles-and-closed-captions-to-youtube-video/"><u>In 2024, How to Easily Add Subtitles and Closed Captions to YouTube Video</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-how-to-track-nokia-c12-location-by-number-drfone-by-drfone-virtual-android/"><u>In 2024, How to Track Nokia C12 Location by Number | Dr.fone</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ring-your-setup-essential-shooting-accessories/"><u>Mastering Your Setup  Essential Shooting Accessories</u></a></li>
+<li><a href="https://ai-video-apps.techidaily.com/new-2024-approved-cropping-and-resizing-images-in-final-cut-pro-x-made-easy/"><u>New 2024 Approved Cropping and Resizing Images in Final Cut Pro X Made Easy</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/obs-recording-woes-overcome-heres-how-it-works-perfectly-today/"><u>OBS Recording Woes Overcome - Here's How It Works Perfectly Today</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ng-the-top-12-streamlined-screen-swivel-cams-for-content-for-2024/"><u>Ranking the Top 12 Streamlined Screen-Swivel Cams for Content for 2024</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/solve-firefox-secure-connection-error-secerrorunknownissuer-with-ease/"><u>Solve Firefox Secure Connection Error (SEC_ERROR_UNKNOWN_ISSUER) with Ease</u></a></li>
+<li><a href="https://win-able.techidaily.com/solving-pc-issues-how-to-stop-minecraft-dungeons-from-continuously-crashing/"><u>Solving PC Issues: How to Stop Minecraft Dungeons From Continuously Crashing</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/standing-youtube-shorts-earnings-for-maker-income-for-2024/"><u>Understanding YouTube Shorts Earnings for Maker Income for 2024</u></a></li>
+</ul></div>
