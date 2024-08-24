@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Cultivating Confidence for Captivating Your YouTube Audience\""
-date: 2024-07-12T23:39:04.529Z
-updated: 2024-07-13T23:39:04.529Z
+date: 2024-08-23T05:28:55.859Z
+updated: 2024-08-24T05:28:55.859Z
 tags:
   - ai video
   - ai youtube
@@ -50,6 +50,9 @@ Once all the pieces of the story are captured — including your storytelling, b
 
 Take a look at this example from [Tiffany Alvord](https://www.youtube.com/user/TiffanyAlvord) and notice how there are jump cuts both to skip information that can be assumed by the audience and add the tension to the story she’s telling.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4699091&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/bccefcc1b1eee9eca3ae4f5c1a281482/products/1_jutoh-logo-1200x1600.jpg" border="0">Jutoh Plus -  Jutoh is an ebook creator for Epub, Kindle and more. It's fast, runs on Windows, Mac, and Linux, comes with a cover design editor, and allows book variations to be created with alternate text, style sheets and cover designs. Jutoh Plus adds scripting so you can automate ebook import and creation operations. It also allows customisation of ebook HTML via templates and source code documents; and you can create Windows CHM and wxWidgets HTB help files. </a>
+<!-- affiliate ads end -->
 ## **3\. Surprise and Delight Your Audience**
 
 There is a saying that a great ending to a story is that it is [surprising, yet inevitable](https://www.huffingtonpost.com/david-kudler/writing-the-inevitable-bu%5Fb%5F1630419.html).
@@ -66,6 +69,9 @@ Unlike being invited to a party, there is no obligation when it comes to YouTube
 
 The opposite of inviting is rejecting, and when you are a vlogger, you don’t want to reject anyone from enjoying your videos.
 
+<!-- affiliate ads begin -->
+<a href="https://zonlipartnershipprogram.pxf.io/c/5597632/1821134/17882" target="_top" id="1821134"><img src="//a.impactradius-go.com/display-ad/17882-1821134" border="0" alt="" width="320" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1821134/17882" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **5\. Compose the Shot**
 
 Vlogging is a visual medium, and while the story is important, what is captured in the frame will play an impactful role in the video as well.
@@ -78,6 +84,9 @@ Check out this example from [Rosanna Pansino](https://www.youtube.com/channel/UC
 
  The camera follows her fluidly throughout the video, but it is her eyes that guide both the camera moves and what she wants our attention to be directed to. Don’t hesitate to let the viewer know what you want them to see.
 
+<!-- affiliate ads begin -->
+<a href="https://ursime.pxf.io/c/5597632/2048972/16384" target="_top" id="2048972"><img src="//a.impactradius-go.com/display-ad/16384-2048972" border="0" alt="" width="1200" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2048972/16384" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **6\. Be Prepared**
 
 While you can pick up a camera and start vlogging on the fly, being prepared enables you to produce the best video possible. Take a few minutes before you hit record simply to outline the key points you want to talk about and how the video will end, ensuring that after filming you haven’t forgotten a crucial part.
@@ -98,6 +107,9 @@ Consider your audience: they are coming home from school or work, where there we
 
 Want to see a vlogger that is awesome at being expressive on camera? Check out [Emma Chamberlain](https://www.youtube.com/channel/UC78cxCAcp7JfQPgKxYdyGrg), if you haven’t already. Every word she says in her video is layered with emotion. We know exactly how she feels.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4721564&QTY=1&AFFILIATE=108875&CART=1">Power Tools add-on for Google Sheets, 12-month subscription</a>
+<!-- affiliate ads end -->
 ## **8\. Stay Organized**
 
 The same way you should prepare before filming, it’s also important to be organized comes the editing phase. Editing is arguably the most time-consuming part of the vlogging process, so have a system for categorizing and finding your footages.
@@ -122,8 +134,14 @@ If you want to find a video editing solution that empowers your imagination and 
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=11224199&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/e09fdffe648a30658a9657bbed7b2388/products/copy_boxshot_lyricvideo.png" border="0">Lyric Video Creator Professional Version</a>
+<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://shop.manycam.com/order/checkout.php?PRODS=17729331&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/mcaffbanner600x500.png" border="0"></a>
+<!-- affiliate ads end -->
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
@@ -149,3 +167,66 @@ Follow @Richard Bennett
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-tips.techidaily.com/024-approved-7-star-rated-apps-for-effortless-youtube-live-broadcast-from-iphone-and-android/"><u>[New] 2024 Approved  7 Star-Rated Apps for Effortless YouTube LIVE Broadcast From iPhone and Android</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/024-approved-diy-delights-in-motion-personalized-animation-artistry/"><u>[New] 2024 Approved  DIY Delights in Motion  Personalized Animation Artistry</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/024-approved-edit-like-a-pro-10-must-know-tips-for-newbies/"><u>[New] 2024 Approved  Edit Like a Pro  10 Must-Know Tips for Newbies</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/024-approved-unlocking-visual-magic-diy-animation-and-fx-crafts/"><u>[New] 2024 Approved  Unlocking Visual Magic  DIY Animation and FX Crafts</u></a></li>
+<li><a href="https://extra-information.techidaily.com/new-boost-your-view-count-this-tutorials-top-hit/"><u>[New] Boost Your View Count  This Tutorial's Top Hit</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/rafting-an-easy-to-use-youtube-subscription-tagline/"><u>[New] Crafting an Easy-to-Use YouTube Subscription Tagline</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/rom-speech-to-text-a-complete-free-workshop-on-youtube-transcription-for-2024/"><u>[New] From Speech to Text  A Complete, FREE Workshop on YouTube Transcription for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-ios-and-android-youtube-autoplay-tricks/"><u>[New] In 2024, IOS & Android  YouTube AutoPlay Tricks</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-mastering-video-dimensions-the-key-to-youtube-presence/"><u>[New] In 2024, Mastering Video Dimensions  The Key to YouTube Presence</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-no-money-no-problem-the-best-free-subtitles-apps/"><u>[New] In 2024, No Money, No Problem  The Best Free Subtitles Apps</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-rapid-expansion-youtube-channels-boosting-brainpower/"><u>[New] In 2024, Rapid Expansion  YouTube Channels Boosting Brainpower</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-spark-your-audience-with-best-video-content-ideas/"><u>[New] In 2024, Spark Your Audience with Best Video Content Ideas</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-transforming-your-vlog-video-structure-with-jump-cuts/"><u>[New] In 2024, Transforming Your Vlog Video Structure with Jump Cuts</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-voice-of-vogue-establishing-your-channel-in-the-cosmetic-world/"><u>[New] In 2024, Voice of Vogue  Establishing Your Channel in the Cosmetic World</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-wrap-up-wisdom-for-media-masters/"><u>[New] In 2024, Wrap-Up Wisdom for Media Masters</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-joining-the-twitter-community-from-scratch/"><u>[New] Joining the Twitter Community From Scratch</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/astering-short-form-trimming-videos-for-youtube-for-2024/"><u>[New] Mastering Short-Form  Trimming Videos for YouTube for 2024</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/new-pixelmaster-record-download-use-and-assessment-for-2024/"><u>[New] PixelMaster Record  Download, Use & Assessment for 2024</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-tweeting-tunes-converting-videos-into-melodic-gifs-for-2024/"><u>[New] Tweeting Tunes  Converting Videos Into Melodic GIFs for 2024</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/updated-2024-approved-dive-into-peace-with-these-soothing-games/"><u>[Updated] 2024 Approved  Dive Into Peace with These Soothing Games</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-2024-approved-intellectual-property-rules-for-instagram-beats/"><u>[Updated] 2024 Approved  Intellectual Property Rules for Instagram Beats</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-2024-approved-mp3-mastery-guide-top-10-video-to-audio-picks/"><u>[Updated] 2024 Approved  MP3 Mastery Guide  Top 10 Video-to-Audio Picks</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-2024-approved-skyrocket-your-channels-view-count-beyond-ten-hundred/"><u>[Updated] 2024 Approved  Skyrocket Your Channel's View Count Beyond Ten Hundred</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-audiences-on-the-rise-gauge/"><u>[Updated] Audiences on the Rise Gauge</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-in-2024-champion-of-cinematography-audio-visual-artistry/"><u>[Updated] In 2024, Champion of Cinematography  Audio-Visual Artistry</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-in-2024-navigating-the-world-of-youtube-live-visuals/"><u>[Updated] In 2024, Navigating the World of YouTube Live Visuals</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-in-2024-transform-every-moment-top-ideas-for-productive-podcast-sessions/"><u>[Updated] In 2024, Transform Every Moment  Top Ideas for Productive Podcast Sessions</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-integrating-video-content-from-youtube-into-websites-a-comprehensive-guide/"><u>[Updated] Integrating Video Content From YouTube Into Websites - A Comprehensive Guide</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-rise-to-youtube-prominence-top-strategies-at-a-glance/"><u>[Updated] Rise to YouTube Prominence  Top Strategies at a Glance</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-speedy-spread-of-youtube-playlists-techniques-for-2024/"><u>[Updated] Speedy Spread of Youtube Playlists Techniques for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-the-creative-summit-top-talent-junction/"><u>[Updated] The Creative Summit  Top Talent Junction</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-the-ultimate-companion-for-your-vlogging-journey-top-12-cameras-for-2024/"><u>[Updated] The Ultimate Companion for Your Vlogging Journey - Top 12 Cameras for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-top-viral-video-tags-tips-for-popular-youtube-shorts/"><u>[Updated] Top Viral Video Tags  Tips for Popular YouTube Shorts</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-unlocking-the-potential-of-youtube-shorts-a-comprehensive-tutorial-for-2024/"><u>[Updated] Unlocking the Potential of YouTube Shorts  A Comprehensive Tutorial for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-unlocking-youtubes-hidden-gems-keyword-research/"><u>[Updated] Unlocking YouTube's Hidden Gems  Keyword Research</u></a></li>
+<li><a href="https://article-helps.techidaily.com/updated-vivacut-masterclass-a-complete-editor-guide-for-2024/"><u>[Updated] VivaCut Masterclass  A Complete Editor Guide for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/approved-best-8-linux-programs-for-media-makers/"><u>2024 Approved  Best 8 Linux Programs for Media Makers</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/2024-approved-capturing-skies-engaging-audiences-learn-to-stream-w-dji-drones/"><u>2024 Approved  Capturing Skies, Engaging Audiences  Learn to Stream W/ DJI Drones</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/approved-unleash-creativity-on-screen-discover-the-best-reactions/"><u>2024 Approved  Unleash Creativity on Screen  Discover the Best Reactions</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ential-tools-for-your-youtube-to-avi-needs/"><u>8 Essential Tools for Your YouTube-to-AVI Needs</u></a></li>
+<li><a href="https://location-fake.techidaily.com/a-detailed-guide-on-faking-your-location-in-mozilla-firefox-on-lava-blaze-pro-5g-drfone-by-drfone-virtual-android/"><u>A Detailed Guide on Faking Your Location in Mozilla Firefox On Lava Blaze Pro 5G | Dr.fone</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/best-music-players-software-for-windows-for-2024/"><u>Best Music Players Software for Windows for 2024</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/complete-guide-for-recovering-video-files-on-agni-2-5g-by-fonelab-android-recover-video/"><u>Complete guide for recovering video files on Agni 2 5G</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ng-through-eyes-the-actual-youtube-view-count-needed/"><u>Earning Through Eyes  The Actual YouTube View Count Needed</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/easy-guide-to-nubia-z50s-pro-frp-bypass-with-best-methods-by-drfone-android/"><u>Easy Guide to Nubia Z50S Pro FRP Bypass With Best Methods</u></a></li>
+<li><a href="https://change-location.techidaily.com/how-to-use-special-features-virtual-location-on-oneplus-ace-2-pro-drfone-by-drfone-virtual-android/"><u>How To Use Special Features - Virtual Location On OnePlus Ace 2 Pro? | Dr.fone</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/in-2024-enhancing-your-snap-with-soundtracks-without-stickers/"><u>In 2024, Enhancing Your Snap with Soundtracks (Without Stickers)</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/in-2024-essential-youtube-seo-techniques-for-enhanced-video-rankings/"><u>In 2024, Essential YouTube SEO Techniques for Enhanced Video Rankings</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/24-foremost-directors-of-cinematic-harmony/"><u>In 2024, Foremost Directors of Cinematic Harmony</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/in-2024-how-to-bypass-activation-lock-from-iphone-6-plus-or-ipad-by-drfone-ios/"><u>In 2024, How to Bypass Activation Lock from iPhone 6 Plus or iPad?</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-how-to-use-pokemon-go-joystick-on-vivo-y28-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How to use Pokemon Go Joystick on Vivo Y28 5G? | Dr.fone</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/24-taste-the-thrill-crafting-engaging-food-network-names/"><u>In 2024, Taste the Thrill  Crafting Engaging Food Network Names</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/laughing-skits-building-a-parody-film-for-2024/"><u>Laughing Skits  Building a Parody Film for 2024</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/mastering-youtube-thumbnails-with-neon-edges-for-2024/"><u>Mastering YouTube Thumbnails with Neon Edges for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ng-shorts-thumbnail-absence-on-youtube-for-2024/"><u>Solving Shorts Thumbnail Absence on YouTube for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/-to-remove-unseen-portions-in-streamed-youtube-videos-for-2024/"><u>Steps to Remove Unseen Portions in Streamed YouTube Videos for 2024</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/top-7-phone-number-locators-to-track-samsung-galaxy-a34-5g-location-drfone-by-drfone-virtual-android/"><u>Top 7 Phone Number Locators To Track Samsung Galaxy A34 5G Location | Dr.fone</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/top-savings-on-ipads-exclusive-offers-just-for-you/"><u>Top Savings on iPads: Exclusive Offers Just For You</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/be-videography-essentials-7-free-audio-choices/"><u>YouTube Videography Essentials - 7 Free Audio Choices</u></a></li>
+</ul></div>

@@ -1,0 +1,135 @@
+---
+title: "\"[Updated] Unlocking Visual Magic  DIY Animation and FX Crafts\""
+date: 2024-08-23T05:36:14.239Z
+updated: 2024-08-24T05:36:14.239Z
+tags:
+  - ai video
+  - ai youtube
+categories:
+  - ai
+  - youtube
+description: "\"This Article Describes [Updated] Unlocking Visual Magic: DIY Animation and FX Crafts\""
+excerpt: "\"This Article Describes [Updated] Unlocking Visual Magic: DIY Animation and FX Crafts\""
+keywords: "DIY Animation Tips,FX Craft Basics,Magical Animation Guide,DIY Animation Art,Visual Effects Crafting,Magic in Animation,Creative FX Techniques"
+thumbnail: https://thmb.techidaily.com/e431075a9d1c5a5fc01489c600cd9d77b46bf785ef7adf8348655f55e42a24ca.jpg
+---
+
+## Unlocking Visual Magic: DIY Animation and FX Crafts
+
+# How to Animate and Make Your Own Effects
+
+![](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+##### Richard Bennett
+
+ Nov 01, 2022• Proven solutions
+
+[0](#commentsBoxSeoTemplate)
+
+Do you like the animated elements in Wondershare Filmora? Do you want to learn how to make your own?
+
+A little while ago, we posted a list of YouTube channels where you could [get free green screen effects](https://tools.techidaily.com/wondershare/filmora/download/). All of these effects consisted of animations on green backgrounds. To use them, you pull the clip into the PIP track of your Filmora project and use the green screen feature to make the background transparent. It’s pretty easy.
+
+In this post, we’re going to kick things up a bit. Here is a list of places where you can get free lessons on creating your own animated video effects.
+
+**Animated Video Effect Courses:**
+
+[Mt. Mograph](#mtmograph)
+
+[Richard Harrington on Lynda](#lynda)
+
+[Bloop Animation](#bloop)
+
+[Video Copilot](#videocopilot)
+
+ ![Video Animation](https://images.wondershare.com/filmora/article-images/animated-video-effects.png)
+
+ All of these resources will teach Adobe After Effects, or a similar paid software. If you do not have access to Adobe After Effects, you might want to check out our post on [affordable animation software for video creators](https://www.filmora.io/community-blog/free-or-cheap-animation-software-for-video-creators-122.html).
+
+## **[Mt. Mograph](https://www.youtube.com/channel/UCSUSgx9qc%5FNydrOL59xbJIA)**
+
+On this YouTube channel, motion graphics specialist Matt offers free animation tutorials using a variety of programs including Adobe After Effects and Cinema 4D. His lessons are for a range of skill levels, from beginner to advanced. If you are just starting out then Mt.Mograph is a great resource.
+
+## **[Richard Harrington on Lynda](https://www.lynda.com/Rich-Harrington/120-1.html)**
+
+Lynda isn’t free, but the 10-day free trial period is definitely long enough for you to watch this two-hour course.
+
+What’s great about this course is that it assumes you have no animation experience, and it walks you through the main thing a lot of YouTubers want to learn animation for – creating an animated logo.
+
+<!-- affiliate ads begin -->
+<a href="https://otszone.ots7.com/order/checkout.php?PRODS=4713324&QTY=1&AFFILIATE=108875&CART=1"><img src="https://green.ots7.com/screenshots/OtsAV/OtsAVTV1.90-300x188.jpg" border="0">OtsAV TV Webcaster</a>
+<!-- affiliate ads end -->
+## **[Bloop Animation](https://www.bloopanimation.com/)**
+
+ Most of the video animation courses on this site are paid, but they have a lot of cool free tutorials as well. The focus is more on animating figures/cartoons than video effects, but if you have any interest in animation more generally then this is a great place to start learning. They even have a free ebook you can download which is targeted at beginners.
+
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4708689&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/uppic/audible-converter-interface.png" border="0">Epubor Audible Converter for Win： Download and convert Audible AAXC/AA/AAX to MP3 with 100% original quality preserved.</a>
+<!-- affiliate ads end -->
+## **[Video Copilot](http://www.videocopilot.net/)**
+
+This site has a huge number of free After Effects tutorials. There are basic introductory lessons, and really advanced classes on creating custom cinematic FX, like explosions. There’s even a playlist on title design, which will be useful for anyone looking to create an intro sequence for their videos.
+
+![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4729320&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/f7f07e7dab09533bc71247a5b29a7373/products/2_iDeviceMessageBox.png" border="0"></a>
+<!-- affiliate ads end -->
+Richard Bennett
+
+Richard Bennett is a writer and a lover of all things video.
+
+Follow @Richard Bennett
+
+
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-format="autorelaxed"
+     data-ad-client="ca-pub-7571918770474297"
+     data-ad-slot="1223367746"></ins>
+
+
+
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-client="ca-pub-7571918770474297"
+     data-ad-slot="8358498916"
+     data-ad-format="auto"
+     data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://remote-screen-capture.techidaily.com/new-2024-approved-3-effective-methods-to-archive-itunes-videos/"><u>[New] 2024 Approved  3 Effective Methods to Archive iTunes Videos</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-2024-approved-the-musicians-manual-to-copyright-navigation-on-instagram/"><u>[New] 2024 Approved  The Musician's Manual to Copyright Navigation on Instagram</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ommunity-builders-gamer-youtubers-for-2024/"><u>[New] Community Builders  Gamer YouTubers for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ffortless-inclusion-youtube-media-on-slides/"><u>[New] Effortless Inclusion  YouTube Media on Slides</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/nhancing-on-screen-appeal-essential-tips-for-talking-head-shots/"><u>[New] Enhancing On-Screen Appeal  Essential Tips for Talking-Head Shots</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/uick-steps-to-live-stream-youtube-via-obs-for-novices/"><u>[New] Quick Steps to Live Stream Youtube via OBS for Novices</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/treamline-your-viewing-experience-with-accelerated-or-slowed-videos/"><u>[New] Streamline Your Viewing Experience with Accelerated or Slowed Videos</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/he-art-of-balancing-video-quality-and-adsense-revenue-for-2024/"><u>[New] The Art of Balancing Video Quality & AdSense Revenue for 2024</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-in-2024-crafting-viral-content-with-a-strategic-influencer-approach/"><u>[Updated] In 2024, Crafting Viral Content with a Strategic Influencer Approach</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-in-2024-the-foundational-handbook-to-youtube-business-success/"><u>[Updated] In 2024, The Foundational Handbook to YouTube Business Success</u></a></li>
+<li><a href="https://fox-access.techidaily.com/updated-in-2024-the-ultimate-guide-to-gopro-karma-performance/"><u>[Updated] In 2024, The Ultimate Guide to GoPro Karma Performance</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-pioneering-the-future-the-art-of-sensory-based-filmmaking-for-2024/"><u>[Updated] Pioneering the Future  The Art of Sensory-Based Filmmaking for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-the-mobile-filmmakers-playbook-crafting-compelling-youtubes-thumbnails-for-2024/"><u>[Updated] The Mobile Filmmaker’s Playbook  Crafting Compelling YouTubes Thumbnails for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-the-pathway-to-profitability-navigating-youtube-adsense-for-2024/"><u>[Updated] The Pathway to Profitability  Navigating YouTube AdSense for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-unraveling-youtubes-profit-from-1m-viewers-for-2024/"><u>[Updated] Unraveling Youtube's Profit From 1M Viewers for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-utilize-youtubes-prominent-slot-a-compreenhensive-strategy-guide/"><u>[Updated] Utilize YouTube's Prominent Slot  A Compreenhensive Strategy Guide</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-youtube-intros-unveiled-two-proven-ways-for-impact-for-2024/"><u>[Updated] YouTube Intros Unveiled  Two Proven Ways for Impact for 2024</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/2024-approved-comparative-study-vidma-vs-standard-screen-recording/"><u>2024 Approved  Comparative Study  Vidma vs Standard Screen Recording</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/approved-economical-camera-options-best-deals-for-diy-vloggers/"><u>2024 Approved  Economical Camera Options  Best Deals for DIY Vloggers</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/approved-professional-gif-designers-choice-list/"><u>2024 Approved  Professional GIF Designers' Choice List</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/approved-the-ultimate-guide-to-brightening-up-your-youtube-content/"><u>2024 Approved  The Ultimate Guide to Brightening Up Your YouTube Content</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/approved-unlock-seamless-video-conversion-youtube-to-dailymotion/"><u>2024 Approved  Unlock Seamless Video Conversion  YouTube to Dailymotion</u></a></li>
+<li><a href="https://video-capture.techidaily.com/beginners-guide-to-zoom-webinars/"><u>Beginner’s Guide to Zoom Webinars</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/rting-your-clips-upload-to-youtube-via-premiere/"><u>Converting Your Clips  Upload to YouTube Via Premiere</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/tial-guide-top-10-steps-for-instructors-on-youtube-channels/"><u>Essential Guide  Top 10 Steps for Instructors on YouTube Channels</u></a></li>
+<li><a href="https://change-location.techidaily.com/how-do-you-get-sun-stone-evolutions-in-pokemon-for-samsung-galaxy-s24plus-drfone-by-drfone-virtual-android/"><u>How Do You Get Sun Stone Evolutions in Pokémon For Samsung Galaxy S24+? | Dr.fone</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/how-the-counterfeit-chatgpt-chrome-app-could-be-hijacking-your-facebook-login-details/"><u>How the Counterfeit ChatGPT Chrome App Could Be Hijacking Your Facebook Login Details</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-get-back-lost-contacts-from-vivo-t2x-5g-by-fonelab-android-recover-contacts/"><u>How to get back lost contacts from Vivo T2x 5G.</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/24-the-perfect-dimension-formula-for-youtube-videos/"><u>In 2024, The Perfect Dimension Formula for YouTube Videos</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/24-unraveling-youtubes-ranks-the-deciding-elements/"><u>In 2024, Unraveling YouTube's Ranks  The Deciding Elements</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/inting-potential-a-youtube-niche-journey-for-2024/"><u>Pinpointing Potential  A Youtube Niche Journey for 2024</u></a></li>
+<li><a href="https://extra-support.techidaily.com/quick-fix-for-iphone-video-length-and-scope-reduction-for-2024/"><u>Quick-Fix for iPhone Video Length & Scope Reduction for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/l-media-gold-rush-prime-hashes-for-viewership-for-2024/"><u>Social Media Gold Rush  Prime Hashes for Viewership for 2024</u></a></li>
+</ul></div>
