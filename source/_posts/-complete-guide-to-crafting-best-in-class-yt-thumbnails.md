@@ -1,7 +1,7 @@
 ---
 title: "\"[New] A Complete Guide to Crafting Best-in-Class YT Thumbnails\""
-date: 2024-07-12T23:38:32.446Z
-updated: 2024-07-13T23:38:32.446Z
+date: 2024-08-28T09:17:23.703Z
+updated: 2024-08-29T09:17:23.703Z
 tags:
   - ai video
   - ai youtube
@@ -68,6 +68,9 @@ In a world full of machines and computers, people love to listen and interact wi
 
 ![comparison-of-showing-face-or-not](https://images.wondershare.com/filmora/article-images/comparison-of-showing-face-or-not.png)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4728277&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/f7f07e7dab09533bc71247a5b29a7373/products/1_iDeviceMessageBox.png" border="0"></a>
+<!-- affiliate ads end -->
 1. #### Use Simple Fonts
 
 With your face, it is necessary to put some text on your Youtube thumbnail to let viewers know what this video is all about without clicking or watching it. Don't use fancy fonts on Youtube thumbnail. It makes it hard for the viewers to read and understand what to expect in the video, especially for those watching YouTube on their 5 inches screen smartphone, ultimately decreasing the chances of your video being clicked and watched. I personally recommend you to use give these fonts a go while making YouTube thumbnail.
@@ -82,12 +85,18 @@ If you have ever noticed, Youtube thumbnails are very small in size, making it h
 
 ![use-phrases-not-sentences](https://images.wondershare.com/filmora/article-images/use-phrases-not-sentences.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620778&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/728__90banner.jpg" border="0"></a>
+<!-- affiliate ads end -->
 1. #### Put every stuff on left side
 
 When we navigate to a Youtube thumbnail and place the cursor on it, it shows us two icons, "Watch Later" and "Add to Queue," located on its right size. Come on, you don’t want your beautiful thumbnail that cost you a few hours be covered. To avoid these icons from hiding your important stuff of thumbnail, make sure to put everything on the right side of your thumbnail.
 
 ![put-stuff-on-left](https://images.wondershare.com/filmora/article-images/put-stuff-on-left.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2084399/18498" target="_top" id="2084399"><img src="//a.impactradius-go.com/display-ad/18498-2084399" border="0" alt="" width="1125" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2084399/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 1. #### Have a unique and Consistent style
 
 Try to make all your thumbnails follow the same style. Following the same style for all your Youtube thumbnails will make your channel look unique and all your videos identical. It will be easy for viewers to identify your videos when they see them. It gives your channel a touch of its unique brand.
@@ -114,8 +123,14 @@ Do you know that Youtube can show a 3-second preview of your video when someone 
 
 ![choose-preview-wisely](https://images.wondershare.com/filmora/article-images/choose-preview-wisely.gif)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4729320&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/f7f07e7dab09533bc71247a5b29a7373/products/2_iDeviceMessageBox.png" border="0"></a>
+<!-- affiliate ads end -->
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3851691&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.aiseesoft.com/avangate/30p/banner.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ## How to Make a Fortnite Thumbnail Super Fast and Free?
 
 Many of you might be interested in how to make a fortnite thumbnail, so here it is. To make a Fortnite thumbnail for free, we are going to use Filmora X. Filmora X contains all kinds of features and elements that are required for a perfect and eye-catching thumbnail. To get started, make sure to download and install the latest version of Filmora X.
@@ -128,10 +143,17 @@ Many of you might be interested in how to make a fortnite thumbnail, so here it 
 
 ![make-fortnite-thumbnail-step2](https://images.wondershare.com/filmora/article-images/make-fortnite-thumbnail-step2.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2027209/17108" target="_top" id="2027209"><img src="//a.impactradius-go.com/display-ad/17108-2027209" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2027209/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 1. For our preferred angle, choose "Drone Free Camera" mode from the bottom right corner of the screen. It will allow us to use our preferred angle without any restriction. Choose an angle and take a screenshot.
 
 ![make-fortnite-thumbnail-step3](https://images.wondershare.com/filmora/article-images/make-fortnite-thumbnail-step3.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=38729081&QTY=1&AFFILIATE=108875&CART=1"><img src="https://website-prod.cache.wpscdn.com/img/wps-writer-free-word-processor-1x.3d9c80d.png" border="0">
+WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
+<!-- affiliate ads end -->
 1. Open Filmora X, make sure to select the 16:9 screen ratio. Import the screenshot that you have taken from Fortnite.
 
 ![make-fortnite-thumbnail-step4](https://images.wondershare.com/filmora/article-images/make-fortnite-thumbnail-step4.jpg)
@@ -152,6 +174,9 @@ Many of you might be interested in how to make a fortnite thumbnail, so here it 
 
 ![make-fortnite-thumbnail-step8](https://images.wondershare.com/filmora/article-images/make-fortnite-thumbnail-step8.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://checkout.devart.com/order/checkout.php?PRODS=5023555&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/45b430710ad04765a6afd58d9d9fafca/products/dotConnect_O.png" border="0">dotConnect for Oracle is an ADO.NET data provider for Oracle with Entity Framework Support.</a>
+<!-- affiliate ads end -->
 1. Now you can add a background of your choice. You can upload an image or choose a simple color from Filmora's Media tab and drag it below the screenshot in the timeline.
 
 ![make-fortnite-thumbnail-step9](https://images.wondershare.com/filmora/article-images/make-fortnite-thumbnail-step9.jpg)
@@ -160,6 +185,9 @@ Many of you might be interested in how to make a fortnite thumbnail, so here it 
 
 ![make-fortnite-thumbnail-step10](https://images.wondershare.com/filmora/article-images/make-fortnite-thumbnail-step10.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4572700&QTY=1&AFFILIATE=108875&CART=1"><img src="	https://www.tubedigger.com/wp-content/uploads/2020/08/tubedigger-software-new.png" border="0">TubeDigger - online video downloader from mostly any site</a>
+<!-- affiliate ads end -->
 1. To make it more attractive, we can add icons and other elements from Filmora's Element tab. You can also download the stickers from the internet and use them.
 
 ![make-fortnite-thumbnail-step11](https://images.wondershare.com/filmora/article-images/make-fortnite-thumbnail-step11.jpg)
@@ -182,22 +210,37 @@ Once you have successfully created a custom thumbnail, you can use it in your vi
 
 ![how-to-add-custom-youtube-thumbnail-to-video-step1](https://images.wondershare.com/filmora/article-images/how-to-add-custom-youtube-thumbnail-to-video-step1.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aofit.pxf.io/c/5597632/1399701/16396" target="_top" id="1399701"><img src="//a.impactradius-go.com/display-ad/16396-1399701" border="0" alt="" width="960" height="300"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1399701/16396" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 1. Select the thumbnail that you have made. Just like the one Fortnite thumbnail that we have created using Filmora X.
 
 ![how-to-add-custom-youtube-thumbnail-to-video-step2](https://images.wondershare.com/filmora/article-images/how-to-add-custom-youtube-thumbnail-to-video-step2.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2087267/19272" target="_top" id="2087267"><img src="//a.impactradius-go.com/display-ad/19272-2087267" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2087267/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 1. The thumbnail will be uploaded and attached to the video. Now you can process all the settings and publish the video.
 
 ![how-to-add-custom-youtube-thumbnail-to-video-step3](https://images.wondershare.com/filmora/article-images/how-to-add-custom-youtube-thumbnail-to-video-step3.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://store.revouninstaller.com/order/checkout.php?PRODS=27889512&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4282ec8de8c9be897e7aff4aa231b1a4/728__90.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ## Conclusion
 
 Thumbnail is the first thing that helps the viewer decide whether to click on a video or ignore it. Which increases the importance of having a well-structured and attractive thumbnail. By following the above guide, you can make an astonishing and clickable thumbnail in no time. For better and quick results, we recommend you using Filmora X. It allows you to perform all the tasks from video editing to thumbnail creation on a single platform.
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<a href="https://ship7com.pxf.io/c/5597632/1509856/17634" target="_top" id="1509856"><img src="//a.impactradius-go.com/display-ad/17634-1509856" border="0" alt="" width="730" height="383"/></a>
+<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/benjamin-arango-author.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4530091&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pearlmountainsoft.com/n_img/product/cit_win/banScrn.jpg" border="0">CollageIt Pro</a>
+<!-- affiliate ads end -->
 Benjamin Arango
 
 Benjamin Arango is a writer and a lover of all things video.
@@ -223,3 +266,54 @@ Follow @Benjamin Arango
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-30-powerful-freegame-hashtags-for-dominating-youtube/"><u>[New] In 2024, 30 Powerful FreeGame Hashtags for Dominating YouTube</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-leverage-youtube-insights-for-sustainable-channel-development/"><u>[New] In 2024, Leverage YouTube Insights for Sustainable Channel Development</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-professional-3d-design-apps-top-5-for-youtubers/"><u>[New] In 2024, Professional 3D Design Apps - Top 5 for Youtubers</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-ultimate-guide-11-seo-strategies-for-youtube-video-ranking/"><u>[New] In 2024, Ultimate Guide  11 SEO Strategies for YouTube Video Ranking</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/updated-2024-approved-riseabovemycam-cameras-of-tomorrow/"><u>[Updated] 2024 Approved  RiseAboveMyCam  Cameras of Tomorrow</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-2024-approved-transforming-your-videos-for-igtv-excellence-3-methods/"><u>[Updated] 2024 Approved  Transforming Your Videos for IGTV Excellence (3 Methods)</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-best-free-tools-for-converting-youtube-videos-for-2024/"><u>[Updated] Best Free Tools for Converting YouTube Videos for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-gaming-history-told-by-top-video-makers/"><u>[Updated] Gaming History Told by Top Video Makers</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/updated-mastering-the-melody-of-text-vocal-styling-for-ppt-for-2024/"><u>[Updated] Mastering the Melody of Text  Vocal Styling for PPT for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-novice-net-worth-increase-budget-friendly-profitable-channel-buys/"><u>[Updated] Novice Net Worth Increase  Budget-Friendly, Profitable Channel Buys</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-propel-your-youtube-journey-breakthroughs-at-the-500-subscriber-mark/"><u>[Updated] Propel Your YouTube Journey  Breakthroughs at the 500-Subscriber Mark</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-starting-channels-right-youtube-equipment-101/"><u>[Updated] Starting Channels Right  YouTube Equipment 101</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-step-by-step-guide-to-add-clearer-subtitles-on-youtube-for-2024/"><u>[Updated] Step-By-Step Guide to Add Clearer Subtitles on YouTube for 2024</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-the-ultimate-tutorial-for-turning-followers-into-cash-via-instagram-for-2024/"><u>[Updated] The Ultimate Tutorial for Turning Followers Into Cash via Instagram for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-transforming-video-makeup-through-color-alignment-for-2024/"><u>[Updated] Transforming Video Makeup Through Color Alignment for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-uniting-content-creators-microphones-that-speak-to-every-yt-style-and-genre/"><u>[Updated] Uniting Content Creators  Microphones That Speak to Every YT Style and Genre</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-unlocking-the-potential-of-edu-vids-strategies-for-captivating-your-viewers-on-youtube/"><u>[Updated] Unlocking the Potential of Edu-Vids  Strategies for Captivating Your Viewers on YouTube</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-youtube-to-webm-top-tier-conversion-applications-reviewed-for-2024/"><u>[Updated] YouTube to WebM  Top-Tier Conversion Applications Reviewed for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/sionary-beauty-experts-leading-online-trends/"><u>10 Visionary Beauty Experts Leading Online Trends</u></a></li>
+<li><a href="https://article-posts.techidaily.com/2024-approved-exploring-the-art-of-audio-mixdowns-via-crossfade/"><u>2024 Approved  Exploring the Art of Audio Mixdowns via Crossfade</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/approved-masterclass-in-cinematography-best-lenses-to-invest-in/"><u>2024 Approved  Masterclass in Cinematography  Best Lenses to Invest In</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/approved-uncover-sites-with-aggregated-ad-spots-on-youtube/"><u>2024 Approved  Uncover Sites with Aggregated Ad Spots on YouTube</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/approved-universal-video-concepts-the-10-simplest-ideas-everyone-can-execute/"><u>2024 Approved  Universal Video Concepts  The 10 Simplest Ideas Everyone Can Execute</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/2024-approved-unleashing-creativity-smartphone-filmmaking-and-youtube-thumbnails/"><u>2024 Approved  Unleashing Creativity  Smartphone Filmmaking & YouTube Thumbnails</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/3-ways-to-track-oppo-a56s-5g-without-them-knowing-drfone-by-drfone-virtual-android/"><u>3 Ways to Track Oppo A56s 5G without Them Knowing | Dr.fone</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/are-user-dialogues-pivotal-for-the-progress-of-chatgpts-knowledge/"><u>Are User Dialogues Pivotal for the Progress of ChatGPT's Knowledge?</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ing-the-mystery-of-where-are-my-youtube-comments/"><u>Decoding the Mystery of Where Are My YouTube Comments?</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/minants-of-youtube-video-prominence-and-success/"><u>Determinants of YouTube Video Prominence and Success</u></a></li>
+<li><a href="https://extra-information.techidaily.com/expert-net-archives-downloading-personal-tones/"><u>Expert Net Archives  Downloading Personal Tones</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/re-the-best-free-youtube-video-editor-apps-for-android/"><u>Explore the Best Free YouTube Video Editor Apps for Android</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/from-unnoticed-to-noteworthy-building-a-viral-fb-presence/"><u>From Unnoticed to Noteworthy  Building a Viral FB Presence</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/funnies-in-a-flash-top-10-quick-and-quirky-video-concepts-for-youtubers/"><u>Funnies in a Flash  Top 10 Quick & Quirky Video Concepts for YouTubers</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/how-to-record-a-twitch-gameplay-stream-for-2024/"><u>How to Record a Twitch Gameplay Stream for 2024</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/in-2024-2022-winter-games-skate-spotlights/"><u>In 2024, 2022 Winter Games Skate Spotlights</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/in-2024-best-5-gopro-filters-for-underwater-video-shooting/"><u>In 2024, Best 5 GoPro Filters for Underwater Video Shooting</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/24-jake-pauls-youtube-success-story/"><u>In 2024, Jake Paul's YouTube Success Story</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/in-2024-optimizing-call-recording-on-facetime-platforms/"><u>In 2024, Optimizing Call Recording on FaceTime Platforms</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/in-2024-top-hd-cameras-for-elk-and-mule-deer/"><u>In 2024, Top HD Cameras for Elk and Mule Deer</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/instantly-examine-windows-documents-efficiently/"><u>Instantly Examine Windows Documents Efficiently</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/jump-into-gaming-evolution-explore-lgs-27ud68-monitor-for-2024/"><u>Jump Into Gaming Evolution  Explore LG's 27UD68 Monitor for 2024</u></a></li>
+<li><a href="https://smart-video-editing.techidaily.com/new-in-2024-top-rated-green-screen-software-for-mobile-devices-free-and-updated/"><u>New In 2024, Top-Rated Green Screen Software for Mobile Devices Free & Updated</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ing-your-digital-storytelling-via-merged-youtube-media/"><u>Unifying Your Digital Storytelling via Merged YouTube Media</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/1721978945486-unlock-advanced-conversations-with-chatgpt-on-windows-explore-the-free-local-version-using-gpt-4-all/"><u>Unlock Advanced Conversations with ChatGPT on Windows - Explore the Free, Local Version Using GPT-4 All.</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ling-the-secrets-to-removing-green-screen-effects-on-mac-for-2024/"><u>Unveiling the Secrets to Removing Green Screen Effects on Mac for 2024</u></a></li>
+<li><a href="https://data-wizards.techidaily.com/unwavering-excellence-in-support-a-mean-satisfaction-of-245/"><u>Unwavering Excellence in Support - A Mean Satisfaction of 245</u></a></li>
+<li><a href="https://howto.techidaily.com/what-to-do-if-google-play-services-keeps-stopping-on-vivo-y100i-power-5g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>What to Do if Google Play Services Keeps Stopping on Vivo Y100i Power 5G | Dr.fone</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/be-brand-creation-top-titles-for-video-content-craftsmen-max-156/"><u>Youtube Brand Creation  Top Titles for Video Content Craftsmen (Max 156)</u></a></li>
+</ul></div>
