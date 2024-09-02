@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Mastering Mobile Media  A Guide to the 9 Smartest Gadgets for Filmmakers for 2024\""
-date: 2024-07-12T23:28:06.189Z
-updated: 2024-07-13T23:28:06.189Z
+date: 2024-09-01T13:32:21.972Z
+updated: 2024-09-02T13:32:21.972Z
 tags:
   - ai video
   - ai youtube
@@ -40,6 +40,9 @@ Vlogging uses a lot more power. If you’re planning to vlog all throughout your
 
 The Arkon tripod mount is a great portable tripod option that you can get at the fair price of around $20 USD. Not only does it have bendable legs, like the more expensive Joby GorillaPod tripod, that you can wrap around all kinds of structures, but it also comes with the smartphone mount, which Joby sells separately. Another great thing about the Arkon tripod is that its smartphone mount can be rotated so that you can position your phone to film in either widescreen or portrait mode.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2087484/7443" target="_top" id="2087484"><img src="//a.impactradius-go.com/display-ad/7443-2087484" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087484/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### 3\. Mega Tiny Anti-Gravity Case
 ![Mega Tiny Anti-Gravity Case](https://images.wondershare.com/filmora/article-images/smartphone-camera-accessories-anti-gravity-case.jpg)
 
@@ -50,11 +53,20 @@ For all the flat surfaces that the bendable legs of the Arkon tripod mount can�
 
 As much as smartphone camera technology has advanced, phone cameras still underperform when it comes to filming video in low-light. In low-light, your footage is very grainy because your phone is equipped with a small camera sensor, an engineering choice by the manufacturers to keep the size of the phone small. A handy accessory that you can use to get more light is the FLII selfie ring light. This ring light clamps onto your phone and emits a neutral white light. You can clamp this light to either side of your phone, depending on whether you want to use your rear-facing camera or your front-facing camera. This selfie ring light sells for around $16 USD.
 
+<!-- affiliate ads begin -->
+<a href="https://parisrhonecom.sjv.io/c/5597632/1922358/21553" target="_top" id="1922358"><img src="//a.impactradius-go.com/display-ad/21553-1922358" border="0" alt="" width="1080" height="1080"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1922358/21553" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### 5\. RODE VideoMic Me
 ![RODE VideoMic Me](https://images.wondershare.com/filmora/article-images/smartphone-camera-accessories-microphone.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://imp.i357552.net/c/5597632/863039/11832" target="_top" id="863039"><img src="//a.impactradius-go.com/display-ad/11832-863039" border="0" alt="" width="300" height="250"/></a>
+<!-- affiliate ads end -->
 The mic that is already built into your phone is equally sensitive to the sounds that come from behind the phone as it is to the sounds that are in front of the phone. This can be problematic when you’re trying to vlog in selfie mode while there’s a loud concert on the other side. One smartphone accessory that can improve the sound that you record from your phone in these situations is the RODE VideoMic Me. This mini directional shotgun mic plugs right into your phone’s headphone jack and sells for around $60 USD. In windy conditions, the dead cat windshield that it comes with does a great job of minimizing noise from the wind. In quiet, indoor conditions where you are the only person speaking, this device performs no better than your phone’s internal microphone. Your phone will also have to be in airplane mode to prevent the Rode VideoMic Me from recording unwanted clicking noise caused by background processes performed by your phone. So you wouldn’t want to use this for livestreaming.
 
+<!-- affiliate ads begin -->
+<a href="https://store.iobit.com/order/checkout.php?PRODS=4596923&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/184260348236f9554fe9375772ff966e/ascscan_468X60.png" border="0"></a>
+<!-- affiliate ads end -->
 ### 6\. Aukey Optic 3-in-1 Smartphone Lens Set
 ![Aukey Optic 3-in-1 Smartphone Lens Set](https://images.wondershare.com/filmora/article-images/smartphone-camera-accessories-smartphone-lens-set.jpg)
 
@@ -73,16 +85,28 @@ Manfrotto’s TwistGrip System does a similar job to the above iOgrapher Go. Thi
 ### 9\. Zhiyun Smooth-Q 3-Axis Handheld Gimbal Stabilizer for Smartphones
 ![Zhiyun Smooth-Q](https://images.wondershare.com/filmora/article-images/smartphone-camera-accessories-gimbal-stabilizer.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4729642&QTY=1&AFFILIATE=108875&CART=1">Advanced Find and Replace for Google Sheets, Lifetime subscription</a>
+<!-- affiliate ads end -->
 My favorite smartphone camera accessory that I own is the Zhiyun Smooth-Q gimbal stabilizer. This gimbal is very effective in helping you record smooth video. Using the app that it comes with, you can even preset this gimbal to smoothly pan and rotate from a starting position to an ending position, giving you the opportunity to film beautiful time lapses. You can get this device at around $100 USD.
 
+<!-- affiliate ads begin -->
+<a href="https://modlily.sjv.io/c/5597632/1997817/17059" target="_top" id="1997817"><img src="//a.impactradius-go.com/display-ad/17059-1997817" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1997817/17059" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Polish Your YouTube Videos with Filmora
 
 As one of the most widely used video editing software in YouTube video editing, [Filmora](https://tools.techidaily.com/wondershare/filmora/download/) provides lots of templates and effects with an intuitive interface, which saves much time. Download the free trial version and get started now.
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<a href="https://store.movavi.com/affiliate.php?ACCOUNT=MOVAVI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.movavi.com%3FAFFILIATE%3D108875%26RESOURCE%3DMovavi%2BVideo%2BEditor%2Bbox"><img src="https://mcusercontent.com/0885a03ded3d480dca9287f12/images/6d3207fd-9f15-4c21-f0ad-59c68e6a7e2a.png" border="0"></a>
+<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://ukaidot.sjv.io/c/5597632/1793233/19578" target="_top" id="1793233"><img src="//a.impactradius-go.com/display-ad/19578-1793233" border="0" alt="" width="1200" height="1200"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793233/19578" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
@@ -108,3 +132,49 @@ Follow @Richard Bennett
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://win-blog.techidaily.com/like-a-dragon-exploring-the-seamless-transition-of-yakuza-to-pc-gaming-platforms/"><u>'Like a Dragon': Exploring the Seamless Transition of Yakuza to PC Gaming Platforms</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/79378550-new-2024-approved-quick-tips-for-easy-youtube-thumbnail-acquisition-zero-price/"><u>[New] 2024 Approved  Quick Tips for Easy YouTube Thumbnail Acquisition – Zero Price!</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ementing-climactic-conclusions/"><u>[New] Cementing Climactic Conclusions</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-masters-picks-highest-rated-cards-for-streaming-on-youtube/"><u>[New] In 2024, Master's Picks  Highest Rated Cards for Streaming on YouTube</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-top-12-video-grabber-online-to-download-any-video-you-like/"><u>[New] In 2024, Top 12 Video Grabber Online to Download Any Video You Like</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-your-shorts-are-here-no-more-waiting-game/"><u>[New] In 2024, Your Shorts Are Here – No More Waiting Game</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ptimizing-personal-video-experience-building-an-organized-watch-later-list-for-2024/"><u>[New] Optimizing Personal Video Experience  Building an Organized 'Watch Later' List for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ound-savvy-your-guide-to-the-top-6-free-android-downloader-apps-for-youtube-for-2024/"><u>[New] Sound Savvy  Your Guide to the Top 6 Free Android Downloader Apps for Youtube for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-2024-approved-audio-perfection-achieved-expert-tips-without-a-microphone/"><u>[Updated] 2024 Approved  Audio Perfection Achieved  Expert Tips Without a Microphone</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-efficient-tricks-to-scramble-youtube-playlists-pcphonetv/"><u>[Updated] 2024 Approved  Efficient Tricks to Scramble YouTube Playlists (PC/Phone/TV)</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/updated-2024-approved-innovative-reclaim-review-the-ultimate-screen-recorder/"><u>[Updated] 2024 Approved  Innovative 'Reclaim' Review – The Ultimate Screen Recorder?</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/updated-capture-and-share-your-screens-bandicam-vs-camtasia-for-2024/"><u>[Updated] Capture and Share Your Screens  Bandicam vs Camtasia for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-how-to-post-a-video-from-youtube-on-instagram/"><u>[Updated] How to Post a Video From YouTube on Instagram</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-in-2024-fifa-footage-analysis-trendy-video-patterns/"><u>[Updated] In 2024, FIFA Footage Analysis  Trendy Video Patterns</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-in-2024-precision-editing-mastery-proven-pc-strategies-for-youtube-success/"><u>[Updated] In 2024, Precision Editing Mastery  Proven PC Strategies for YouTube Success</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-in-2024-the-soloists-journey-personal-growth-and-success-on-youtube-for-musicians/"><u>[Updated] In 2024, The Soloist's Journey  Personal Growth and Success on YouTube for Musicians</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-in-2024-windows-movie-maker-a-toolkit-for-youtube-videographers/"><u>[Updated] In 2024, Windows Movie Maker  A Toolkit for YouTube Videographers</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-outlining-operational-offshoots-for-2024/"><u>[Updated] Outlining Operational Offshoots for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-securing-successful-video-ventures-through-team-choices-for-2024/"><u>[Updated] Securing Successful Video Ventures Through Team Choices for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-streamlining-ad-revenue-post-monetization-yt-tips-and-tricks/"><u>[Updated] Streamlining Ad Revenue  Post-Monetization YT Tips & Tricks</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-unraveling-youtubes-monetization-shifts/"><u>[Updated] Unraveling YouTube's Monetization Shifts</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ng-edge-editing-a-roadmap-for-high-quality-youtube-sounds/"><u>Cutting-Edge Editing  A Roadmap for High-Quality YouTube Sounds</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/decoding-instagram-selfies-the-validation-handbook/"><u>Decoding Instagram Selfies  The Validation Handbook</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/tial-gear-for-video-blogging-top-rated-camera-lenses-revealed/"><u>Essential Gear for Video Blogging  Top-Rated Camera Lenses Revealed</u></a></li>
+<li><a href="https://fox-access.techidaily.com/from-captured-moment-to-moving-picture/"><u>From Captured Moment to Moving Picture</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/how-to-unlock-sim-cards-of-samsung-galaxy-a25-5g-without-puk-codes-by-drfone-android/"><u>How To Unlock SIM Cards Of Samsung Galaxy A25 5G Without PUK Codes</u></a></li>
+<li><a href="https://fake-location.techidaily.com/in-2024-6-ways-to-change-spotify-location-on-your-xiaomi-14-drfone-by-drfone-virtual-android/"><u>In 2024, 6 Ways to Change Spotify Location On Your Xiaomi 14 | Dr.fone</u></a></li>
+<li><a href="https://android-frp.techidaily.com/in-2024-easy-guide-to-nokia-g42-5g-frp-bypass-with-best-methods-by-drfone-android/"><u>In 2024, Easy Guide to Nokia G42 5G FRP Bypass With Best Methods</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/24-exclusive-list-of-leading-free-video-editing-programs/"><u>In 2024, Exclusive List of Leading Free Video Editing Programs</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/24-free-end-credits-excellence-top-6-tutorials/"><u>In 2024, Free End Credits Excellence  Top 6 Tutorials</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/24-halt-autoplay-youtube-recommendations/"><u>In 2024, Halt Autoplay YouTube Recommendations</u></a></li>
+<li><a href="https://fox-that.techidaily.com/navigating-the-most-prevalent-iphone-12-challenges-a-users-manual-for-quick-solutions/"><u>Navigating the Most Prevalent iPhone 12 Challenges: A User's Manual for Quick Solutions</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/pattern-locks-are-unsafe-secure-your-infinix-smart-8-plus-phone-now-with-these-tips-by-drfone-android/"><u>Pattern Locks Are Unsafe Secure Your Infinix Smart 8 Plus Phone Now with These Tips</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/nal-evolution-building-an-enduring-youtubing-identity/"><u>Personal Evolution  Building an Enduring YouTubing Identity</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/orm-profitability-showdown-dailymovements-standards-vs-youtube-for-2024/"><u>Platform Profitability Showdown  DailyMovement's Standards Vs Youtube for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/atory-views-on-screenshots-from-youtube-streaming-for-2024/"><u>Regulatory Views on Screenshots From YouTube Streaming for 2024</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/the-photographers-route-to-perfectly-trimmed-web-pics-for-2024/"><u>The Photographer's Route to Perfectly Trimmed Web Pics for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ltimate-smartphone-filmmakers-handbook-for-youtube-thumbnails/"><u>The Ultimate Smartphone Filmmaker's Handbook for YouTube Thumbnails</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/n-yet-seen-how-to-conceal-faces-and-objects-digitally-for-2024/"><u>Unseen Yet Seen  How to Conceal Faces and Objects Digitally for 2024</u></a></li>
+<li><a href="https://video-content-creator.techidaily.com/updated-the-art-of-audio-fading-2-techniques-to-elevate-your-videos-in-final-cut-pro/"><u>Updated The Art of Audio Fading 2 Techniques to Elevate Your Videos in Final Cut Pro</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/naries-shaping-marvel-online-experience/"><u>Visionaries Shaping Marvel Online Experience</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/bes-evergreen-most-watched-video-catalog/"><u>YouTube's Evergreen Most-Watched Video Catalog</u></a></li>
+</ul></div>

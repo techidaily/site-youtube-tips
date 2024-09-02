@@ -1,0 +1,206 @@
+---
+title: "Thrifty Approaches to YouTube Video Card Production for 2024"
+date: 2024-09-01T13:42:47.342Z
+updated: 2024-09-02T13:42:47.342Z
+tags:
+  - ai video
+  - ai youtube
+categories:
+  - ai
+  - youtube
+description: "This Article Describes Thrifty Approaches to YouTube Video Card Production for 2024"
+excerpt: "This Article Describes Thrifty Approaches to YouTube Video Card Production for 2024"
+keywords: "\"Cost-Efficient Video Cards,DIY Video Editing Tools,Affordable Media Creation,Budget Video Tech,Cheap Digital Productions,Economical Production Methods,Low-Cost Media Equipment\""
+thumbnail: https://thmb.techidaily.com/0a4429b41076dffc8b778c6281e805f6a7937a0d2383fe5591ff482b234f870f.jpg
+---
+
+## Thrifty Approaches to YouTube Video Card Production
+
+# How to Create YouTube Intros & End Cards - Free and Easy
+
+![](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
+
+##### Shanoon Cox
+
+ Oct 26, 2023• Proven solutions
+
+[0](#commentsBoxSeoTemplate)
+
+[Part 1: Intros](#part1)
+
+[Elements of an Intro](#elements)
+
+[Top Intro Sites](#top)
+
+[Creating an Intro in Filmora](#creating)
+
+[Part 2: End Cards](#part2)
+
+[Elements of an End Card](#element)
+
+[How To Make an End Card](#how-to)
+
+## Part1: Intros
+
+#### Elements of an Intro
+
+Intros should only last about five seconds, and that can be cut down to two or three if you have a larger following.
+
+When your intro video is longer than five seconds viewers are more likely to click away. The first 15 seconds of a video is when viewers are most likely to decide to click on one of the recommended videos, or go back to their search results and choose something else. The odds of them leaving within these first 15 seconds are greater if you do not get right to the main point of your video. That is why long intro sequences are bad for your watch time.
+
+Whether it is better to put your intro at the very beginning of your video, or after you introduce your topic, will depend on your viewers. You may want to try it both ways and then look at your retention report (found in your YouTube Creator Studio under Analytics) to see which works best for you.
+
+#### [Top Intro Sites](https://tools.techidaily.com/wondershare/filmora/download/)
+
+There are a few different sites where you can download animated intros, customized to include your username or logo. Here are two of the best:
+
+**FlixPress.com**
+
+This is probably the most popular intro site. There are a lot of great animated intros available for under $5, or even for free.
+
+**IntroMaker.net**
+
+This is another site with really professional looking intros for $5\. They only have two free options, though.
+
+#### Creating an Intro in Filmora
+
+You can create a simple intro card in **Filmora**.
+
+[![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
+
+1. Choose your background. You may want to use a short clip as your intro, or you may just want a colored background.
+2. Drag your clip or background into the video track of your timeline and trim it down to five seconds.
+3. If you have a logo, import it into Filmora and drag it into your picture-in-picture track.
+4. With your logo selected, click on the Green Screen icon. In the pop-up, select the background of your logo to make it transparent. For this to work your logo cannot be the same color as its background.
+5. Click on the editing icon with your logo selected and choose an animation.
+6. Go to the Text/Titles menu and choose an animated title that suits your channel. Drag it into your text track and edit it to include your name.
+7. The last piece of your intro is sound. You can choose a song from Filmora’s library and cut it down to five seconds, or import your sound effect.
+8. Export your video and save it for use in all of your other videos.
+
+## Part 2: End Cards
+
+When your video ends, YouTube will recommend a selection of videos users may want to watch next. Often, these recommendations will not include more of your videos.
+
+To keep viewers on your channel, you can create your End Card which recommends other content you have created.
+
+#### Elements of an End Card
+
+An end card includes clips from two or three of your videos, muted, and shrunk down to thumbnail-size. Using spotlight annotations you can make these thumbnails click-able.
+
+It is also important that your end card includes multiple calls to action. A call to action is meant to spur a viewer to some kind of action. Writing ‘Check out this video’ above one of your thumbnails is a call to action.
+
+You should also have a subscribe link somewhere in your end card, ideally a very noticeable button with a proven call to action like ‘Subscribe Now!’.
+
+Some creators will leave their end cards at that and play music overtop, but it can be even more effective to include a voiceover where you ask viewers to subscribe and watch your other videos.
+
+#### [How To Make an End Card](https://tools.techidaily.com/wondershare/filmora/download/)
+
+1. Choose a static background. You may want to download an end card template or create one in a drawing program. If you do, make sure to include calls to action like ‘Watch more!’ and ‘Subscribe’.
+2. Drag your background into your timeline at the end of your video.
+3. Import two or three of your previous videos and drag them into your picture in picture tracks. Each clip should be on its track.
+4. Trim the clips in your picture in picture track down to the same length as your end card.
+5. Shrink your clips down to thumbnail-size by dragging their corners in the preview window.
+6. Position your clips so they are spaced evenly by dragging them in the preview screen.
+7. Mute your clips.
+8. If your background does not include any calls to action, choose a title from the **Text/Titles** menu in Filmora and create at least two – one asking viewers to subscribe, and one asking them to watch your suggested videos.
+9. Export your video from Filmora and upload it to YouTube.
+10. Go to your **Video Manager** and select **Annotations** in the drop-down menu next to your video.
+11. Go to your end card in the previewer, as that is where you want to add your annotations.
+12. Click **Add Annotation** and add a spotlight annotation to your video. Stretch it over one of your thumbnails and then check the Link box under your Annotation’s timing. Insert a link to the video you are previewing.
+13. Repeat for any other thumbnails. For your subscribe button, change where it said ‘Video’ to ‘Subscribe’ and enter your channel URL.
+14. Click **Apply Changes**.
+
+![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
+
+Shanoon Cox
+
+Shanoon Cox is a writer and a lover of all things video.
+
+Follow @Shanoon Cox
+
+
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-format="autorelaxed"
+     data-ad-client="ca-pub-7571918770474297"
+     data-ad-slot="1223367746"></ins>
+
+
+
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-client="ca-pub-7571918770474297"
+     data-ad-slot="8358498916"
+     data-ad-format="auto"
+     data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://video-capture.techidaily.com/new-2024-approved-critique-free2x-app-for-webcam-capture/"><u>[New] 2024 Approved  Critique  Free2X App for Webcam Capture</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/new-2024-approved-smooth-sailing-in-transforming-ppt-slides-into-videos/"><u>[New] 2024 Approved  Smooth Sailing in Transforming PPT Slides Into Videos</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-2024-approved-the-transformation-of-video-on-facebook/"><u>[New] 2024 Approved  The Transformation of Video on Facebook</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/riving-revenue-with-well-crafted-youtube-channel-trailers/"><u>[New] Driving Revenue with Well-Crafted YouTube Channel Trailers</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/xperience-the-future-of-learning-with-these-channels-for-2024/"><u>[New] Experience the Future of Learning with These Channels for 2024</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/new-high-definition-top-win-11-cameras-and-recorder-list-for-2024/"><u>[New] High Definition  Top Win 11 Cameras and Recorder List for 2024</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/new-in-2024-best-in-class-identifying-leading-screen-recording-for-macos/"><u>[New] In 2024, Best in Class  Identifying Leading Screen Recording for macOS</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-famous-gamers-software-choices/"><u>[New] In 2024, Famous Gamers' Software Choices</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-pro-freefire-compiling-premier-gaming-vids-and-hashtags/"><u>[New] In 2024, Pro-FreeFire  Compiling Premier Gaming Vids and Hashtags</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-youtube-partnership-unlocked-break-through-at-10k-vistas/"><u>[New] In 2024, YouTube Partnership Unlocked  Break Through at 10K Vistas</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/new-mastering-mov-file-capture-in-win10/"><u>[New] Mastering MOV File Capture in Win10</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-overcome-sound-absence-on-tweeted-film-rolls/"><u>[New] Overcome Sound Absence on Tweeted Film Rolls</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/tand-out-in-the-stream-top-name-generators-reviewed/"><u>[New] Stand Out in the Stream  Top Name Generators Reviewed</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/new-streamline-your-workflow-essential-tips-to-record-on-hp-laptop/"><u>[New] Streamline Your Workflow  Essential Tips to Record on HP Laptop</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/he-8-most-critical-blunders-to-elude-as-a-rookie-youtuber/"><u>[New] The 8 Most Critical Blunders to Elude as a Rookie YouTuber</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/he-creators-lab-building-an-unstoppable-channel/"><u>[New] The Creator's Lab  Building an Unstoppable Channel</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ransforming-channels-with-powerful-visual-branding-strategies-for-2024/"><u>[New] Transforming Channels with Powerful Visual Branding Strategies for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/nlock-the-power-of-partnerships-youtube-ads-with-a-famebit-edge-for-2024/"><u>[New] Unlock the Power of Partnerships  YouTube Ads with a FameBit Edge for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-2024-approved-deciphering-the-divergent-aspects-of-youtubes-and-dailymentions/"><u>[Updated] 2024 Approved  Deciphering the Divergent Aspects of YouTubes & DailyMentions</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-best-5-youtube-tag-generators-and-tips-to-tag-videos-properly-for-2024/"><u>[Updated] Best 5 YouTube Tag Generators & Tips to Tag Videos Properly for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-beyond-basic-the-advanced-techniques-of-youtube-counts-for-2024/"><u>[Updated] Beyond Basic  The Advanced Techniques of YouTube Counts for 2024</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/updated-boost-canons-charm-10-free-luts-tailored-upgrades-await/"><u>[Updated] Boost Canon's Charm  10 Free LUTs, Tailored Upgrades Await</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-channel-branding-mastery-securing-a-loyal-youtube-subscriber-base/"><u>[Updated] Channel Branding Mastery  Securing a Loyal YouTube Subscriber Base</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-dissecting-mr-beasts-fortune-portfolio/"><u>[Updated] Dissecting Mr. Beast's Fortune Portfolio</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-expert-tips-activating-or-deactivating-youtube-comments-for-2024/"><u>[Updated] Expert Tips  Activating or Deactivating YouTube Comments for 2024</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/updated-in-2024-debut-video-capture-review-and-alternative/"><u>[Updated] In 2024, Debut Video Capture Review and Alternative</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-in-2024-visionedit-pro/"><u>[Updated] In 2024, VisionEdit Pro</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-optimizing-youtube-performance-crafting-perfect-titles-and-tags/"><u>[Updated] Optimizing YouTube Performance  Crafting Perfect Titles and Tags</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-pause-unrequested-youtube-video-selections/"><u>[Updated] Pause Unrequested YouTube Video Selections</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-ranked-the-best-7-android-adblockers-for-screen-freedom-for-2024/"><u>[Updated] Ranked  The Best 7 Android AdBlockers for Screen Freedom for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-sound-fidelity-at-home-mastering-quality-recordings/"><u>[Updated] Sound Fidelity at Home  Mastering Quality Recordings</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-the-art-of-making-youtube-thumbnails-on-the-go-mobile-for-2024/"><u>[Updated] The Art of Making YouTube Thumbnails on the Go (Mobile) for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-the-essential-guide-to-youtube-video-lighting-tips/"><u>[Updated] The Essential Guide to YouTube Video Lighting Tips</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-the-monetization-matrix-how-maker-gains-from-shorter-videos/"><u>[Updated] The Monetization Matrix  How Maker Gains From Shorter Videos</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-the-strategic-use-of-tags-a-guide-to-youtube-success/"><u>[Updated] The Strategic Use of Tags  A Guide to YouTube Success</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-youtube-link-building-101-a-content-marketers-guide-for-2024/"><u>[Updated] YouTube Link-Building 101  A Content Marketer's Guide for 2024</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/2024-approved-perfect-your-hd-vids-on-android-with-these-10-players/"><u>2024 Approved  Perfect Your HD Vids on Android With These 10 Players</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/approved-top-5-gif-making-software-with-the-highest-ratings/"><u>2024 Approved  Top 5 GIF Making Software with the Highest Ratings</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/3-easy-ways-to-factory-reset-a-locked-apple-iphone-7-plus-without-itunes-by-drfone-ios/"><u>3 Easy Ways to Factory Reset a Locked Apple iPhone 7 Plus Without iTunes</u></a></li>
+<li><a href="https://location-fake.techidaily.com/5-best-route-generator-apps-you-should-try-on-xiaomi-redmi-a2plus-drfone-by-drfone-virtual-android/"><u>5 Best Route Generator Apps You Should Try On Xiaomi Redmi A2+ | Dr.fone</u></a></li>
+<li><a href="https://howto.techidaily.com/8-quick-fixes-unfortunately-snapchat-has-stopped-on-xiaomi-14-ultra-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>8 Quick Fixes Unfortunately, Snapchat has Stopped on Xiaomi 14 Ultra | Dr.fone</u></a></li>
+<li><a href="https://article-files.techidaily.com/comprehensive-guide-webp-to-jpg-conversion-secrets-for-2024/"><u>Comprehensive Guide  WebP to JPG Conversion Secrets for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ct-youtube-soundtracks-for-free-with-this-list-of-25-rippers/"><u>Extract YouTube Soundtracks for Free With This List of 25 Rippers</u></a></li>
+<li><a href="https://howto.techidaily.com/google-play-services-wont-update-12-fixes-are-here-on-samsung-galaxy-m54-5g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Google Play Services Wont Update? 12 Fixes are Here on Samsung Galaxy M54 5G | Dr.fone</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/24-excellent-7-dslrs-elevating-live-stream-cinematic-style/"><u>In 2024, Excellent 7 DSLRs Elevating Live-Stream Cinematic Style</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/in-2024-free-lut-heaven-the-10-finest-and-accessible-resources/"><u>In 2024, Free LUT Heaven  The 10 Finest and Accessible Resources</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-how-to-fake-snapchat-location-without-jailbreak-on-realme-narzo-n55-drfone-by-drfone-virtual-android/"><u>In 2024, How to Fake Snapchat Location without Jailbreak On Realme Narzo N55 | Dr.fone</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-solutions-to-spy-on-xiaomi-civi-3-disney-100th-anniversary-edition-with-and-without-jailbreak-drfone-by-drfone-virtual-android/"><u>In 2024, Solutions to Spy on Xiaomi Civi 3 Disney 100th Anniversary Edition with and without jailbreak | Dr.fone</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/24-strategic-endings-keeping-viewers-engaged-on-yt/"><u>In 2024, Strategic Endings  Keeping Viewers Engaged on YT</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/in-2024-the-essential-manual-to-acquiring-final-cut-pro-gratis/"><u>In 2024, The Essential Manual to Acquiring Final Cut Pro Gratis</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/24-the-ultimate-checklist-for-youtube-short-success/"><u>In 2024, The Ultimate Checklist for YouTube Short Success</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/in-2024-things-you-should-know-when-unlocking-total-wireless-of-apple-iphone-xr-by-drfone-ios/"><u>In 2024, Things You Should Know When Unlocking Total Wireless Of Apple iPhone XR</u></a></li>
+<li><a href="https://driver-download.techidaily.com/maintains-a-uniform-temperature-gradient-for-better-heat-transfer-performance/"><u>Maintains a Uniform Temperature Gradient for Better Heat Transfer Performance.</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ring-video-trailers-on-youtube-via-filmora-tools/"><u>Mastering Video Trailers on YouTube via Filmora Tools</u></a></li>
+<li><a href="https://ai-video-tools.techidaily.com/new-2024-approved-s-hottest-vlog-editor-apps-for-ios-and-android-devices/"><u>New 2024 Approved S Hottest Vlog Editor Apps for iOS and Android Devices</u></a></li>
+<li><a href="https://ai-driven-video-production.techidaily.com/new-2024-approved-the-ultimate-mac-video-editor-mkvtoolnix-features-and-benefits/"><u>New 2024 Approved The Ultimate Mac Video Editor MKVtoolnix Features and Benefits</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/pixel-fold-2-tease-what-to-expect-in-terms-of-price-release-window-and-innovative-specs/"><u>Pixel Fold 2 Tease: What to Expect in Terms of Price, Release Window, and Innovative Specs</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/startling-your-tongue-a-simple-guide-to-german-pronunciation/"><u>Startling Your Tongue: A Simple Guide to German Pronunciation</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/step-by-step-process-to-get-latest-broadcom-ethernet-driver-working-in-windows-10/"><u>Step-by-Step Process to Get Latest Broadcom Ethernet Driver Working in Windows 10</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/egies-for-selective-success-in-the-youtube-realm-for-2024/"><u>Strategies for Selective Success in the YouTube Realm for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/egies-to-triple-your-earnings-on-youtube-shorts/"><u>Strategies to Triple Your Earnings on Youtube Shorts</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/the-comprehensive-roadmap-how-to-protect-and-list-your-email-securely/"><u>The Comprehensive Roadmap: How to Protect & List Your Email Securely</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/bes-secrets-to-efficient-frame-viewing-free/"><u>YouTube's Secrets to Efficient Frame Viewing (FREE!)</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2075475/7443" target="_top" id="2075475"><img src="//a.impactradius-go.com/display-ad/7443-2075475" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075475/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
