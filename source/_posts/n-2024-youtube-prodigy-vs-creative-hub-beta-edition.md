@@ -1,7 +1,7 @@
 ---
 title: "[New] In 2024, YouTube Prodigy Vs. Creative Hub Beta Edition"
-date: 2024-09-01T13:51:03.862Z
-updated: 2024-09-02T13:51:03.862Z
+date: 2024-09-06T03:33:49.199Z
+updated: 2024-09-07T03:33:49.199Z
 tags:
   - ai video
   - ai youtube
@@ -20,6 +20,12 @@ thumbnail: https://thmb.techidaily.com/380105e59c8959c0073d444abec887193c4b497ad
 
 ![](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139111/17108" target="_top" id="2139111">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139111" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139111/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ##### Richard Bennett
 
  Oct 26, 2023• Proven solutions
@@ -30,12 +36,24 @@ In 2017, [YouTube revealed YouTube Studio Beta](https://www.adweek.com/digital/y
 
 In this article, we will look at the new features YouTube Studio Beta has, what we can expect from it in the future, and why YouTube will eventually phase out the older YouTube Creator Studio… and whether that change will be an improvement.
 
+<!-- affiliate ads begin -->
+<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/2137973/21526" target="_top" id="2137973">
+  <img src="//a.impactradius-go.com/display-ad/21526-2137973" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://zebaoaffiliateprogram.pxf.io/i/5597632/2137973/21526" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Edit YouTube Videos with Filmora
 
 As one of the most widely used video editing software in YouTube video editing, [Filmora](https://tools.techidaily.com/wondershare/filmora/download/) provides lots of templates and effects with an intuitive interface, which saves much time. Download the free trial version and get started now.
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/2137976/21526" target="_top" id="2137976">
+  <img src="//a.impactradius-go.com/display-ad/21526-2137976" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://zebaoaffiliateprogram.pxf.io/i/5597632/2137976/21526" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ---
 
 ## Why YouTube Is Getting Rid of Classic Creator Studio?
@@ -48,13 +66,22 @@ YouTube Studio was designed to be a friendly management and analysis tool. YouTu
 
 Undoubtedly, YouTube updated its Creator Studio to offer a tool that enables its users to better understand their video performance and make better content that serves YouTube’s requirements.
 
+<!-- affiliate ads begin -->
+<span id="1328679">
+					<video width="240" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1328679.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/15852-1328679">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1328679.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1328679%2F15852'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1328679/15852" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Intro to YouTube Studio (Beta)
 
 ![ YouTube Studio Beta](https://images.wondershare.com/filmora/article-images/youtube-studio-beta.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://tinyland.pxf.io/c/5597632/1793214/19135" target="_top" id="1793214"><img src="//a.impactradius-go.com/display-ad/19135-1793214" border="0" alt="" width="900" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793214/19135" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 YouTube Studio (Beta), for many YouTubers, is now the default. However, for the time being, creators can still switch back to the Classic view (as some of the features are still being built). YouTube’s objective is to receive data of their own by understanding how creators are using the new Studio and gaining feedback to improve upon it.
 
 If you have any feedback, simply click on this button on the bottom left menu of the YouTube Studio (Beta) and send YouTube your thoughts.
@@ -67,9 +94,6 @@ In addition to the new layout of the tools and dashboards, YouTube Studio (Beta)
 
 **3\. Unique viewers**: Know how many different people have watched your videos. This data can be used to compare the size of your subscriber base to the actual number of your audience.
 
-<!-- affiliate ads begin -->
-<a href="https://printrendy.pxf.io/c/5597632/1453721/17020" target="_top" id="1453721"><img src="//a.impactradius-go.com/display-ad/17020-1453721" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1453721/17020" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Tips for Using YouTube Studio Beta Features
 
 Now that you are more familiar with the new YouTube Studio (Beta), let us dive into what you can accomplish with all the new features.
@@ -80,9 +104,6 @@ In the past, there has been a lot of speculations about how creators should trea
 
 ![YouTube Studio Beta Optimization Tips](https://images.wondershare.com/filmora/article-images/youtube-studio-beta-optimization.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=33729450&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/7f687767ccf20fcea1c9dc4a5adc2326/Digisigner_banner_728_x_90_color_version.png" border="0"></a>
-<!-- affiliate ads end -->
 #### 2. Recent Video Data
 
 See data and improvement tips for your latest video. If YouTube identifies a notable issue with your video, they will help you by offering tips, which you can click “Tell Me More” to look into.
@@ -92,7 +113,10 @@ YouTube wants you to know how your videos are performing in the first few days. 
 ![YouTube Studio Video Analysis](https://images.wondershare.com/filmora/article-images/youtube-studio-beta-recent-video-data.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082529/7443" target="_top" id="2082529"><img src="//a.impactradius-go.com/display-ad/7443-2082529" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082529/7443" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/2135399/19272" target="_top" id="2135399">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135399" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135399/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 #### 3. Video Analysis
 
@@ -100,9 +124,6 @@ In the Classic Creator Studio, you couldn’t get an aggregated view of all the 
 
 ![YouTube Studio Video Analysis](https://images.wondershare.com/filmora/article-images/youtube-studio-beta-video-analysis.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2087264/19272" target="_top" id="2087264"><img src="//a.impactradius-go.com/display-ad/19272-2087264" border="0" alt="" width="336" height="280"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2087264/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 #### 4. Watch Time Funnel
 
 The objective is to increase watch time, the metric YouTube puts the most weight on. With the new Watch Time Funnel, which you can find in the Analytics section under the Reach Viewer dashboard, you can see exactly at which level of your channel or wherein an individual video you will need to improve.
@@ -115,6 +136,18 @@ If the average view duration is not up to your standards, then you will have to 
 
 ![YouTube Creator Studio Watch Time Funnel](https://images.wondershare.com/filmora/article-images/youtube-studio-beta-watch-time-funnel.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1983539">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983539.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983539">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983539.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983539%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983539/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 #### 5. Traffic Sources
 
 YouTube now presents all the different traffic sources in one easy-to-find page in the Reach Viewer tab, so creators no longer have to click between them to analyze where their traffic is coming from. This new design is far less intimidating and messy. At a glance, you can now see where the majority of your audiences are coming from.
@@ -128,7 +161,10 @@ _Have you tried the new YouTube Studio (Beta)? What are your thoughts? Please le
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://shop.incomedia.eu/order/checkout.php?PRODS=14095146&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8b6cc3ee5ec407721ce3bf5ff4c0f56b/PRO_BUY_728x90-EN.jpg" border="0"></a>
+<a href="https://aligracehair.sjv.io/c/5597632/2135356/19272" target="_top" id="2135356">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135356" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135356/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 Richard Bennett
 

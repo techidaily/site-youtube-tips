@@ -1,0 +1,160 @@
+---
+title: "\"2024 Approved  Graphical Forecast  The Dominant '23 Social Themes\""
+date: 2024-09-06T03:43:27.746Z
+updated: 2024-09-07T03:43:27.746Z
+tags:
+  - ai video
+  - ai youtube
+categories:
+  - ai
+  - youtube
+description: "\"This Article Describes 2024 Approved: Graphical Forecast: The Dominant '23 Social Themes\""
+excerpt: "\"This Article Describes 2024 Approved: Graphical Forecast: The Dominant '23 Social Themes\""
+keywords: "Future Trends 2023,Graphic Societal Insights,Social Patterns Prediction,Forecasting Societal Norms,2023 Thematic Shifts,Visual Society Analysis,Yearly Cultural Traits"
+thumbnail: https://thmb.techidaily.com/d31e8723e03acf63385b6b2673e7168286d60ba0c51b363448b469a8ffe4640d.jpg
+---
+
+<!-- affiliate ads begin -->
+<span id="2127886">
+					<video width="576" height="1024" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/2127886.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/18498-2127886">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/2127886.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Funicoeye.pxf.io%2Fc%2F5597632%2F2127886%2F18498'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/2127886/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+## Graphical Forecast: The Dominant '23 Social Themes
+
+# Infographic - Social Media Trends
+
+![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137220/26400" target="_top" id="2137220">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137220" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137220/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+##### Richard Bennett
+
+ Mar 27, 2024• Proven solutions
+
+The landscape of the social media has been constantly changing over the course of the previous decade. New technologies and features like AI (artificial intelligence), AR (augmented reality) have made possible things we couldn't even imagine at the turn of the century.
+
+Scroll down to find out this infographic made by [Filmora](https://tools.techidaily.com/wondershare/filmora/download/). And get to know more about the hottest social media trends in 2018 and feel free to let us know what you think in the comments section. Hit share and tell your friends and colleagues about the future of the Internet.
+
+![top social media trends 2018](https://images.wondershare.com/filmora/article-images/top-social-media-trends-2018.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135414/19272" target="_top" id="2135414">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135414" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135414/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+In 2017, 90% of all content shared by Internet users is **video**, and this trend will continue in 2018 because all of the most popular social networks are investing in video features because they believe it can help them generate better user engagement. Furthermore, the ephemeral content, the type of content that is available for less than 24 hours, is on the rise, which means that Instagram or Snapchat stories must be considered as a channel for brand promotion in the next year and in years to come.
+
+**Chatbots** represent a significant force on the market since 80% of chatbots can be utilized for providing non-stop services. Some estimations say that up to 30% of all chat conversations on the Internet will be with chatbots as soon as 2018\. Despite the rapid automatization of the Internet, influencers still play a large role in online marketing, and they will continue to do so because they can produce a ten-time rise in conversion rates. Over 90% of people who at one point used influencer marketing think that it is an effective marketing technique that almost certainly provides results.
+
+One force on the market that needs to be reckoned with are **Smartphones**. The amount of time an average internet user spends on social networks from their Smartphone is significantly larger than the amount of time spent on those same networks from a desktop computer. This means that optimizing online content for Smartphones will become even more important in 2018, than it already is.
+
+**Live Streaming Takes the Center Stage**. Some studies have shown that 80% of customers would prefer to watch a live video streamed by a brand than to read a post. To make things even more interesting, it is estimated that by 2020 80% of Internet traffic will be generated by video content and the video streaming market could easily become $70,5 billion industry by 2021 if its growth continues at this pace.
+
+As of today **Generation Z** already has $44 billion of buying power and this number will continue to grow as the time passes. For that reason, brands and companies will have to adjust their offers to meet the demands of this rising force on the market.
+
+![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115910/19272" target="_top" id="2115910">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115910" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115910/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+Richard Bennett
+
+Richard Bennett is a writer and a lover of all things video.
+
+Follow @Richard Bennett
+
+
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-format="autorelaxed"
+     data-ad-client="ca-pub-7571918770474297"
+     data-ad-slot="1223367746"></ins>
+
+
+
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-client="ca-pub-7571918770474297"
+     data-ad-slot="8358498916"
+     data-ad-format="auto"
+     data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://tiktok-clips.techidaily.com/new-2024-approved-avoiding-tiktoks-ghost-mode-strategies-to-stay-visible/"><u>[New] 2024 Approved Avoiding TikTok's Ghost Mode Strategies to Stay Visible</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-2024-approved-visiovista-android-and-ios-instagram-tile-artisan/"><u>[New] 2024 Approved VisioVista Android & iOS Instagram Tile Artisan</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/new-acid-pro-in-focus-investigating-replacements-and-comparisons/"><u>[New] ACID Pro in Focus Investigating Replacements and Comparisons</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/hannel-control-center-creator-studio-essentials/"><u>[New] Channel Control Center Creator Studio Essentials</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/new-cutting-edge-techniques-for-improved-ram-in-minecraft/"><u>[New] Cutting-Edge Techniques for Improved Ram in Minecraft</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/new-from-static-shots-to-time-lapse-video-tapestry/"><u>[New] From Static Shots to Time-Lapse Video Tapestry</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/gnite-engagement-how-to-employ-youtubes-featured-channel-spotlighting-strategies/"><u>[New] Ignite Engagement How to Employ YouTube’s Featured Channel Spotlighting Strategies</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/new-in-2024-dissecting-the-capabilities-of-free2x-recording-software/"><u>[New] In 2024, Dissecting the Capabilities of Free2X Recording Software</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-effortless-youtube-live-with-step-by-step-obs-guide-for-beginners/"><u>[New] In 2024, Effortless YouTube Live with Step-by-Step OBS Guide for Beginners</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-growth-acceleration-on-youtube-expert-tips-for-video-partnerships/"><u>[New] In 2024, Growth Acceleration on YouTube Expert Tips for Video Partnerships</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-low-cost-subscriber-strategy-on-youtube-platform/"><u>[New] In 2024, Low-Cost Subscriber Strategy on YouTube Platform</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-maximize-content-experience-with-these-top-6-youtube-shorts-downloader-apps/"><u>[New] In 2024, Maximize Content Experience with These Top 6 YouTube Shorts Downloader Apps</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-sweep-up-viewers-the-science-behind-successful-youtube-shorts/"><u>[New] In 2024, Sweep Up Viewers The Science Behind Successful YouTube Shorts</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-your-shorts-are-here-no-more-waiting-game/"><u>[New] In 2024, Your Shorts Are Here – No More Waiting Game</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/everaging-imovie-features-to-upgrade-your-youtube-content-quality-for-2024/"><u>[New] Leveraging iMovie Features to Upgrade Your YouTube Content Quality for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/aximizing-your-reach-with-youtube-shorts-templates/"><u>[New] Maximizing Your Reach with YouTube Shorts Templates</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/eering-into-mr-beasts-economic-landscape/"><u>[New] Peering Into Mr. Beast's Economic Landscape</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/peedy-guide-crafting-images-into-stellar-youtube-thumbnail-pics/"><u>[New] Speedy Guide Crafting Images Into Stellar YouTube Thumbnail Pics</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-2024-approved-getting-acquainted-with-youtube-tvs-distinctive-features/"><u>[Updated] 2024 Approved Getting Acquainted with YouTube TV's Distinctive Features</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-a-beginners-tutorial-how-to-insert-on-screen-dialogue-in-video-formats-for-2024/"><u>[Updated] A Beginner's Tutorial How to Insert On-Screen Dialogue in Video Formats for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-comparing-social-platforms-facebook-live-vs-youtube-live-and-twitter-periscope/"><u>[Updated] Comparing Social Platforms Facebook LIVE Vs. YouTube Live & Twitter Periscope</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-elevating-video-sharing-from-youtube-to-insta/"><u>[Updated] Elevating Video Sharing From YouTube to Insta</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-how-to-post-a-video-from-youtube-on-instagram/"><u>[Updated] How to Post a Video From YouTube on Instagram</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-how-to-seamlessly-integrate-captions-into-youtube-videos-for-2024/"><u>[Updated] How to Seamlessly Integrate Captions Into YouTube Videos for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-in-2024-battle-royale-queens-top-10-female-youtubers/"><u>[Updated] In 2024, Battle Royale Queens Top 10 Female YouTubers</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-in-2024-embrace-9-festive-feasts-watch-holiday-epics-at-zero-cost-online/"><u>[Updated] In 2024, Embrace 9 Festive Feasts Watch Holiday Epics at Zero Cost Online</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-in-2024-monetizing-content-understanding-youtubes-cpm/"><u>[Updated] In 2024, Monetizing Content Understanding YouTube's CPM</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-in-2024-perfect-selfies-tips-for-instagram-story-magnification/"><u>[Updated] In 2024, Perfect Selfies Tips for Instagram Story Magnification</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-in-2024-precision-editing-mastery-proven-pc-strategies-for-youtube-success/"><u>[Updated] In 2024, Precision Editing Mastery Proven PC Strategies for YouTube Success</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-masterclass-in-effortless-video-acquisition/"><u>[Updated] Masterclass in Effortless Video Acquisition</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-outlining-operational-offshoots-for-2024/"><u>[Updated] Outlining Operational Offshoots for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-unleashing-entrepreneurship-on-a-slide-quick-channel-creation-tips-for-your-phone/"><u>[Updated] Unleashing Entrepreneurship on a Slide Quick Channel Creation Tips for Your Phone</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-unleashing-popularity-how-to-make-a-youtube-hit/"><u>[Updated] Unleashing Popularity How to Make a YouTube Hit</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-youtubes-flawless-beauty-masterclass-skincare-hairdos-and-cosmetics-for-2024/"><u>[Updated] YouTube's Flawless Beauty Masterclass Skincare, Hairdos & Cosmetics for 2024</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/2024-approved-full-time-careers-meet-video-content-a-harmonious-mix/"><u>2024 Approved Full-Time Careers Meet Video Content A Harmonious Mix</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/approved-hottest-youtube-music-playback-responses-23/"><u>2024 Approved Hottest YouTube Music Playback Responses '23</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/approved-incredible-mobile-photography-and-videography-apps-for-iosandroid/"><u>2024 Approved Incredible Mobile Photography & Videography Apps for iOS/Android</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/2024-approved-pixelpuzzle-pro-crafting-videos-for-instagallery/"><u>2024 Approved PixelPuzzle Pro Crafting Videos for InstaGallery</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/approved-revolutionize-your-online-video-content-expert-tips-on-youtube-live-with-wirecast/"><u>2024 Approved Revolutionize Your Online Video Content Expert Tips on Youtube Live with WireCast</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/2024-approved-ultimate-luxury-cosmetics-series/"><u>2024 Approved Ultimate Luxury Cosmetics Series</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/approved-unlock-youtubes-full-potential-top-6-tactics-for-improved-viewership-retention/"><u>2024 Approved Unlock YouTube's Full Potential Top 6 Tactics for Improved Viewership Retention</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/3-best-tools-to-hard-reset-vivo-x-flip-drfone-by-drfone-reset-android-reset-android/"><u>3 Best Tools to Hard Reset Vivo X Flip | Dr.fone</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/all-about-factory-reset-what-is-it-and-what-it-does-to-your-realme-c67-5g-drfone-by-drfone-reset-android-reset-android/"><u>All About Factory Reset, What Is It and What It Does to Your Realme C67 5G? | Dr.fone</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ng-edge-editing-a-roadmap-for-high-quality-youtube-sounds/"><u>Cutting-Edge Editing A Roadmap for High-Quality YouTube Sounds</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/expert-evaluation-pros-and-cons-of-pioneers-bdr-xd05b-blu-ray-burning-device/"><u>Expert Evaluation: Pros and Cons of Pioneer's BDR-XD05B Blu-Ray Burning Device</u></a></li>
+<li><a href="https://driver-download.techidaily.com/1722971119520-get-the-best-wireless-driver-updates-now-fixed-problems-and-enhanced-speed/"><u>Get the Best Wireless Driver Updates Now: Fixed Problems and Enhanced Speed!</u></a></li>
+<li><a href="https://android-frp.techidaily.com/in-2024-how-to-bypass-google-frp-lock-from-oppo-a1x-5g-devices-by-drfone-android/"><u>In 2024, How to Bypass Google FRP Lock from Oppo A1x 5G Devices</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-contacts-from-motorola-moto-g34-5g-to-iphone-xs11-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Contacts from Motorola Moto G34 5G to iPhone XS/11 | Dr.fone</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-is-fake-gps-location-spoofer-a-good-choice-on-vivo-y02t-drfone-by-drfone-virtual-android/"><u>In 2024, Is Fake GPS Location Spoofer a Good Choice On Vivo Y02T? | Dr.fone</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/24-overcoming-green-tint-in-youtubes-on-mac-a-guide/"><u>In 2024, Overcoming Green Tint in YouTubes on Mac A Guide</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/24-perfect-your-video-edits-step-by-step-on-youtube-cutting/"><u>In 2024, Perfect Your Video Edits Step-by-Step on YouTube Cutting</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/navigating-electronic-markets-trustworthy-tips-from-toms-hardware-experts/"><u>Navigating Electronic Markets: Trustworthy Tips From Tom's Hardware Experts</u></a></li>
+<li><a href="https://smart-video-editing.techidaily.com/new-video-editing-mastery-online-tutorials-for-beginners-and-pros-for-2024/"><u>New Video Editing Mastery Online Tutorials for Beginners and Pros for 2024</u></a></li>
+<li><a href="https://article-files.techidaily.com/pinnacle-spotlight-tapes-for-2024/"><u>Pinnacle Spotlight Tapes for 2024</u></a></li>
+<li><a href="https://data-wizards.techidaily.com/simplify-movie-file-fixes-with-stellar-expertise/"><u>Simplify Movie File Fixes with Stellar Expertise</u></a></li>
+<li><a href="https://article-helps.techidaily.com/smirk-stash-ultimate-guide-to-free-meme-templates/"><u>Smirk Stash Ultimate Guide to FREE Meme Templates</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/sound-enhancing-fb-video-posts-a-comprehensive-guide-for-2024/"><u>Sound-Enhancing FB Video Posts A Comprehensive Guide for 2024</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/the-essence-of-pixiz-crafting-compelling-stills-to-video-transformations-for-2024/"><u>The Essence of Pixiz Crafting Compelling Stills-to-Video Transformations for 2024</u></a></li>
+<li><a href="https://techtrends.techidaily.com/ultimate-guide-to-using-winx-mediatrans-top-app-for-ios-data-transfer-between-iphone-ipad-and-pc/"><u>Ultimate Guide to Using WinX MediaTrans™: Top App for iOS Data Transfer Between iPhone, iPad & PC</u></a></li>
+<li><a href="https://video-creation-software.techidaily.com/updated-final-cut-pro-x-power-user-master-40-time-saving-shortcuts/"><u>Updated Final Cut Pro X Power User Master 40 Time-Saving Shortcuts</u></a></li>
+<li><a href="https://audio-editing.techidaily.com/updated-ultimate-top-pop-tunes-playlist-for-video-production/"><u>Updated Ultimate Top Pop Tunes Playlist for Video Production</u></a></li>
+</ul></div>

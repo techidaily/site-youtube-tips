@@ -1,7 +1,7 @@
 ---
 title: "Mimicking Golden Age Filmmaking in Contemporary Videos"
-date: 2024-09-01T13:49:41.482Z
-updated: 2024-09-02T13:49:41.482Z
+date: 2024-09-06T03:33:50.908Z
+updated: 2024-09-07T03:33:50.908Z
 tags:
   - ai video
   - ai youtube
@@ -20,6 +20,12 @@ thumbnail: https://thmb.techidaily.com/0e72ae7670739d2aa724a5c1676e3ea5eb7af36bc
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2137379/7443" target="_top" id="2137379">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137379" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137379/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ##### Richard Bennett
 
  Mar 27, 2024• Proven solutions
@@ -28,6 +34,18 @@ _“Every accomplishment starts with a decision to try.”_ – A Vintage Though
 
 ![Vintage Videos](https://images.wondershare.com/filmora/article-images/vintage-videos.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1328679">
+					<video width="240" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1328679.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/15852-1328679">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1328679.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1328679%2F15852'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1328679/15852" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 **Vintage videos** are ultimately the retro videos you have ever imagined. The look is highly inspirational in itself. The vintage effect in photography and videos results in a must-see look that everyone wants to capture all day long. The meaning of vintage is 'the time when something of quality was produced.' When something is called retro, it means old, recognized, and essential. Vintage also resembles love apart from videos and photos. All in all, it's a positive and result-oriented thing to carry on in your videos. And this is what we want to mention in this post relating to the creation of vintage videos.
 
 Here are some [vintage-style video ideas](https://tools.techidaily.com/wondershare/filmora/download/) for you to have a look at.
@@ -36,6 +54,12 @@ Here are some [vintage-style video ideas](https://tools.techidaily.com/wondersha
 * [Part 2: How to Create a Stunning Vintage Video?](#part2)
 * [Part 3: Tips to Make Your Vintage Videos Stand Out](#part3)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136613/26400" target="_top" id="2136613">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136613" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136613/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## What to Consider When Shooting a Vintage Video?
 
 Vintage videos are kind of old school vibes and must be shooting accordingly by keeping in mind the following points. These are a sort of expert tips given by photographers based on their practical experience. First of all, you have to understand that a video can be made vintage, but you can't change the actual environment of shooting. Some editing always involves there in every project out there. Still, the tips given below will help you a lot in creating a retro look.
@@ -66,12 +90,30 @@ What you need to get started as both beginner and professional is Wondershare Fi
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<span id="1328683">
+					<video width="200" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1328683.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/15852-1328683">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1328683.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1328683%2F15852'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1328683/15852" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 **Steps for the vintage effect to videos on Wondershare Filmora Video Editor**
 
 **Step 1:** Upload video & make specific changes
 
 ![Vintage Videos](https://images.wondershare.com/filmora/article-images/vintage-videos-1.png)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115932/19272" target="_top" id="2115932">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115932" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115932/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 The very step is to add the video by clicking the + icon. We have added the three **sample videos** from the library of Wondershare Filmora itself. Adjust them in the timeline as per your requirements.
 
 After doing all the essential editing functions, click on the **Effects tab** given at the upper-left corner. Simply type the word Old in the Search tab.
@@ -102,6 +144,18 @@ Now, you need to desaturate the video clip with Ash & Willow filters. We have ty
 
 ![Vintage Videos](https://images.wondershare.com/filmora/article-images/vintage-videos-6.png)
 
+<!-- affiliate ads begin -->
+<span id="1982499">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982499.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982499">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982499.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982499%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982499/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 Then, we have combined the black & white filter with an overlay of Film Reel Horizontal. It will help you sell the effect and make the video look more authentic. However, the only application of Black & White or Ash & Willow filters is not going to make any creative thing in terms of vintage videos. You have to mix overlays with features such as Random Dust or Film Reel Horizontal.
 
 **Step 5:** Apply Black & White and Old Film Color Correction Presets to the video
@@ -111,7 +165,16 @@ You can also access the Advanced color correction Tab of Filmora from the Color 
 ![Vintage Videos](https://images.wondershare.com/filmora/article-images/filmora9-advance-color-correction.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3DSysTools%2BSQL%2BRecovery"><img src="https://www.systoolsgroup.com/box/sql-recovery.png" border="0"></a>
+<a href="https://appsumo.8odi.net/c/5597632/2128843/7443" target="_top" id="2128843">
+  <img src="//a.impactradius-go.com/display-ad/7443-2128843" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2128843/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134233/18498" target="_top" id="2134233">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134233" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134233/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## Tips to Make Your Vintage Videos Stand Out
 
@@ -124,9 +187,6 @@ Following the helpful tips would assist you in creating awesome retro videos.
 * Lower the frame rate or FPS to create an excellent vintage look. You can make it to 18 or 14 FPS depending upon the aesthetic requirements.
 * Keep an eye on black and white filters you have used. It's because more of a black and white can ruin the actual vintage experience.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4694919&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/bccefcc1b1eee9eca3ae4f5c1a281482/products/jutoh-logo-1200x1600.jpg" border="0">Jutoh is an ebook creator for Epub, Kindle and more. It's fast, runs on Windows, Mac, and Linux, comes with a cover design editor, and allows book variations to be created with alternate text, style sheets and cover designs. </a>
-<!-- affiliate ads end -->
 ### Conclusion
 
 So, this is an ultimate tutorial on the creation of vintage videos. We Hope you have admired the steps and our recommended video editing software. Vintage means grand, and thus you should make it amazing as well. It is the reason we have stated all facts regarding the vintage effect in our post above. Wondering how to add such effect in FCPX? check this article:[How to Create a Vignette in Final Cut Pro X?](https://tools.techidaily.com/wondershare/filmora/download/)
@@ -135,9 +195,6 @@ Surely give a read and thank us later!
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://order.glarysoft.com/order/checkout.php?PRODS=4691139&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/SU-200-1.png" border="0">Software Update Pro - Check and update software installed on your computer. </a>
-<!-- affiliate ads end -->
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.

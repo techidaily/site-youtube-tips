@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  How to Make a Thumbnail for Your YouTube Free Easily!\""
-date: 2024-07-12T23:21:35.197Z
-updated: 2024-07-13T23:21:35.197Z
+date: 2024-09-06T03:32:09.185Z
+updated: 2024-09-07T03:32:09.185Z
 tags:
   - ai video
   - ai youtube
@@ -14,6 +14,18 @@ keywords: "YouTube Thumbnails Guide,Create Easy Video Thumbnail,Free Thumbnail D
 thumbnail: https://thmb.techidaily.com/8d6fc5e965f8f403ab26d9d65a1bca0fa8c0fcf476d607d4885f74d57cfde7c9.jpg
 ---
 
+<!-- affiliate ads begin -->
+<span id="1424528">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1424528.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1424528">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424528.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424528%2F16446'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424528/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## The Ultimate Guide to YouTube Thumbnail Crafting
 
 # How to Make a Thumbnail for Your YouTube Free Easily
@@ -34,6 +46,12 @@ Youtube is one of the widely and most used video-sharing platforms all around th
 
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134246/18498" target="_top" id="2134246">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134246" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134246/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## How to make a thumbnail for Youtube using AI Portrait
 
 With time, Filmora brings new and advanced features for its users to equip them with all the necessary tools required for effective and efficient video editing. One of its latest features is AI Portrait. This feature has several uses and benefits. This feature is designed for Gamers, Vlogger, and other related genres to help them make their videos stand out from the crowd and gain more clicks and views. AI Portrait contains several effects that help you make the human element of the video separate from the background and make it more obvious. We can also use the AI Portrait effects to make beautiful and attractive thumbnails for your Youtube. Follow these steps to create a stunning thumbnail for your Youtube videos.
@@ -46,6 +64,12 @@ With time, Filmora brings new and advanced features for its users to equip them 
 
 ![ai-portrait-thumbnail-step2](https://images.wondershare.com/filmora/article-images/ai-portrait-thumbnail-step2.png)
 
+<!-- affiliate ads begin -->
+<a href="https://ursime.pxf.io/c/5597632/2136548/16384" target="_top" id="2136548">
+  <img src="//a.impactradius-go.com/display-ad/16384-2136548" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ursime.pxf.io/i/5597632/2136548/16384" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 **Step 03:** Change the Aspect Ratio to 16:9 if it is not set to it already. 16:9 aspect ratio is the standard size of Youtube thumbnails that represents the best possible results.
 
 ![ai-portrait-thumbnail-step3](https://images.wondershare.com/filmora/article-images/ai-portrait-thumbnail-step4.png)
@@ -54,14 +78,32 @@ With time, Filmora brings new and advanced features for its users to equip them 
 
 ![ai-portrait-thumbnail-step4](https://images.wondershare.com/filmora/article-images/ai-portrait-thumbnail-step4.png)
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134495/18498" target="_top" id="2134495">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134495" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134495/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 **Step 05:** If you want to use your custom background, you can import it into the Filmora by clicking import or dragging and dropping it in the media section.
 
 ![ai-portrait-thumbnail-step5](https://images.wondershare.com/filmora/article-images/ai-portrait-thumbnail-step5.png)
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134229/18498" target="_top" id="2134229">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134229" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134229/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 **Step 06:** Import your video the same way into the media folder of Filmora and drag it into the timeline and place it above your background.
 
 ![ai-portrait-thumbnail-step6](https://images.wondershare.com/filmora/article-images/ai-portrait-thumbnail-step6.png)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115950/19272" target="_top" id="2115950">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115950" border="0" alt="https://techidaily.com" width="468" height="60"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115950/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 **Step 07:** Select your footage, go to the Effects tab and click on AI Portraits. It will open up all the effects related to AI Portraits. These AI Portrait features help you separate the human from a background without using a green screen or anything else.
 
 ![ai-portrait-thumbnail-step7](https://images.wondershare.com/filmora/article-images/ai-portrait-thumbnail-step11.png)
@@ -82,6 +124,12 @@ With time, Filmora brings new and advanced features for its users to equip them 
 
 ![ai-portrait-thumbnail-step11](https://images.wondershare.com/filmora/article-images/ai-portrait-thumbnail-step11.png)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135401/19272" target="_top" id="2135401">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135401" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135401/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 **Step 12:** Once you are satisfied with the final results, click on the Camera icon below the preview screen or press "Ctrl+Alt+S" to take the screenshot.
 
 ![ai-portrait-thumbnail-step12](https://images.wondershare.com/filmora/article-images/ai-portrait-thumbnail-step12.png)
@@ -94,6 +142,18 @@ This article on making a thumbnail for your Youtube is just an idea for you, and
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<span id="1983475">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983475.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983475">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983475.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983475%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983475/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 Shanoon Cox
@@ -121,3 +181,53 @@ Follow @Shanoon Cox
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-zero.techidaily.com/ligning-spotify-selections-for-a-unified-youtube-music-experience/"><u>[New] Aligning Spotify Selections for a Unified YouTube Music Experience</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ultivate-creativity-inspiration-driven-video-titles/"><u>[New] Cultivate Creativity Inspiration-Driven Video Titles</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-investigating-profit-per-viewer-engagement-on-video-platforms/"><u>[New] In 2024, Investigating Profit per Viewer Engagement on Video Platforms</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-reel-your-audience-in-creating-dynamic-reaction-content-on-youtube-2-pov-technique/"><u>[New] In 2024, Reel Your Audience In Creating Dynamic Reaction Content on YouTube (2 POV Technique)</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-sound-savings-guide-youtubers-selection-of-affordable-mics/"><u>[New] In 2024, Sound Savings Guide Youtuber's Selection of Affordable Mics</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-tailor-made-melodies-assembling-your-own-youtube-playlist/"><u>[New] In 2024, Tailor-Made Melodies Assembling Your Own YouTube Playlist</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-unveil-exclusive-video-snippets-all-at-zero-cost/"><u>[New] In 2024, Unveil Exclusive Video Snippets – All at Zero Cost</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-youtube-mastery-elevating-your-channel-with-strategic-spotlight-techniques/"><u>[New] In 2024, YouTube Mastery Elevating Your Channel with Strategic Spotlight Techniques</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-youtube-movie-maker-unleashed-creative-possibilities-explored/"><u>[New] In 2024, YouTube Movie Maker Unleashed Creative Possibilities Explored</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/aking-money-with-youtube-understanding-partner-program-for-2024/"><u>[New] Making Money with YouTube Understanding Partner Program for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ecrets-revealed-the-best-youtube-thumbnails-for-virality/"><u>[New] Secrets Revealed The Best YouTube Thumbnails for Virality</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/urging-views-selecting-best-hashtags-for-yt/"><u>[New] Surging Views Selecting Best Hashtags for YT</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/he-editors-playbook-advanced-pc-methods-for-youtube-mastery-for-2024/"><u>[New] The Editor's Playbook Advanced PC Methods for YouTube Mastery for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/op-hash-tags-skyrocketing-to-6-figure-views-on-youtube-for-2024/"><u>[New] Top Hash Tags Skyrocketing to 6-Figure Views on YouTube for 2024</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/new-tunes-terms-and-copyrights-on-instagram/"><u>[New] Tunes, Terms, and Copyrights on Instagram</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/outube-earnings-guide-policy-overhaul-explained/"><u>[New] YouTube Earnings Guide Policy Overhaul Explained</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-2024-approved-essential-video-promo-tips-for-startups-infographic/"><u>[Updated] 2024 Approved Essential Video Promo Tips for Startups (Infographic)</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/updated-blurring-identity-erasing-faces-from-video-content/"><u>[Updated] Blurring Identity Erasing Faces From Video Content</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-get-hd-quality-quickly-enable-av1-in-youtube-settings-for-2024/"><u>[Updated] Get HD Quality Quickly Enable AV1 in YouTube Settings for 2024</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/updated-in-2024-15-top-rated-screen-capture-tools-to-support-education/"><u>[Updated] In 2024, 15 Top-Rated Screen Capture Tools to Support Education</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-in-2024-is-paying-monthly-for-youtubes-unlimited-access-a-good-deal/"><u>[Updated] In 2024, Is Paying Monthly for YouTube's Unlimited Access a Good Deal?</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-in-2024-snipping-video-time-a-youtube-editors-handbook/"><u>[Updated] In 2024, Snipping Video Time A YouTube Editors' Handbook</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-in-2024-the-ultimate-plan-for-building-your-ideal-youtube-playlist/"><u>[Updated] In 2024, The Ultimate Plan for Building Your Ideal YouTube Playlist</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-in-2024-visual-warmth-in-winter-selecting-the-best-bgs/"><u>[Updated] In 2024, Visual Warmth in Winter Selecting the Best Bgs</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-keyword-proficiency-at-little-to-none-guide-to-the-top-7-youtube-tag-extractor-apps-for-2024/"><u>[Updated] Keyword Proficiency at Little to None Guide to the Top 7 Youtube Tag Extractor Apps for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-seamless-blend-of-text-and-video-without-payment/"><u>[Updated] Seamless Blend of Text & Video Without Payment</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-the-essential-playbook-achieving-peak-video-editing-on-youtube-studio/"><u>[Updated] The Essential Playbook Achieving Peak Video Editing on YouTube Studio</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-the-smooth-watchers-guide-to-pacing-down-videos-on-youtube-60-chars-minor-exception-due-to-title-length-but-provides-rich-context/"><u>[Updated] The Smooth Watcher's Guide to Pacing Down Videos on YouTube (60 Chars, Minor Exception Due to Title Length but Provides Rich Context)</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-unlocking-your-audience-youtube-subscriber-insights/"><u>[Updated] Unlocking Your Audience YouTube Subscriber Insights</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/approved-elevate-your-brand-with-ai-enhanced-naming-solutions/"><u>2024 Approved Elevate Your Brand with AI-Enhanced Naming Solutions</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-evaluating-a-64gb-drive-writable-by-videos/"><u>2024 Approved Evaluating a 64GB Drive' Writable by Videos</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/approved-the-essential-blueprint-for-inspiring-valorant-video-thumbnails/"><u>2024 Approved The Essential Blueprint for Inspiring Valorant Video Thumbnails</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/cing-act-proper-techniques-for-stable-photos-for-2024/"><u>Balancing Act Proper Techniques for Stable Photos for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/vibes-best-dj-template-video-selections/"><u>Club Vibes Best DJ Template Video Selections</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/own-clutter-how-to-efficiently-handle-unwanted-youtube-content-pcmobile-for-2024/"><u>Cut Down Clutter How to Efficiently Handle Unwanted YouTube Content (PC/Mobile) for 2024</u></a></li>
+<li><a href="https://article-helps.techidaily.com/dji-mini-air-2-mix-like-a-pro-20-custom-luts-complimentary-for-2024/"><u>DJI Mini, Air 2 Mix Like a Pro - 20 Custom LUTs Complimentary for 2024</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/everything-you-need-to-know-about-unlocked-apple-iphone-12-mini-by-drfone-ios/"><u>Everything You Need To Know About Unlocked Apple iPhone 12 mini</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/from-silent-to-symphony-essential-steps-for-restoring-conexant-smartaudio-hd-sound-on-window-10-operating-systems/"><u>From Silent to Symphony: Essential Steps for Restoring Conexant SmartAudio HD Sound on Window 10 Operating Systems</u></a></li>
+<li><a href="https://graphic-issues.techidaily.com/gpu-compatibility-windows-11-laptop-confirmed/"><u>GPU Compatibility: Windows 11 Laptop Confirmed</u></a></li>
+<li><a href="https://ai-video.techidaily.com/how-to-convert-video-voice-to-text-online-for-free/"><u>How To Convert Video Voice to Text Online for Free?</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/youtube-mcn-or-not-ultimate-guide/"><u>Join YouTube MCN or Not ULTIMATE Guide</u></a></li>
+<li><a href="https://audio-editing.techidaily.com/new-next-gen-audio-data-organizer-the-ultimate-tagging-app-for-windows-and-mac-users/"><u>New Next-Gen Audio Data Organizer The Ultimate Tagging App for Windows & Mac Users,</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ways-to-download-and-convert-youtubes-audios-as-mp3/"><u>Safe Ways to Download and Convert YouTube's Audios as MP3</u></a></li>
+<li><a href="https://win11.techidaily.com/setting-up-offline-mode-in-microsoft-onedrive/"><u>Setting Up Offline Mode in Microsoft OneDrive</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/egies-for-standing-out-with-the-perfect-yt-brand-dimensions/"><u>Strategies for Standing Out with the Perfect YT Brand Dimensions</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/evelopment-hacks-embedding-youtubes-playlists-effortlessly/"><u>Web Development Hacks Embedding YouTube's Playlists Effortlessly</u></a></li>
+</ul></div>

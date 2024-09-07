@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Skyrocket Your Channel  Navigating Through YouTube Stats for 2024\""
-date: 2024-07-12T23:25:28.363Z
-updated: 2024-07-13T23:25:28.363Z
+date: 2024-09-06T03:27:51.830Z
+updated: 2024-09-07T03:27:51.830Z
 tags:
   - ai video
   - ai youtube
@@ -32,6 +32,12 @@ YouTube data is valuable because it can show you why you aren’t getting more s
 
 In this article, I’m going to show you how to use YouTube Analytics to gain knowledge, take action, and grow your channel.
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2130528/26400" target="_top" id="2130528">
+  <img src="//a.impactradius-go.com/display-ad/26400-2130528" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130528/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **YouTube Analytics:**
 
 1. [Overview](#overview)
@@ -76,6 +82,18 @@ The Overview dashboard breaks down all your key stats. If you want a deeper dive
 
 ![youtube-creator-studio-overview](https://images.wondershare.com/filmora/youtube-creator-studio-overview.jpg)  
   
+<!-- affiliate ads begin -->
+<span id="1155462">
+					<video width="1024" height="576" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1155462.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/14559-1155462">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1155462.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:640px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fpropmoneyinc.pxf.io%2Fc%2F5597632%2F1155462%2F14559'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1155462/14559" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 #### **Personalize Your Overview**
 
 By default, the dashboard will show you the stats from the last 28 days, but you can personalize the time frame to see the data of that specific period.
@@ -86,6 +104,12 @@ By default, the dashboard will show you the stats from the last 28 days, but you
 
 ![data-of-specific-region](https://images.wondershare.com/filmora/data-of-specific-region.jpg)  
   
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135353/19272" target="_top" id="2135353">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135353" border="0" alt="https://techidaily.com" width="180" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135353/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 Note: You will be able to change the time frame and region for all the data within YouTube Analytics.
   
 #### **See Your Top Performing Videos In Overview**
@@ -122,6 +146,12 @@ If you have recently shared a new video, you should log into the Realtime dashbo
 
 ![most-recently-published-videos](https://images.wondershare.com/filmora/most-recently-published-videos.jpg)  
   
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137205/26400" target="_top" id="2137205">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137205" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137205/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 #### **See How and Where Your Videos Are Being Viewed At the Moment**
 
 If you want to find out how many people have viewed your videos from a mobile device or how big your audience currently is, you can do that in the Realtime report.
@@ -154,6 +184,12 @@ There are 3 ways to change the timeline:
 
 1. Dropdown menu ![revenue-drop-down-menu](https://images.wondershare.com/filmora/revenue-drop-down-menu.jpg)  
   
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134237/18498" target="_top" id="2134237">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134237" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134237/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 1. Calendar ![revenue-calendar](https://images.wondershare.com/filmora/revenue-calendar.jpg)  
   
 1. Slide Bar ![slide-bar-line-chart](https://images.wondershare.com/filmora/slide-bar-line-chart.jpg)  
@@ -162,6 +198,12 @@ You can also change how you view your data, whether Daily, Weekly, Monthly, etc.
 
 ![slide-bar-daily-view](https://images.wondershare.com/filmora/slide-bar-daily-view.jpg)  
   
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135351/19272" target="_top" id="2135351">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135351" border="0" alt="https://techidaily.com" width="125" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135351/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 #### **Identify Your Highest Earning Videos**
 
 In the Revenue report, you can see which videos are earning you the most. Consider how these videos are successful:
@@ -202,6 +244,18 @@ This tells you that while Views may be an important metric, it won’t affect yo
 
 ![the-ad-rates-report](https://images.wondershare.com/filmora/the-ad-rates-report.jpg)  
   
+<!-- affiliate ads begin -->
+<span id="1374819">
+					<video width="200" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1374819.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/15852-1374819">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1374819.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1374819%2F15852'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1374819/15852" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 **YouTube Ad Revenue:** This is the estimated gross total of all the money you made from ads sold via Google and Google partners.
 
 **Estimated Monetized Playbacks:** This is the number of times your audience is shown an ad.
@@ -218,6 +272,12 @@ This allows you to not only see the estimated earnings but also how many times t
 
 ![monetized-videos](https://images.wondershare.com/filmora/monetized-videos.jpg)  
   
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2118323/7443" target="_top" id="2118323">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118323" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118323/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 #### **See How Each Ad Type Is Performing Within Individual Video**
 
 Click into Ad Type and you will be able to see the performance of [different types of Ads](https://support.google.com/youtube/answer/2467968?hl=en) (skippable video ads, display ads, bumper ads, and non-skippable video ads.)
@@ -240,6 +300,12 @@ YouTube puts a lot of weight on this metric because they know that the more time
 
 ![the-aggregated-time](https://images.wondershare.com/filmora/the-aggregated-time.jpg)  
   
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2130874/7443" target="_top" id="2130874">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130874" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130874/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 In the graph, you will also be able to see the combined Views of all your videos, as well as the segmented performance of YouTube Red viewers.
 
 YouTube Red is YouTube’s subscription plan. It is currently only available in Australia, Korea, Mexico, New Zealand, and the United States.
@@ -285,6 +351,12 @@ While you should aim to have 100% audience retention, if you can get an average 
 
 ![average-view-duration](https://images.wondershare.com/filmora/average-view-duration.jpg)  
   
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139107/17108" target="_top" id="2139107">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139107" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139107/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 #### **See Audience Retention of Individual Videos**
 
 **Absolute Audience Retention:** This report shows you the number of views at every point in the video as a percentage. This will let you know which part of the video is most popular, which part is causing a big drop off, and which part viewers are skipping to or rewatching.
@@ -307,6 +379,12 @@ In the example below, we see that there is a peak at the point in this video whe
 
 ![how-to-use-audience-retention](https://images.wondershare.com/filmora/how-to-use-audience-retention.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139113/17108" target="_top" id="2139113">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139113" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139113/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 Knowing this, for the next video you make, you can better anticipate where your viewers are going to need more time on a specific part or whether you should skip ahead to something more interesting.
 
 **7\. Demographics**
@@ -327,10 +405,22 @@ You will also see the Watch Time percentage that each video gets in comparison w
 
 ![data-split-by-age](https://images.wondershare.com/filmora/data-split-by-age.jpg)  
   
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123733/7443" target="_top" id="2123733">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123733" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123733/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 Data Split by Gender:
 
 ![data-split-by-gender](https://images.wondershare.com/filmora/data-split-by-gender.jpg)  
   
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135349/19272" target="_top" id="2135349">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135349" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135349/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 #### **See Geographic Distribution of Different Demographics**
 
 Not only will you be able to see which region the majority of your viewerships are from, but you can also segment and compare by demographics. This will give you a more insightful view of how your channel is performing across the world for different people.
@@ -363,12 +453,24 @@ If your video is only promoted organically your views will likely be coming from
 
 ![playback-locations](https://images.wondershare.com/filmora/playback-locations.jpg)  
   
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134491/18498" target="_top" id="2134491">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134491" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134491/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 #### **Which External Source Are Your Videos Being Watched**
 
 By clicking into the Embedded in External Websites and Apps report, you’ll be able to see all the different websites and apps that your video is featured on. This will give you a good indication of which sites and apps are driving the most views.
 
 ![external-source](https://images.wondershare.com/filmora/external-source.jpg)  
   
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137207/26400" target="_top" id="2137207">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137207" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137207/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 #### **How to Use Playback Locations Report**
 
 Knowing where your videos are being played back is important, especially if you are getting a lot of views from an external source.
@@ -411,6 +513,12 @@ If you have a new video coming out and you want to promote it, understanding whe
 
 ![what-devices-your-viewers-are-watching-from](https://images.wondershare.com/filmora/what-devices-your-viewers-are-watching-from.jpg)  
   
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134223/18498" target="_top" id="2134223">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134223" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134223/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 The way viewers watch content on their mobile phones is very different from the way they watch on television. By understanding how the majority of your viewers are watching your content, you can better design and structure your video.
 
 For example, if you see that you have a large following that watches your content on mobile, then it might not be a good idea to load your video with too much text, as it’ll be hard for them to read.
@@ -435,10 +543,34 @@ In the Subscribers report, you can see where most of your subscribers came from 
 
 ![where-people-clicked-subscribe](https://images.wondershare.com/filmora/where-people-clicked-subscribe.jpg)  
   
+<!-- affiliate ads begin -->
+<span id="1770776">
+					<video width="240" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1770776.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/20702-1770776">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1770776.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftokenmetrics.sjv.io%2Fc%2F5597632%2F1770776%2F20702'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1770776/20702" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 If you see that you are getting a lot of conversions from the YouTube Watch Page, you can dig in and see which video specifically you should give credit to for earning your subscribers — and which ones are causing people to unsubscribe.
 
 ![analyzing-conversion](https://images.wondershare.com/filmora/analyzing-conversion.jpg)  
   
+<!-- affiliate ads begin -->
+<span id="1983446">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983446.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983446">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983446.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983446%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983446/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 #### **Find Out Which YouTube Keywords Are Leading to Subscriptions**
 
 Click into YouTube search to see the most popular search terms that have lead to people subscribing to your channel.
@@ -465,6 +597,18 @@ In addition to seeing the total Likes and Dislikes your channel received, in thi
 
 ![likes-and-dislikes](https://images.wondershare.com/filmora/likes-and-dislikes.jpg)  
   
+<!-- affiliate ads begin -->
+<span id="1424528">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1424528.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1424528">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424528.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424528%2F16446'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424528/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 #### **Compare Likes and Dislikes with Other Metrics**
 
 See if there is a correlation between the channel’s performance and how viewers give Likes and Dislikes. Does increasing views get you more likes? Did a dip in views cause people to stop liking your videos?
@@ -479,6 +623,12 @@ Identify the days you got a lot of Likes or Dislikes, and ask, was there somethi
 
 ![date-you-got-the-most-likes-and-dislikes](https://images.wondershare.com/filmora/date-you-got-the-most-likes-and-dislikes.jpg)  
   
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2135475/26400" target="_top" id="2135475">
+  <img src="//a.impactradius-go.com/display-ad/26400-2135475" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2135475/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 #### **Compare Subscriber vs Non-Subscriber Likes and Dislikes**
 
 Knowing how your subscribers and non-subscribers are responding to your content will give you a good idea at how effective your video is at delighting those that know your content well, and those that are newer to your videos.
@@ -499,6 +649,12 @@ Having videos added to playlists is a good thing because it increases the chance
 
 ![videos-in-playlists](https://images.wondershare.com/filmora/videos-in-playlists.jpg)  
   
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134492/18498" target="_top" id="2134492">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134492" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134492/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 #### **See Which Video Is In The Most Playlists**
 
 By having a report to see which videos have been added to the playlist, you can see that there is an interest in this type of content. With this knowledge, you can decide that perhaps the audience may be interested in a series around this topic.
@@ -511,6 +667,12 @@ Identify if there are any direct or indirect effects of having videos in the pla
 
 ![correalation-between-videos-in-playlist-and-watch-time](https://images.wondershare.com/filmora/correalation-between-videos-in-playlist-and-watch-time.jpg)  
   
+<!-- affiliate ads begin -->
+<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/2137972/21526" target="_top" id="2137972">
+  <img src="//a.impactradius-go.com/display-ad/21526-2137972" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://zebaoaffiliateprogram.pxf.io/i/5597632/2137972/21526" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 #### **How to Use Videos in Playlist**
 
 The Videos in the Playlist report give you another perspective on the popularity of videos. Unlike Views or Watch Time, adding a video to a playlist means that the audience will likely watch it again, as they are saving it amongst related content or as a favorite video.
@@ -539,6 +701,12 @@ However, there are also benefits of using an external analytics tool like [Sotre
 
 ![how-to-use-comments-report](https://images.wondershare.com/filmora/how-to-use-comments-report.jpg)  
   
+<!-- affiliate ads begin -->
+<a href="https://review-au.sjv.io/c/5597632/2098702/14409" target="_top" id="2098702">
+  <img src="//a.impactradius-go.com/display-ad/14409-2098702" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098702/14409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 **16\. Sharing**
 
 #### **See How Many Times Your Videos Have Been Shared**
@@ -565,6 +733,12 @@ By comparing Shares to other metrics such as Views and Watch Time, you can see i
 
 ![compare-sharing-to-views](https://images.wondershare.com/filmora/compare-sharing-to-views.jpg)  
   
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123750/7443" target="_top" id="2123750">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123750" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123750/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 #### **How to Use Sharing Report**
 
 Understand what videos you create are more likely to get shares. If you are making a lot of how-to videos, a lot of people might be searching for the content, but unless it is highly relevant, it won’t get shared. The type of content that gets shared are the ones that [have an interesting story](https://tools.techidaily.com/wondershare/filmora/download/) and delights people.
@@ -587,12 +761,24 @@ This report allows you to see which type of annotations are performing the best 
 
 ![compare-performance-of-different-annotations](https://images.wondershare.com/filmora/compare-performance-of-different-annotations.jpg)  
   
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115944/19272" target="_top" id="2115944">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115944" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115944/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 #### **See Annotation Performance of a Specific Video**
 
 Click into a specific video to see which type of annotations are getting engagement and at what time it is happening. If you see that many annotation clicks are happening at a certain point in your video, going forward with your new videos that is where you can insert it.
 
 ![annotation-performance-of-a-specific-video](https://images.wondershare.com/filmora/annotation-performance-of-a-specific-video.jpg)  
   
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2126492/26400" target="_top" id="2126492">
+  <img src="//a.impactradius-go.com/display-ad/26400-2126492" border="0" alt="https://techidaily.com" width="640" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2126492/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 #### **How to Use Annotations**
 
 By finding out when in the video your audience engages with annotations and what type of annotations performs the best, you will have more insights on designing your videos and where to position the annotations to get the optimal results.
@@ -609,12 +795,24 @@ Are viewers more interested in watching more videos or are they wanting to read 
 
 ![card-type](https://images.wondershare.com/filmora/card-type.jpg)  
   
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137225/26400" target="_top" id="2137225">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137225" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137225/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 #### **Find Correlation Between On-Screen Content and Click-worthy Link**
 
 See what is happening on screen that is making the card more click-worthy, this can help you plan out your next video so that you direct your viewers' attention to the clickable card teaser so they see it.
 
 ![on-screen-content](https://images.wondershare.com/filmora/on-screen-content.jpg)![click-worthy-link](https://images.wondershare.com/filmora/click-worthy-link.jpg)  
   
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137218/26400" target="_top" id="2137218">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137218" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137218/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 #### **How to Use Cards Report**
 
 This report helps you understand the different cards and how they are performing within your videos so that you can better plan your content to increase the chances of your audience engaging with your cards.
@@ -635,12 +833,30 @@ In this report, you can see which End Screen Element is driving the most clicks 
 
 ![performance-of-each-end-screen-elements](https://images.wondershare.com/filmora/performance-of-each-end-screen-elements.jpg)  
   
+<!-- affiliate ads begin -->
+<span id="1531882">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1531882.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1531882">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1531882.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1531882%2F16446'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1531882/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 #### **See Which End Screen Element Is Most Popular Within The Same Video**
 
 Because you can have multiple elements in the End Screen, you would want to see which one is performing the best.
 
 ![most-popular-screen-elements-within-the-same-video](https://images.wondershare.com/filmora/most-popular-screen-elements-within-the-same-video.jpg)  
   
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2118320/7443" target="_top" id="2118320">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118320" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118320/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 #### **See Which Videos YouTube Chooses As Best For Viewers**
 
 In this report, you can also see the performance of different End Screen Element Types.
@@ -653,6 +869,12 @@ By clicking into the Best for Viewer section you can see the top-performing vide
 
 ![top-performing-videos-that-youtube-suggest](https://images.wondershare.com/filmora/top-performing-videos-that-youtube-suggest.jpg)  
   
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134243/18498" target="_top" id="2134243">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134243" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134243/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 #### **How to Use The End Screens Report**
 
 The End Screens report is great for letting you know which of your existing content the audience is interested in seeing after they finished watching one of your videos. As you learn more about your viewers and accumulate more videos, with the help of the End Screens report, you can determine which videos to use to increase Views and Watch Time.
@@ -671,6 +893,12 @@ If you want to find a video editing solution that empowers your imagination and 
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115947/19272" target="_top" id="2115947">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115947" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115947/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
@@ -696,3 +924,65 @@ Follow @Richard Bennett
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-tips.techidaily.com/ultivate-creativity-inspiration-driven-video-titles/"><u>[New] Cultivate Creativity Inspiration-Driven Video Titles</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-endless-viewing-loop-your-iphone-videos-today/"><u>[New] In 2024, Endless Viewing Loop Your iPhone Videos Today</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-instantly-accessible-downloading-youtube-playlists-effortlessly/"><u>[New] In 2024, Instantly Accessible Downloading YouTube Playlists Effortlessly</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-keywords-in-the-world-of-selling-monetized-youtube-channels/"><u>[New] In 2024, Keywords in the World of Selling Monetized Youtube Channels</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-meeting-mastery-streaming-google-meet-directly-to-youtube/"><u>[New] In 2024, Meeting Mastery Streaming Google Meet Directly to YouTube</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-in-2024-snapchat-business-model-101-how-to-turn-snaps-into-dollars/"><u>[New] In 2024, Snapchat Business Model 101 How to Turn Snaps Into Dollars</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-top-8-proven-techniques-to-amplify-content/"><u>[New] In 2024, Top 8 Proven Techniques to Amplify Content</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-unveiling-the-leading-free-stock-video-and-image-archives/"><u>[New] In 2024, Unveiling the Leading Free Stock Video and Image Archives</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-verifying-your-youtube-sign-in-details/"><u>[New] In 2024, Verifying Your YouTube Sign-In Details</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-your-ultimate-manual-for-opting-into-youtube-premium/"><u>[New] In 2024, Your Ultimate Manual for Opting Into YouTube Premium</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-youtube-movie-maker-unleashed-creative-possibilities-explored/"><u>[New] In 2024, YouTube Movie Maker Unleashed Creative Possibilities Explored</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/new-mastering-the-art-of-live-image-capturing-on-screens/"><u>[New] Mastering the Art of Live Image Capturing on Screens</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/coreboard-the-best-video-to-mp3-convertors-for-2024/"><u>[New] Scoreboard The Best Video to Mp3 Convertors for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ecrets-revealed-the-best-youtube-thumbnails-for-virality/"><u>[New] Secrets Revealed The Best YouTube Thumbnails for Virality</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/urging-views-selecting-best-hashtags-for-yt/"><u>[New] Surging Views Selecting Best Hashtags for YT</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/new-the-art-of-making-videos-go-viral-on-tiktok-with-these-quotes-for-2024/"><u>[New] The Art of Making Videos Go Viral on TikTok with These Quotes for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/urn-your-youtube-snippets-into-memorable-gifs-for-2024/"><u>[New] Turn Your YouTube Snippets Into Memorable GIFs for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/outube-earnings-guide-policy-overhaul-explained/"><u>[New] YouTube Earnings Guide Policy Overhaul Explained</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-2024-approved-essential-video-promo-tips-for-startups-infographic/"><u>[Updated] 2024 Approved Essential Video Promo Tips for Startups (Infographic)</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-2024-approved-snapchat-for-mac-quick-installation-tips/"><u>[Updated] 2024 Approved Snapchat for MAC Quick Installation Tips</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-beginners-tutorial-setting-up-your-youtube-presence-for-2024/"><u>[Updated] Beginner's Tutorial Setting Up Your YouTube Presence for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-from-vids-to-dollars-navigating-youtubes-monetization-landscape/"><u>[Updated] From Vids to Dollars Navigating YouTube's Monetization Landscape</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-how-to-add-auto-captions-to-instagram-stories-and-reels-in-2024/"><u>[Updated] How to Add Auto Captions to Instagram Stories and Reels, In 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-in-2024-snipping-video-time-a-youtube-editors-handbook/"><u>[Updated] In 2024, Snipping Video Time A YouTube Editors' Handbook</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-in-2024-viral-vortex-a-guide-to-powerful-social-media-tags/"><u>[Updated] In 2024, Viral Vortex A Guide to Powerful Social Media Tags</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-in-2024-visual-warmth-in-winter-selecting-the-best-bgs/"><u>[Updated] In 2024, Visual Warmth in Winter Selecting the Best Bgs</u></a></li>
+<li><a href="https://video-capture.techidaily.com/updated-live-stream-perfection-ranking-the-best-recorder-gadgets-in-tech/"><u>[Updated] Live Stream Perfection Ranking the Best Recorder Gadgets in Tech</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-mastering-media-integration-adding-online-yt-videos-to-ppts-for-2024/"><u>[Updated] Mastering Media Integration Adding Online YT Videos to PPTs for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-mastering-privacy-in-media-cutting-out-unwanted-visibility/"><u>[Updated] Mastering Privacy in Media Cutting Out Unwanted Visibility</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-maximizing-your-youtube-earnings-with-smart-tactics/"><u>[Updated] Maximizing Your YouTube Earnings with Smart Tactics</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-mind-matters-top-educational-youtube-picks-for-2024/"><u>[Updated] Mind Matters Top Educational YouTube Picks for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-step-by-step-tutorial-broadcasting-360-video-on-youtube-live/"><u>[Updated] Step-by-Step Tutorial Broadcasting 360 Video on YouTube Live</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-streaming-success-new-youtube-monetization-rules-for-2024/"><u>[Updated] Streaming Success New YouTube Monetization Rules for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-the-core-elements-in-asmr-visual-media/"><u>[Updated] The Core Elements in ASMR Visual Media</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-the-elite-club-of-youtubes-big-bucks-for-2024/"><u>[Updated] The Elite Club of YouTube's Big Bucks for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-the-essential-playbook-achieving-peak-video-editing-on-youtube-studio/"><u>[Updated] The Essential Playbook Achieving Peak Video Editing on YouTube Studio</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-youtubers-toolkit-essential-setup-guidelines/"><u>[Updated] Youtubers' Toolkit Essential Setup Guidelines</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/2024-approved-advanced-subtitling-mastering-the-art-of-srt-editing-on-apple-systems/"><u>2024 Approved Advanced Subtitling Mastering the Art of SRT Editing on Apple Systems</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/approved-beats-and-bands-how-to-upload-music-online/"><u>2024 Approved Beats & Bands How to Upload Music Online</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/2024-approved-uncovering-secrets-in-instagram-story-watchers/"><u>2024 Approved Uncovering Secrets in Instagram Story Watchers</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/2024-approved-unveiling-your-images-true-self-a-canva-step-by-step/"><u>2024 Approved Unveiling Your Image’s True Self A Canva Step-by-Step</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/tlessly-post-videos-on-youtube-with-our-expert-guide/"><u>Effortlessly Post Videos on YouTube with Our Expert Guide</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/game-enhancing-screens-top-5-for-ps5-and-xbox-gamers-for-2024/"><u>Game-Enhancing Screens Top 5 for PS5 & Xbox Gamers for 2024</u></a></li>
+<li><a href="https://change-location.techidaily.com/how-to-stop-life360-from-tracking-you-on-realme-gt-neo-5-drfone-by-drfone-virtual-android/"><u>How to Stop Life360 from Tracking You On Realme GT Neo 5? | Dr.fone</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/how-to-turn-off-google-location-to-stop-tracking-you-on-poco-c55-drfone-by-drfone-virtual-android/"><u>How to Turn Off Google Location to Stop Tracking You on Poco C55 | Dr.fone</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/in-2024-add-videos-to-youtube-playlist/"><u>In 2024, Add Videos to YouTube Playlist</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/24-discover-new-heights-top-10-adventure-channels/"><u>In 2024, Discover New Heights Top 10 Adventure Channels</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-how-to-send-and-fake-live-location-on-facebook-messenger-of-your-poco-f5-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How to Send and Fake Live Location on Facebook Messenger Of your Poco F5 5G | Dr.fone</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/24-implementing-youtubes-custom-markup-guide/"><u>In 2024, Implementing YouTube's Custom Markup Guide</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/24-video-sharing-techniques-from-youtube-to-insta/"><u>In 2024, Video Sharing Techniques From YouTube to Insta</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/24-youtube-movie-maker-unleashed-creative-possibilities-explored/"><u>In 2024, YouTube Movie Maker Unleashed Creative Possibilities Explored</u></a></li>
+<li><a href="https://win-blog.techidaily.com/resolving-the-microsoft-edge-crashes-on-windows-11-tips-and-tricks-applied/"><u>Resolving the Microsoft Edge Crashes on Windows 11: Tips and Tricks Applied</u></a></li>
+<li><a href="https://games-able.techidaily.com/step-by-step-linking-of-console-controllers-on-mobile/"><u>Step-By-Step Linking of Console Controllers on Mobile</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/top-picks-premium-iphone-tune-selectors/"><u>Top Picks Premium iPhone Tune Selectors</u></a></li>
+<li><a href="https://article-files.techidaily.com/unleash-your-devices-potential-how-to-download-and-customize-whatsapp-ringtones-for-2024/"><u>Unleash Your Device's Potential How to Download and Customize WhatsApp Ringtones for 2024</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/unlocking-your-digital-cameras-potential-for-2024/"><u>Unlocking Your Digital Camera's Potential for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/king-your-youtube-monetization-potential-essential-view-numbers/"><u>Unlocking Your YouTube Monetization Potential Essential View Numbers</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/webcam-wonders-innovative-home-tech-use/"><u>Webcam Wonders Innovative Home Tech Use</u></a></li>
+</ul></div>

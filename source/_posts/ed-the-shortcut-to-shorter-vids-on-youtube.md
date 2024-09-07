@@ -1,7 +1,7 @@
 ---
 title: "[Updated] The Shortcut to Shorter Vids on YouTube"
-date: 2024-09-01T13:52:21.013Z
-updated: 2024-09-02T13:52:21.013Z
+date: 2024-09-06T03:33:47.852Z
+updated: 2024-09-07T03:33:47.852Z
 tags:
   - ai video
   - ai youtube
@@ -20,6 +20,12 @@ thumbnail: https://thmb.techidaily.com/f17f33138f47cc809c1c7740ec4a954bd7d355028
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139113/17108" target="_top" id="2139113">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139113" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139113/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ##### Richard Bennett
 
  Mar 27, 2024• Proven solutions
@@ -32,10 +38,28 @@ A Better Alternative on How to Edit YouTube Video Length - [Wondershare Filmora]
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<span id="1977028">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1977028.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1977028">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977028.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977028%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977028/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 For instance, the application is offering non-linear ripple video editing. This is going to allow you to combine multiple video clips and pin them together conveniently. What is more, you can also apply PIP and Green Screen professional effects with just a few clicks. Sure, the YouTube video editor is a perfect solution for those who don't want to achieve professional quality, but if you do, Wondershare Filmora is without a doubt the far better alternative. This is something that's going to enable you to edit and re-touch your videos as well as to size them appropriately. Instead of dragging two bars together, you will be able to touch every single frame and size it according to your own particular needs. This is going to result in flawless videos.
 
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135365/19272" target="_top" id="2135365">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135365" border="0" alt="https://techidaily.com" width="125" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135365/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## How to Edit YouTube Video Length Using the built-in Video Editor
 
 The YouTube video editor is easy to use, and you can easily learn how to do all sorts of changes to your video. Let's see the things that you need to go through in order to edit the length.
@@ -46,6 +70,12 @@ The YouTube video editor is easy to use, and you can easily learn how to do all 
 
 ![Locate YouTube Video Editor](https://images.wondershare.com/filmora/article-images/add-music-to-youtube-video-6.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123735/7443" target="_top" id="2123735">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123735" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123735/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 In order to do so, you would have to go ahead and login into your account. Then, go to the “My Channel” panel and select the video that you want to cut. Once you've done this, click on the “Video manager” option and click on the “create” tab which should be located on the right side for the page. There, you will be able to find the “Video Editor”. Of course, you can also add “/editor” to YouTube's URL, and you would be good to go.
 
 #### Step 2 Import Your Video
@@ -54,12 +84,24 @@ Once you've done all of the above, you would have to drag your video in order to
 
 ![drag video to YouTube timeline](https://images.wondershare.com/filmora/article-images/drag-video-to-youtube-timeline.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134243/18498" target="_top" id="2134243">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134243" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134243/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 #### Step 3 Edit the Length
 
 This is the part where you actually get to edit the length of your video. In order to do so effectively, you have to drag the bar at either end of your clip towards the other end in order to shorten the clip conveniently.
 
 ![edit video length in youtube](https://images.wondershare.com/filmora/article-images/edit-video-length-in-youtube.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115910/19272" target="_top" id="2115910">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115910" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115910/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 What is more, if you want to increase the length, you have to drag the bar to the opposite end – outwards. There is going to be an indicator which is going to appear at the bottom of the clip, and it's going to show you the overall duration of the file, and it's going to adjust itself as you slide the bars accordingly.
 
 #### Step 4 Save the Clip
@@ -130,7 +172,3 @@ Follow @Richard Bennett
 <li><a href="https://youtube-tips.techidaily.com/blueprint-for-a-smooth-youtube-to-facebook-content-flow/"><u>Your Blueprint for a Smooth YouTube to Facebook Content Flow</u></a></li>
 <li><a href="https://youtube-tips.techidaily.com/be-to-dailymotion-transferring-videos-seamlessly/"><u>YouTube to Dailymotion  Transferring Videos Seamlessly</u></a></li>
 </ul></div>
-
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4727541&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/5f4f7141b65a730b4efb0e0d51f63e94/products/copy_copy_forexrobotronbox.gif" border="0">Forex Robotron Gold Package</a>
-<!-- affiliate ads end -->
