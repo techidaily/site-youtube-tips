@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Mastering Shots  A Vlogger’s Lens Compendium\""
-date: 2024-07-12T23:11:10.485Z
-updated: 2024-07-13T23:11:10.485Z
+date: 2024-09-11T07:59:31.094Z
+updated: 2024-09-12T07:59:31.094Z
 tags:
   - ai video
   - ai youtube
@@ -39,6 +39,13 @@ In this article, I’m going to help you figure that out.
 * [Part 6: Vlogging With a Fast Lens](#VloggingWithAFastLens)
 * [Part 7: Optical Image Stabilization](#OpticalImageStabilization)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115925/19272" target="_top" id="2115925">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115925" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115925/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Three Focal Length Groups: Wide, Standard, Telephoto
 
 There are three main ranges in focal lengths that camera lenses can be categorized into wide, standard, and telephoto.
@@ -54,6 +61,19 @@ With standard lenses or normal lenses, you won’t get the stretched out objects
 #### Telephoto Lens
 
 Out of all the other ranges in focal lengths, telephoto lenses will appear the most zoomed in. This can be beneficial for the shooter who wants to get a closer shot of a scene without having to physically be in close proximity to the scene. Objects that are further away in the background also appear larger and closer than they would appear on wide-angle or standard lenses.
+
+<!-- affiliate ads begin -->
+<span id="2127886">
+					<video width="576" height="1024" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/2127886.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/18498-2127886">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/2127886.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Funicoeye.pxf.io%2Fc%2F5597632%2F2127886%2F18498'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/2127886/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Vlogging With Each Focal Length Group
 
@@ -77,11 +97,31 @@ As telephoto lenses are even more zoomed in, you’ll need to be even further aw
 
   In the above video, Marcos Rocha compares different focal lengths for talking head videos. Which focal length range do you like the look of?
 
+<!-- affiliate ads begin -->
+<a href="https://aidotcom.pxf.io/c/5597632/2129042/19576" target="_top" id="2129042">
+  <img src="//a.impactradius-go.com/display-ad/19576-2129042" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2129042/19576" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Crop Factor
 
 Focal lengths in camera lenses are measured in millimeters. You can vlog yourself handheld with a 24mm lens on a camera with a full-frame sensor (the sensor is the piece of hardware inside your camera that turns the light it receives into a digital image). But if you use a 24mm lens on a camera with a smaller sensor, like an APS-C sensor or even smaller Micro 4/3 sensor, more of you will get cropped out (see below).
 
  ![Crop Factor](https://images.wondershare.com/filmora/article-images/camera-lenses-crop-factor.jpg)
+
+<!-- affiliate ads begin -->
+<span id="1993650">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1993650.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1993650">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993650.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993650%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993650/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  In order to make up for the cropping that occurs, you will need to use a wider lens on cameras with smaller sensors to get the same shot you’d get with a full-frame camera.
 
@@ -100,6 +140,19 @@ This table shows you the focal lengths needed to achieve the same shot between c
 | Telephoto                   | 100mm      | 63mm  | 50mm      |
 | Telephoto                   | 200mm      | 125mm | 100mm     |
 
+<!-- affiliate ads begin -->
+<span id="1993654">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1993654.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1993654">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993654.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993654%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993654/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Aperture
 ![Camera lenses Aperture](https://images.wondershare.com/filmora/article-images/camera-lenses-aperture.jpg)
 
@@ -112,6 +165,13 @@ This table shows you the focal lengths needed to achieve the same shot between c
 Fast lenses are more expensive because they cost more to produce. There’s a lot more that goes into them, including larger and higher quality glass elements.
 
 But do you even need a fast lens?
+
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139118/17108" target="_top" id="2139118">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139118" border="0" alt="https://techidaily.com" width="468" height="60"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139118/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Vlogging With a Fast Lens
 
@@ -147,14 +207,11 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -163,6 +220,46 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-tips.techidaily.com/0-power-players-youtubes-ladies-in-gaming/"><u>[New] 10 Power Players YouTube's Ladies in Gaming</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/024-approved-adding-tag-to-youtube-video-better-read-this-first/"><u>[New] 2024 Approved Adding Tag to YouTube Video? Better Read This First</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/024-approved-broadcast-excellence-incorrante-video-loops-into-television/"><u>[New] 2024 Approved Broadcast Excellence Incorrante Video Loops Into Television</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/024-approved-creating-captivating-youtube-thumbnails-for-mac-users/"><u>[New] 2024 Approved Creating Captivating YouTube Thumbnails for Mac Users</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/024-approved-decode-and-resolve-youtube-short-errors/"><u>[New] 2024 Approved Decode and Resolve YouTube Short Errors</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/024-approved-elevate-every-story-prime-video-editor-apps-for-android/"><u>[New] 2024 Approved Elevate Every Story Prime Video Editor Apps for Android</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/024-approved-elite-filmmakers-merging-sounds-images/"><u>[New] 2024 Approved Elite Filmmakers Merging Sounds, Images</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/024-approved-enhance-your-channels-voice-dive-into-the-world-of-banner-makers-apps/"><u>[New] 2024 Approved Enhance Your Channel's Voice Dive Into the World of Banner Makers (Apps)</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/024-approved-filmmakers-lounge-app/"><u>[New] 2024 Approved Filmmaker's Lounge App</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/024-approved-finding-the-best-sound-editing-software-for-video-makers/"><u>[New] 2024 Approved Finding the Best Sound Editing Software for Video Makers</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/024-approved-flawless-online-invitation-crafting-youtube-subscription-buttons/"><u>[New] 2024 Approved Flawless Online Invitation Crafting YouTube Subscription Buttons</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/024-approved-from-filming-to-fame-discovering-the-top-10-ladies-on-youtube/"><u>[New] 2024 Approved From Filming to Fame Discovering the Top 10 Ladies on YouTube</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/024-approved-from-raw-footage-to-youtube-a-step-by-step-process-unveiled/"><u>[New] 2024 Approved From Raw Footage to YouTube A Step-by-Step Process Unveiled</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/024-approved-instant-tactics-to-unpredictably-organize-youtube-songs/"><u>[New] 2024 Approved Instant Tactics to Unpredictably Organize YouTube Songs</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/024-approved-mobile-sound-library-explore-the-best-free-downloader-apps-for-youtube/"><u>[New] 2024 Approved Mobile Sound Library Explore the Best Free Downloader Apps for YouTube</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/024-approved-next-level-content-workshop/"><u>[New] 2024 Approved Next Level Content Workshop</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/024-approved-online-aggregators-for-securing-affiliates-on-googles-platform/"><u>[New] 2024 Approved Online Aggregators for Securing Affiliates on Google's Platform</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/024-approved-rapid-growth-tactics-hit-and-maintain-a-stellar-10000-views-mark/"><u>[New] 2024 Approved Rapid Growth Tactics Hit and Maintain a Stellar 10,000 Views Mark</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/024-approved-sound-selection-secrets-top-7-free-effects-for-youtube/"><u>[New] 2024 Approved Sound Selection Secrets Top 7 Free Effects for YouTube</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/024-approved-the-art-of-choosing-perfect-thumbnails/"><u>[New] 2024 Approved The Art of Choosing Perfect Thumbnails</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/024-approved-the-mechanics-behind-youtube-once-a-video-goes-live/"><u>[New] 2024 Approved The Mechanics Behind YouTube Once a Video Goes Live</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/0-free-youtube-banners-come-see-them-all-in-2024/"><u>[New] 50 FREE YouTube Banners - Come See Them All, In 2024</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-drone-goliaths-the-heaviest-load-bearers-listed/"><u>[New] Drone Goliaths The Heaviest Load Bearers Listed</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/new-fine-tuning-team-call-aesthetics-pre-and-post-customization-for-2024/"><u>[New] Fine-Tuning Team Call Aesthetics Pre & Post Customization for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/he-cash-flow-of-creative-content-youtubers-earnings-per-sponsored-video-for-2024/"><u>[New] The Cash Flow of Creative Content Youtuber's Earnings per Sponsored Video for 2024</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/new-trustworthy-tiktok-followers-acquisition-guide/"><u>[New] Trustworthy TikTok Followers Acquisition Guide</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/updated-compre-written-guide-on-incorporating-markup-features-in-youtube/"><u>[Updated] Compre Written Guide on Incorporating Markup Features in YouTube</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/updated-rapid-recording-audio-in-action/"><u>[Updated] Rapid Recording Audio in Action</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/-stars-staggering-fortune-from-youtube-success-for-2024/"><u>Child Star's Staggering Fortune From YouTube Success for 2024</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/expert-analysis-of-the-huion-kamvas-gt-191-pen-display-a-vast-space-for-creativity-unleashed/"><u>Expert Analysis of the Huion Kamvas GT-191 Pen Display – A Vast Space for Creativity Unleashed</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-most-asked-questions-about-pokemon-go-battle-league-rewards-on-apple-iphone-13-pro-drfone-by-drfone-virtual-ios/"><u>In 2024, Most Asked Questions about Pokemon Go Battle League Rewards On Apple iPhone 13 Pro | Dr.fone</u></a></li>
+<li><a href="https://some-skills.techidaily.com/in-2024-streamlining-audacity-for-superior-audio-capture/"><u>In 2024, Streamlining Audacity for Superior Audio Capture</u></a></li>
+<li><a href="https://windows11.techidaily.com/preventing-corruption-write-restoration-in-windows-systems/"><u>Preventing Corruption: Write Restoration in Windows Systems</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/-cash-flow-on-youtube-maximizing-earnings-with-short-videos/"><u>Quick Cash Flow on YouTube Maximizing Earnings with Short Videos</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/-saving-smiles-on-youtube-a-beginners-mac-tutorial-for-2024/"><u>Start Saving Smiles on YouTube A Beginner's Mac Tutorial for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/0-free-youtube-channels-for-exceptional-art-creation/"><u>Top 10 FREE YouTube Channels for Exceptional Art Creation</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/-freefire-techniques-for-gaming-vloggers/"><u>Top 5 FreeFire Techniques for Gaming Vloggers</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/-youtube-outro-makers-lots-of-free-options/"><u>Top 6 YouTube Outro Makers-Lots of FREE Options!</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/-in-your-wallet-from-one-million-youtube-sights-in-2024/"><u>What's In Your Wallet From One Million YouTube Sights, In 2024</u></a></li>
+</ul></div>
 

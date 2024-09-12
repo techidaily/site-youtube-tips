@@ -1,7 +1,7 @@
 ---
 title: "[Updated] In 2024, Maximizing Traffic with Effective YouTube Titles"
-date: 2024-07-12T23:16:04.194Z
-updated: 2024-07-13T23:16:04.194Z
+date: 2024-09-11T07:54:04.756Z
+updated: 2024-09-12T07:54:04.756Z
 tags:
   - ai video
   - ai youtube
@@ -32,6 +32,19 @@ Making better YouTube thumbnails will help you get more views, and knowing the b
 2. [**Tips for Perfect Thumbnails**](#perfect)
 3. [**Making Better Thumbnails for YouTube**](#better)
 
+<!-- affiliate ads begin -->
+<span id="1374820">
+					<video width="200" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1374820.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/15852-1374820">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1374820.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1374820%2F15852'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1374820/15852" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **1\. What's the ideal YouTube thumbnail Size and Dimension?**
 
 An essential thing that every YouTube video developer needs to know is about the selection of the right side of the thumbnail for any video. As per the guidelines circulated by Google itself, the most appropriate size for the thumbnail image is 1280x720 pixels, where the recommended minimal pixel width is 640 pixels. Generally, the 16:9 ratio is considered as an ideal choice for Most of YouTube previews and players.
@@ -41,6 +54,13 @@ Here is one interesting thing that you need to know; the thumbnail of videos app
 **You May Also Like:**
 [Top 12 Best Free YouTube Thumbnail Makers >>](https://tools.techidaily.com/wondershare/filmora/download/)  
 [How to Download YouTube Thumbnail in 3 Ways \[Online/Win/Mac\] >>](https://tools.techidaily.com/wondershare/filmora/download/)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123726/7443" target="_top" id="2123726">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123726" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123726/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **2\. Tips for Perfect Thumbnails**
 
@@ -63,6 +83,13 @@ Mac users need to press Command+Shift+4 and then simply highlight the area that 
 Window users are advised to access Windows Key with Print Screen option to get their desired screenshot.
 
 Once you are ready with your video specific still image, then simply get it uploaded on YouTube using the edit video page.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135367/19272" target="_top" id="2135367">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135367" border="0" alt="https://techidaily.com" width="180" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135367/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## 3\. Making Better Thumbnails for YouTube
 
@@ -94,7 +121,27 @@ If you want to find a video editing solution that empowers your imagination and 
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://download.wondershare.com/filmora9-mac%5Ffull718.zip)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2130891/7443" target="_top" id="2130891">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130891" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130891/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<span id="1977006">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1977006.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1977006">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977006.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977006%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977006/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -102,14 +149,11 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -118,6 +162,37 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-key-audio-enhancement-tools-for-social-media-experts/"><u>[New] In 2024, Key Audio Enhancement Tools for Social Media Experts</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-video-enhanced-slideshow-mastery-with-youtube/"><u>[New] In 2024, Video-Enhanced Slideshow Mastery with YouTube</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/evenue-rising-the-essential-guide-for-youtubers/"><u>[New] Revenue Rising The Essential Guide for YouTubers</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-2024-approved-dailymotion-vs-youtubes-revenue-battle-analysis/"><u>[Updated] 2024 Approved Dailymotion vs YouTubes Revenue Battle Analysis</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-2024-approved-invigorate-clips-with-top-winter-backdrop-choices/"><u>[Updated] 2024 Approved Invigorate Clips with Top Winter Backdrop Choices</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-2024-approved-mastering-desktopmobile-adjust-youtube-video-pace/"><u>[Updated] 2024 Approved Mastering Desktop/Mobile Adjust YouTube Video Pace</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-elevate-your-channelenas-expensive-check-out-our-11-free-name-generators-guide/"><u>[Updated] Elevate Your Channel'enas Expensive? Check Out Our 11 Free Name Generators Guide</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-facebook-video-downloader-application-for-mobilewinmac/"><u>[Updated] Facebook Video Downloader Application for Mobile/Win/Mac</u></a></li>
+<li><a href="https://facebook-video-files.techidaily.com/updated-in-2024-effortless-facebook-live-streams-from-your-smartphone/"><u>[Updated] In 2024, Effortless Facebook Live Streams From Your Smartphone</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-in-2024-instant-movie-magician/"><u>[Updated] In 2024, Instant Movie Magician</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-investigating-how-tseries-makes-money-with-youtube-viewers/"><u>[Updated] Investigating How TSeries Makes Money with YouTube Viewers</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-live-video-magic-broadcast-youtube-secrets-using-obs/"><u>[Updated] Live Video Magic Broadcast Youtube Secrets Using OBS</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-mastering-yt-analytics-counting-eyeballs-and-cash-for-2024/"><u>[Updated] Mastering YT Analytics Counting Eyeballs & Cash for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-your-portal-to-successful-online-marketing-our-showcase-of-over-50-free-banners-awaits-you/"><u>[Updated] Your Portal to Successful Online Marketing - Our Showcase of Over 50 Free Banners Awaits You!</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/approved-channel-conclusion-mastery-customized-screens-in-focus/"><u>2024 Approved Channel Conclusion Mastery Customized Screens in Focus</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/approved-effortless-shuffle-of-your-youtube-playlists/"><u>2024 Approved Effortless Shuffle of Your YouTube Playlists</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/approved-in-depth-guide-to-maximizing-your-earnings-with-youtube-and-adsense/"><u>2024 Approved In-Depth Guide to Maximizing Your Earnings with YouTube & AdSense</u></a></li>
+<li><a href="https://article-files.techidaily.com/2024-approved-integrate-xp-moviemaker-from-digital-software-suite/"><u>2024 Approved Integrate XP Moviemaker From Digital Software Suite</u></a></li>
+<li><a href="https://fox-links.techidaily.com/a-comprehensive-guide-to-canon-time-lapse-video-for-2024/"><u>A Comprehensive Guide to Canon Time-Lapse Video for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ng-through-content-clutter-youtube-shorts-essentials/"><u>Cutting Through Content Clutter YouTube Shorts Essentials</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/essential-android-photography-tools-for-2024/"><u>Essential Android Photography Tools for 2024</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-recover-deleted-photos-on-itel-p55-5g-by-stellar-photo-recovery-android-mobile-photo-recover/"><u>How to recover deleted photos on Itel P55 5G</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/how-to-transfer-music-from-nokia-c12-plus-to-ipod-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Music from Nokia C12 Plus to iPod | Dr.fone</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/24-digital-arena-100plus-titles-for-the-true-gamer/"><u>In 2024, Digital Arena 100+ Titles for the True Gamer</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-how-to-change-netflix-location-to-get-more-country-version-on-oppo-a2-drfone-by-drfone-virtual-android/"><u>In 2024, How to Change Netflix Location to Get More Country Version On Oppo A2 | Dr.fone</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/in-2024-mirthful-mobile-memories-iphone/"><u>In 2024, Mirthful Mobile Memories (iPhone)</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-top-imei-unlokers-for-your-motorola-edge-40-neo-phone-by-drfone-android/"><u>In 2024, Top IMEI Unlokers for Your Motorola Edge 40 Neo Phone</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-unlock-your-boost-mobile-iphone-11-pro-max-before-the-plan-expires-by-drfone-ios/"><u>In 2024, Unlock Your Boost Mobile iPhone 11 Pro Max Before the Plan Expires</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ering-sustainability-transforming-metropolitan-environments-for-2024/"><u>Pioneering Sustainability Transforming Metropolitan Environments for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ling-frames-5-effective-charge-free-youtube-techniques/"><u>Unveiling Frames 5 Effective, Charge-Free YouTube Techniques</u></a></li>
+</ul></div>
 

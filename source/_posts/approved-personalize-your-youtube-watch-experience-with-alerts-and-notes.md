@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Personalize Your Youtube Watch Experience with Alerts & Notes\""
-date: 2024-07-12T23:14:01.335Z
-updated: 2024-07-13T23:14:01.335Z
+date: 2024-09-11T07:56:11.535Z
+updated: 2024-09-12T07:56:11.535Z
 tags:
   - ai video
   - ai youtube
@@ -51,15 +51,43 @@ YouTube **Cards** are similar to annotations but more interactive. They allow th
 
 * Click on the "Video Manager" tab ![](https://images.wondershare.com/filmora/article-images/video-manager-in-youtube.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2129741/7443" target="_top" id="2129741">
+  <img src="//a.impactradius-go.com/display-ad/7443-2129741" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2129741/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 * Click "Edit" tab under the video screen shot you want to add the card on
 * Click on the "Cards" tab ![](https://images.wondershare.com/filmora/article-images/youtube-cards01.png)
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2120866/26400?prodsku=mars" target="_top" id="2120866">
+  <img src="//a.impactradius-go.com/display-ad/26400-2120866" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2120866/26400?prodsku=mars" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 * On the right panel click on "Add Card" drop down menu and select the type of card you want to add
 * Click on the create button which will open the corresponding video
 * Once you finish the subsequent information required click create card
 * Select the timeline for the playhead to appear which leads to the card slide ![](https://images.wondershare.com/filmora/article-images/add-cards-to-youtube-video.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aidotcom.pxf.io/c/5597632/2134500/19576" target="_top" id="2134500">
+  <img src="//a.impactradius-go.com/display-ad/19576-2134500" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134500/19576" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 * Apply changes and exit
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135395/19272" target="_top" id="2135395">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135395" border="0" alt="https://techidaily.com" width="125" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135395/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## How to add YouTube annotations
 
@@ -68,6 +96,13 @@ YouTube Annotation is addition of a text layer, link or hotspots over your video
 * Click on the video manager tab
 * Click edit tab under the video screen shot you want to add the annotation on
 * Click on the "End screen & Annotation" tab ![](https://images.wondershare.com/filmora/article-images/add-annotations-to-youtube-video.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2132161/7443" target="_top" id="2132161">
+  <img src="//a.impactradius-go.com/display-ad/7443-2132161" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2132161/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 * On the right panel click on "+ Add Element" and select the kind of annotation you want to add
 * Adjust the position of Annotation, you can drag the rectangle to locate it at any position of the video, move the slide to set the start and end time of the annotation ![](https://images.wondershare.com/filmora/article-images/add-annotation-to-youtube-1.jpg)
@@ -110,20 +145,24 @@ No matter what kind of annotations you are using, you should never use more than
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115943/19272" target="_top" id="2115943">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115943" border="0" alt="https://techidaily.com" width="180" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115943/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -132,6 +171,60 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-tips.techidaily.com/ehind-the-scenes-top-tactics-for-consistent-vlogging-for-2024/"><u>[New] Behind the Scenes Top Tactics for Consistent Vlogging for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ease-non-filtered-youtube-video-trail-for-2024/"><u>[New] Cease Non-Filtered YouTube Video Trail for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ngage-and-inspire-viewers-animated-subscribers-in-filmora-explained-for-2024/"><u>[New] Engage and Inspire Viewers - Animated Subscribers in Filmora Explained for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-channel-success-infusing-personality-into-templates/"><u>[New] In 2024, Channel Success Infusing Personality Into Templates</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-how-to-make-a-playlist-on-youtube/"><u>[New] In 2024, How to Make a Playlist on YouTube</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-master-your-stream-utilizing-youtubes-av1-technology/"><u>[New] In 2024, Master Your Stream Utilizing YouTube's AV1 Technology</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-revolutionize-your-music-playback-with-these-high-quality-free-audio-splits/"><u>[New] In 2024, Revolutionize Your Music Playback with These High-Quality Free Audio Splits</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-secure-your-sound-3-safe-methods-of-audio-from-youtube/"><u>[New] In 2024, Secure Your Sound 3 Safe Methods of Audio From YouTube</u></a></li>
+<li><a href="https://article-files.techidaily.com/new-in-2024-speedy-inspector-for-windows-images/"><u>[New] In 2024, Speedy Inspector for Windows Images</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-unlocking-youtubes-potential-with-a-subscription-plan/"><u>[New] In 2024, Unlocking YouTube's Potential with a Subscription Plan</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/aji-ryan-at-11-amassing-wealth-via-online-videos-for-2024/"><u>[New] Kaji Ryan At 11, Amassing Wealth via Online Videos for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ause-non-selected-youtube-video-suggestions-for-2024/"><u>[New] Pause Non-Selected YouTube Video Suggestions for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/eamless-channel-transitions-with-customized-end-screens-for-2024/"><u>[New] Seamless Channel Transitions with Customized End Screens for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ransforming-ideas-to-movies-using-youtubes-tools-for-2024/"><u>[New] Transforming Ideas to Movies Using YouTube's Tools for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-2024-approved-discover-new-heights-top-10-adventure-channels/"><u>[Updated] 2024 Approved Discover New Heights Top 10 Adventure Channels</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-2024-approved-how-to-avoid-and-reverse-strikes-on-your-youtube-account/"><u>[Updated] 2024 Approved How to Avoid and Reverse Strikes on Your YouTube Account</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-2024-approved-jumpstart-your-channelstopwatch-seeking-viewers-with-these-youtube-seo-essentials/"><u>[Updated] 2024 Approved Jumpstart Your Channel’stopwatch-Seeking Viewers with These YouTube SEO Essentials</u></a></li>
+<li><a href="https://article-helps.techidaily.com/updated-2024-approved-quintessential-scripting-spectrum-8-cinematic-classes/"><u>[Updated] 2024 Approved Quintessential Scripting Spectrum 8 Cinematic Classes</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-2024-approved-zooming-up-elevate-your-visuals-on-snapchat/"><u>[Updated] 2024 Approved Zooming Up Elevate Your Visuals on Snapchat</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-constructing-compelling-channel-overviews-for-2024/"><u>[Updated] Constructing Compelling Channel Overviews for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-decoding-the-cost-per-thousand-views-on-youtube-for-successful-earning-for-2024/"><u>[Updated] Decoding the Cost Per Thousand Views on YouTube for Successful Earning for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-in-2024-a-comprehensive-look-editing-and-polishing-yt-videos-via-movie-maker/"><u>[Updated] In 2024, A Comprehensive Look Editing and Polishing YT Videos via Movie Maker</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-in-2024-leveraging-horizontal-footage-in-igtvs-vertical-space/"><u>[Updated] In 2024, Leveraging Horizontal Footage in IGTV's Vertical Space</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-in-2024-understanding-your-place-in-youtube-earnings/"><u>[Updated] In 2024, Understanding Your Place in YouTube Earnings</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-step-by-step-success-on-youtube-with-spectacision-music-videos-for-2024/"><u>[Updated] Step-by-Step Success on Youtube with Spectacision Music Videos for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-the-art-of-tweaking-soundtracks-in-youtube-videos/"><u>[Updated] The Art of Tweaking Soundtracks in YouTube Videos</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-the-complete-snapchat-editors-toolbox-for-photo-finesse-for-2024/"><u>[Updated] The Complete Snapchat Editor's Toolbox for Photo Finesse for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-unearthing-the-hidden-an-orderly-guide-to-covert-youtube-videos/"><u>[Updated] Unearthing the Hidden An Orderly Guide to Covert YouTube Videos</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/2024-approved-2023-comprehensive-grip-on-visualcutter-software-review/"><u>2024 Approved 2023 Comprehensive Grip on VisualCutter Software Review</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/2024-approved-innovative-photoplusmusic-recorder-software-of-the-year/"><u>2024 Approved Innovative Photo+Music Recorder Software of the Year</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/approved-released-caught-in-the-web-of-missing-shorts/"><u>2024 Approved Released Caught in the Web of Missing Shorts</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/approved-text-on-screen-essentials-perfecting-caption-placement-in-youtube-videos/"><u>2024 Approved Text on Screen Essentials Perfecting Caption Placement in YouTube Videos</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/approved-the-ultimate-companion-for-your-vlogging-journey-top-12-cameras/"><u>2024 Approved The Ultimate Companion for Your Vlogging Journey - Top 12 Cameras</u></a></li>
+<li><a href="https://techidaily.com/all-things-you-need-to-know-about-wipe-datafactory-reset-for-xiaomi-redmi-note-12-5g-drfone-by-drfone-reset-android-reset-android/"><u>All Things You Need to Know about Wipe Data/Factory Reset For Xiaomi Redmi Note 12 5G | Dr.fone</u></a></li>
+<li><a href="https://article-posts.techidaily.com/audio-amplification-adding-tracks-to-premiere-projects-with-ease-for-2024/"><u>Audio Amplification Adding Tracks to Premiere Projects with Ease for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ion-methods-for-youtubes-backlogged-video-collection-for-2024/"><u>Deletion Methods for YouTube's Backlogged Video Collection for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ting-fundamentals-a-comprehensive-online-course-by-youtube-experts/"><u>Directing Fundamentals A Comprehensive Online Course by YouTube Experts</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/expeditious-windows-file-audit-tactics-for-2024/"><u>Expeditious Windows File Audit Tactics for 2024</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/flash-dramatization-structure-for-2024/"><u>Flash Dramatization Structure for 2024</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-get-out-of-recovery-on-iphone-13-pro-drfone-by-drfone-ios-system-repair-ios-system-repair/"><u>How To Get Out of Recovery on iPhone 13 Pro? | Dr.fone</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/how-to-unlock-apple-iphone-12-mini-with-an-apple-watch-and-what-to-do-if-it-doesnt-work-by-drfone-ios/"><u>How to Unlock Apple iPhone 12 mini With an Apple Watch & What to Do if It Doesnt Work</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/24-directing-the-flow-of-digital-storytelling-through-youtube-fusion/"><u>In 2024, Directing the Flow of Digital Storytelling Through Youtube Fusion</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/24-maximize-engagement-with-these-9-youtube-thumbnail-creators/"><u>In 2024, Maximize Engagement with These 9 YouTube Thumbnail Creators</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/in-2024-optimal-video-length-and-width-for-instagram-posts/"><u>In 2024, Optimal Video Length and Width for Instagram Posts</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-the-ultimate-guide-to-get-the-rare-candy-on-pokemon-go-fire-red-on-motorola-moto-g84-5g-drfone-by-drfone-virtual-android/"><u>In 2024, The Ultimate Guide to Get the Rare Candy on Pokemon Go Fire Red On Motorola Moto G84 5G | Dr.fone</u></a></li>
+<li><a href="https://fox-http.techidaily.com/in-class-video-production-smooth-editing-skills/"><u>In-Class Video Production Smooth Editing Skills</u></a></li>
+<li><a href="https://ai-video.techidaily.com/new-in-2024-google-translate-video-a-complete-guide-to-translate-video-with-google/"><u>New In 2024, Google Translate Video A Complete Guide To Translate Video With Google</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/v-joshis-guide-to-youtube-earning-power-by-2024/"><u>Sourav Joshi’s Guide to YouTube Earning Power by 2024</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/struggling-with-excessive-cpu-demand-from-obs-effective-strategies-to-optimize-and-reduce-its-resource-consumption/"><u>Struggling with Excessive CPU Demand From OBS? Effective Strategies to Optimize and Reduce Its Resource Consumption</u></a></li>
+<li><a href="https://techtrends.techidaily.com/ultimate-review-of-nanoleaf-umbra-cone-a-top-rated-smart-lights-solution-for-kids-bedrooms/"><u>Ultimate Review of Nanoleaf Umbra Cone: A Top-Rated Smart Lights Solution for Kids' Bedrooms</u></a></li>
+<li><a href="https://program-issues.techidaily.com/unraveling-infinity-the-philosophy-of-the-eternal-return-in-black-thrillers/"><u>Unraveling Infinity: The Philosophy of the 'Eternal Return' In Black Thrillers</u></a></li>
+<li><a href="https://blog-min.techidaily.com/user-preference-showdown-evaluating-features-and-performance-of-windows-11-against-macos-monterey/"><u>User Preference Showdown: Evaluating Features and Performance of Windows 11 Against macOS Monterey.</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/are-youtube-tags-and-how-can-you-find-great-tags-for-your-videos/"><u>What Are YouTube Tags and How Can You Find Great Tags For Your Videos?</u></a></li>
+</ul></div>
 

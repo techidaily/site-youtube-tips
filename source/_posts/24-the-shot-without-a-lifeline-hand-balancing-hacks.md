@@ -1,7 +1,7 @@
 ---
 title: "\"In 2024, The Shot Without a Lifeline  Hand Balancing Hacks\""
-date: 2024-07-12T23:15:51.116Z
-updated: 2024-07-13T23:15:51.116Z
+date: 2024-09-11T07:53:47.731Z
+updated: 2024-09-12T07:53:47.731Z
 tags:
   - ai video
   - ai youtube
@@ -27,11 +27,37 @@ thumbnail: https://thmb.techidaily.com/cd8e54aa3eca787ba3997c63d63710b97ceb4c1f0
 
 When you’re trying to grow a channel on YouTube it can feel like equipment is a barrier, but it shouldn’t be. If you can’t afford a high-end tripod, for example, there are loads of ways to get by without one.
 
+<!-- affiliate ads begin -->
+<span id="1424527">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1424527.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1424527">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424527.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424527%2F16446'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424527/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### DIY Your Video with Wondershare Filmora
 
 Wondershare Filmora has the best video stabilization tool is your videos have a bad frame or were recorded in dim lights. If a video is shot in bad weather or unfriendly situation where you don’t have all the equipment required for a quality recording, Wondershare Filmora can help you in the background to edit your videos like a pro. And it has all the relevant tools like effects, transitions, background removal, overlays, and background music that could turn your normal video to a professional one.
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
+
+<!-- affiliate ads begin -->
+<span id="1983553">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983553.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983553">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983553.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983553%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983553/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Here are 3 of our favorite DIY tripods.
 
@@ -49,6 +75,13 @@ Here it is with binder clips:
 
 ![binder clips](https://images.wondershare.com/filmora/article-images/binder-clips.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://wigfever.sjv.io/c/5597632/2014857/22899" target="_top" id="2014857">
+  <img src="//a.impactradius-go.com/display-ad/22899-2014857" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014857/22899" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 And here it is with hair clips:
 
 ![hair clips](https://images.wondershare.com/filmora/article-images/hair-clips.jpg)
@@ -56,6 +89,13 @@ And here it is with hair clips:
 Now you can set your smartphone upon any stable surface, like a table or a stack of books.
 
  _Here are some more cool ideas!_
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123731/7443" target="_top" id="2123731">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123731" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123731/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### **DIY adjustable tripod using books and a towel**
 
@@ -73,6 +113,13 @@ To get similar functions from the ‘any stable surface’ solution you can use 
 4. Put your camera on top of the books.
 
 Now if your camera isn’t up high enough, or is too high, you can adjust it just by adding or taking away books. If you want to move it closer or farther away from you, just pull the towel forwards or backward.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115913/19272" target="_top" id="2115913">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115913" border="0" alt="https://techidaily.com" width="180" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115913/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### **DIY gripping ‘Gorillapod’ using wire and tape**
 
@@ -102,20 +149,24 @@ _**Step 2:**_ After all the legs are attached, wrap some more tape around all 3 
 
 _Note: make sure the bolt is a fit for your camera before you get too far into this process._ ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2123477/16836" target="_top" id="2123477">
+  <img src="//a.impactradius-go.com/display-ad/16836-2123477" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123477/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -124,6 +175,40 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-tips.techidaily.com/eletion-methods-for-youtubes-backlogged-video-collection-for-2024/"><u>[New] Deletion Methods for YouTube's Backlogged Video Collection for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-examining-youtubes-copyright-stance-versus-cc-approach/"><u>[New] In 2024, Examining Youtube's Copyright Stance Versus CC Approach</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/new-in-2024-mastering-audio-prime-9-mic-recording-solutions/"><u>[New] In 2024, Mastering Audio Prime 9 Mic Recording Solutions</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-the-best-gif-maker-applications-for-creative-freedom/"><u>[New] In 2024, The Best GIF Maker Applications for Creative Freedom</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/egal-means-to-elevate-your-youtube-popularity-by-one-million-for-2024/"><u>[New] Legal Means to Elevate Your YouTube Popularity by One Million for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/he-right-sound-the-right-mic-top-recommendations-for-diverse-online-presence/"><u>[New] The Right Sound, The Right Mic Top Recommendations for Diverse Online Presence</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ransforming-self-doubt-into-youtube-dominance/"><u>[New] Transforming Self-Doubt Into YouTube Dominance</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-2024-approved-concluding-your-channel-on-youtube-expert-guides-and-templates/"><u>[Updated] 2024 Approved Concluding Your Channel on YouTube - Expert Guides & Templates</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-2024-approved-from-vision-to-visuals-craft-your-story-with-youtube-editor/"><u>[Updated] 2024 Approved From Vision to Visuals Craft Your Story with YouTube Editor</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-in-2024-crafting-wide-angle-photos-with-a-fisheye-effect/"><u>[Updated] In 2024, Crafting Wide-Angle Photos with a Fisheye Effect</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-in-2024-dive-into-design-get-a-complimentary-set-of-50-banner-pieces/"><u>[Updated] In 2024, Dive Into Design Get a Complimentary Set of 50 Banner Pieces</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-in-2024-efficient-deletion-techniques-for-online-discussions/"><u>[Updated] In 2024, Efficient Deletion Techniques for Online Discussions</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/updated-in-2024-global-gross-earnings-of-youtube-luminaries/"><u>[Updated] In 2024, Global Gross Earnings of YouTube Luminaries</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/updated-in-2024-windows-10-capture-champions-app-roundup/"><u>[Updated] In 2024, Windows 10 Capture Champions App Roundup</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-pioneering-video-content-creation-via-google-trends-study/"><u>[Updated] Pioneering Video Content Creation via Google Trends Study</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/updated-ppt-presentations-merging-audio-and-imagery-fluently-for-2024/"><u>[Updated] PPT Presentations Merging Audio & Imagery Fluently for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-subtitle-extraction-top-10-free-apps-rated-for-2024/"><u>[Updated] Subtitle Extraction Top 10 Free Apps Rated for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-the-insiders-guide-to-youtube-success/"><u>[Updated] The Insider's Guide to YouTube Success</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-the-newcomers-roadmap-thriving-on-youtube-and-your-wallet-for-2024/"><u>[Updated] The Newcomer's Roadmap Thriving on YouTube and Your Wallet for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-the-ultimate-guide-to-charging-up-your-video-empire-for-2024/"><u>[Updated] The Ultimate Guide to Charging Up Your Video Empire for 2024</u></a></li>
+<li><a href="https://some-tips.techidaily.com/updated-top-10-wedding-clock-apps-for-android-and-ios-to-keep-your-day-on-track/"><u>[Updated] Top 10 Wedding Clock Apps for Android & iOS to Keep Your Day on Track</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/2024-approved-understanding-the-inner-workings-of-youtube-post-upload/"><u>2024 Approved Understanding the Inner Workings of YouTube Post-Upload</u></a></li>
+<li><a href="https://ai-vdieo-software.techidaily.com/adobe-premiere-pro-cs6-mac-download-latest-update-for-2024/"><u>Adobe Premiere Pro CS6 Mac Download - Latest Update for 2024</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/authenticating-your-youtube-username-and-email/"><u>Authenticating Your YouTube Username & Email</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ing-engaging-life-journeys-in-video-formats-for-2024/"><u>Crafting Engaging Life Journeys in Video Formats for 2024</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/create-fantastic-youtube-description-with-templates-to-get-more-viewers/"><u>Create Fantastic YouTube Description With Templates To Get More Viewers</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/harmonious-messages-on-whatsapp-status-for-2024/"><u>Harmonious Messages on WhatsApp Status for 2024</u></a></li>
+<li><a href="https://review-topics.techidaily.com/how-to-update-or-downgrade-iphone-6s-plus-without-data-loss-drfone-by-drfone-ios-system-repair-ios-system-repair/"><u>How To Update or Downgrade iPhone 6s Plus Without Data Loss? | Dr.fone</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/24-how-sony-vegas-transforms-ordinary-footage-into-youtube-stardom/"><u>In 2024, How Sony Vegas Transforms Ordinary Footage Into YouTube Stardom</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/24-navigating-online-public-opinion-for-video-content-concepts/"><u>In 2024, Navigating Online Public Opinion for Video Content Concepts</u></a></li>
+<li><a href="https://extra-support.techidaily.com/revealing-the-smarts-of-z2-play-mobile-for-2024/"><u>Revealing the Smarts of Z2 Play Mobile for 2024</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/the-ultimate-selection-of-mac-clipping-tools/"><u>The Ultimate Selection of Mac Clipping Tools</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/shing-video-popularity-leading-trackers-for-youtube-for-2024/"><u>Unleashing Video Popularity Leading Trackers for YouTube for 2024</u></a></li>
+</ul></div>
 
