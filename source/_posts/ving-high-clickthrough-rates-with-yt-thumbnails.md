@@ -1,7 +1,7 @@
 ---
 title: "Achieving High Clickthrough Rates with YT Thumbnails"
-date: 2024-07-12T23:11:04.897Z
-updated: 2024-07-13T23:11:04.897Z
+date: 2024-09-13T22:52:12.884Z
+updated: 2024-09-17T01:38:32.813Z
 tags:
   - ai video
   - ai youtube
@@ -152,9 +152,29 @@ Many of you might be interested in how to make a fortnite thumbnail, so here it 
 
 ![make-fortnite-thumbnail-step8](https://images.wondershare.com/filmora/article-images/make-fortnite-thumbnail-step8.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134238/18498" target="_top" id="2134238">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134238" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134238/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 1. Now you can add a background of your choice. You can upload an image or choose a simple color from Filmora's Media tab and drag it below the screenshot in the timeline.
 
 ![make-fortnite-thumbnail-step9](https://images.wondershare.com/filmora/article-images/make-fortnite-thumbnail-step9.jpg)
+
+<!-- affiliate ads begin -->
+<span id="1983539">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983539.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983539">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983539.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983539%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983539/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 1. To add text to the screenshot, go to Titles. Here you can find a wide range of different and unique titles to choose from for your Fortnite Thumbnail. Choose any of the titles and place them accordingly.
 
@@ -164,9 +184,23 @@ Many of you might be interested in how to make a fortnite thumbnail, so here it 
 
 ![make-fortnite-thumbnail-step11](https://images.wondershare.com/filmora/article-images/make-fortnite-thumbnail-step11.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2137394/7443" target="_top" id="2137394">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137394" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137394/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 1. After completing the thumbnail, click on the Snapshot icon located below the preview tab of Filmora. Or press "CTRL+ALT+S". It will save a screenshot into the media panel of Filmora.
 
 ![make-fortnite-thumbnail-step12](https://images.wondershare.com/filmora/article-images/make-fortnite-thumbnail-step12.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://wigfever.sjv.io/c/5597632/2005196/22899" target="_top" id="2005196">
+  <img src="//a.impactradius-go.com/display-ad/22899-2005196" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2005196/22899" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 1. Right-click on the screenshot and navigate to "Reveal in Explorer". It will open the folder that contains all the screenshots taken from Filmora. Now you can use it as a Fortnite Thumbnail.
 
@@ -190,6 +224,13 @@ Once you have successfully created a custom thumbnail, you can use it in your vi
 
 ![how-to-add-custom-youtube-thumbnail-to-video-step3](https://images.wondershare.com/filmora/article-images/how-to-add-custom-youtube-thumbnail-to-video-step3.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134233/18498" target="_top" id="2134233">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134233" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134233/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Conclusion
 
 Thumbnail is the first thing that helps the viewer decide whether to click on a video or ignore it. Which increases the importance of having a well-structured and attractive thumbnail. By following the above guide, you can make an astonishing and clickable thumbnail in no time. For better and quick results, we recommend you using Filmora X. It allows you to perform all the tasks from video editing to thumbnail creation on a single platform.
@@ -204,14 +245,11 @@ Benjamin Arango is a writer and a lover of all things video.
 
 Follow @Benjamin Arango
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -220,6 +258,20 @@ Follow @Benjamin Arango
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-sure.techidaily.com/024-approved-the-year-of-infographics-top-social-trends-explored/"><u>[New] 2024 Approved The Year of Infographics Top Social Trends Explored</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/mplify-content-with-free-audio-samples/"><u>[New] Amplify Content with Free Audio Samples!</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/deal-video-capturer-for-engaging-youtube-audiences/"><u>[New] Ideal Video Capturer for Engaging YouTube Audiences</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-how-to-upload-a-video-from-imovie-to-youtube/"><u>[New] In 2024, How to Upload a Video From iMovie to YouTube?</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-how-to-wipe-your-youtube-watch-later-playlist-cleanly/"><u>[New] In 2024, How-To Wipe Your YouTube Watch Later Playlist Cleanly</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-in-2024-top-8-virtual-spaces-for-3d-graffiti-fonts/"><u>[New] In 2024, Top 8 Virtual Spaces for 3D Graffiti Fonts</u></a></li>
+<li><a href="https://facebook-video-files.techidaily.com/new-interactive-insights-archive-for-2024/"><u>[New] Interactive Insights Archive for 2024</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-avoid-complexity-easy-video-edits-on-windows-10-for-everyone/"><u>[Updated] Avoid Complexity Easy Video Edits on Windows 10 for Everyone</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/illuminate-iphone-clips-simple-solutions-to-lighten-video-for-2024/"><u>Illuminate iPhone Clips Simple Solutions to Lighten Video for 2024</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/in-2024-expert-advice-on-acquiring-the-latest-360-cameras/"><u>In 2024, Expert Advice on Acquiring the Latest 360 Cameras</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-here-are-some-reliable-ways-to-get-pokemon-go-friend-codes-for-motorola-moto-g84-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Here Are Some Reliable Ways to Get Pokemon Go Friend Codes For Motorola Moto G84 5G | Dr.fone</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/24-reinvent-your-youtube-presence-a-guide-to-elevated-subscription-rates/"><u>In 2024, Reinvent Your YouTube Presence A Guide to Elevated Subscription Rates</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ws-movie-maker-the-ultimate-guide-to-youtube-video-production/"><u>Windows Movie Maker The Ultimate Guide to YouTube Video Production</u></a></li>
+</ul></div>
 

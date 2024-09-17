@@ -1,7 +1,7 @@
 ---
 title: "[Updated] In 2024, Top 9 Smartphone Lenses & Gimbals for Dynamic Videography"
-date: 2024-07-12T23:06:54.179Z
-updated: 2024-07-13T23:06:54.179Z
+date: 2024-09-15T19:02:01.174Z
+updated: 2024-09-16T17:59:22.206Z
 tags:
   - ai video
   - ai youtube
@@ -48,10 +48,24 @@ For all the flat surfaces that the bendable legs of the Arkon tripod mount can�
 ### 4\. FLII Selfie Ring Light
 ![FLII Selfie Ring Light](https://images.wondershare.com/filmora/article-images/smartphone-camera-accessories-selfie-ring-light.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115935/19272" target="_top" id="2115935">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115935" border="0" alt="https://techidaily.com" width="392" height="72"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115935/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 As much as smartphone camera technology has advanced, phone cameras still underperform when it comes to filming video in low-light. In low-light, your footage is very grainy because your phone is equipped with a small camera sensor, an engineering choice by the manufacturers to keep the size of the phone small. A handy accessory that you can use to get more light is the FLII selfie ring light. This ring light clamps onto your phone and emits a neutral white light. You can clamp this light to either side of your phone, depending on whether you want to use your rear-facing camera or your front-facing camera. This selfie ring light sells for around $16 USD.
 
 ### 5\. RODE VideoMic Me
 ![RODE VideoMic Me](https://images.wondershare.com/filmora/article-images/smartphone-camera-accessories-microphone.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2128843/7443" target="_top" id="2128843">
+  <img src="//a.impactradius-go.com/display-ad/7443-2128843" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2128843/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 The mic that is already built into your phone is equally sensitive to the sounds that come from behind the phone as it is to the sounds that are in front of the phone. This can be problematic when you’re trying to vlog in selfie mode while there’s a loud concert on the other side. One smartphone accessory that can improve the sound that you record from your phone in these situations is the RODE VideoMic Me. This mini directional shotgun mic plugs right into your phone’s headphone jack and sells for around $60 USD. In windy conditions, the dead cat windshield that it comes with does a great job of minimizing noise from the wind. In quiet, indoor conditions where you are the only person speaking, this device performs no better than your phone’s internal microphone. Your phone will also have to be in airplane mode to prevent the Rode VideoMic Me from recording unwanted clicking noise caused by background processes performed by your phone. So you wouldn’t want to use this for livestreaming.
 
@@ -60,8 +74,22 @@ The mic that is already built into your phone is equally sensitive to the sounds
 
 Aukey makes a 3-in-1 lens set that you can clamp onto your smartphone so that you can vlog at different focal lengths. The 3-in-1 set comes with a wide-angle lens, a fisheye lens, and a macro lens. The clamp it comes with is long enough for these lenses to reach any camera on a smartphone, not just those of iPhones which are positioned close to the phone’s outer edge. To get the most out of these lenses, you’ll have to use them without your phone’s protective case on. Although you are free to use this lens set on either your phone’s rear-facing camera or front-facing camera, the metal housing of these lenses is likely to show up in your footage when you use them with your front-facing camera. So, instead of having your recorded image stretch to the ends of a 16:9 ratio rectangular frame, your recorded image will look as if it is contained inside a circle. This lens set sells for around $30 USD.
 
+<!-- affiliate ads begin -->
+<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/2137974/21526" target="_top" id="2137974">
+  <img src="//a.impactradius-go.com/display-ad/21526-2137974" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://zebaoaffiliateprogram.pxf.io/i/5597632/2137974/21526" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 7\. iOgrapher Go for Android and iPhone
 ![iOgrapher Go](https://images.wondershare.com/filmora/article-images/smartphone-camera-accessories-iographer-go.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2123469/16836" target="_top" id="2123469">
+  <img src="//a.impactradius-go.com/display-ad/16836-2123469" border="0" alt="https://techidaily.com" width="160" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123469/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 There’s many more accessories that you can take advantage of if you don’t limit yourself to just smartphone camera accessories. Sound and lighting equipment made for stand-alone cameras perform much better too. Many of these accessories are meant to connect to the camera “shoe” (a bracket on top of the camera that accessories can be attached to). Smartphones don’t come with these kinds of shoes. So, to take advantage of these higher quality accessories, you’ll need some kind of camera rig for your smartphone that also comes with shoes. The iOgrapher Go offers this at around $60 USD. This accessory comes with three shoes.
 
@@ -74,6 +102,13 @@ Manfrotto’s TwistGrip System does a similar job to the above iOgrapher Go. Thi
 ![Zhiyun Smooth-Q](https://images.wondershare.com/filmora/article-images/smartphone-camera-accessories-gimbal-stabilizer.jpg)
 
 My favorite smartphone camera accessory that I own is the Zhiyun Smooth-Q gimbal stabilizer. This gimbal is very effective in helping you record smooth video. Using the app that it comes with, you can even preset this gimbal to smoothly pan and rotate from a starting position to an ending position, giving you the opportunity to film beautiful time lapses. You can get this device at around $100 USD.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123727/7443" target="_top" id="2123727">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123727" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123727/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Polish Your YouTube Videos with Filmora
 
@@ -89,14 +124,11 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -105,6 +137,19 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://some-knowledge.techidaily.com/new-fixing-face-to-face-freeze-in-fir-chrome-safari-9-essential-tricks/"><u>[New] Fixing Face-to-Face Freeze in Fir, Chrome, Safari – 9 Essential Tricks</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-the-mp3-essentials-guide-10-online-converters-reviewed/"><u>[New] In 2024, The MP3 Essentials Guide #10 Online Converters Reviewed</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/vercoming-adversities-in-digital-self-expression/"><u>[New] Overcoming Adversities in Digital Self-Expression</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/new-revolution-at-your-desk-windows-10-updates-reviewed/"><u>[New] Revolution at Your Desk Windows 10 Updates Reviewed</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-in-2024-enhance-chat-dynamics-with-snapchats-gif-sending-steps/"><u>[Updated] In 2024, Enhance Chat Dynamics with Snapchat's GIF Sending Steps</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-mastering-youtube-team-ups-finding-perfect-co-stars-for-2024/"><u>[Updated] Mastering YouTube Team-Ups Finding Perfect Co-Stars for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-unlocking-youtubes-hidden-gems-keyword-research-for-2024/"><u>[Updated] Unlocking YouTube's Hidden Gems Keyword Research for 2024</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/handling-missing-or-lost-ftd2xxdll-files-effective-strategies-for-error-correction/"><u>Handling Missing or Lost ftd2xx.dll Files: Effective Strategies for Error Correction</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-how-to-unlock-honor-magic-5-phone-without-any-data-loss-by-drfone-android/"><u>In 2024, How to Unlock Honor Magic 5 Phone without Any Data Loss</u></a></li>
+<li><a href="https://games-able.techidaily.com/present-day-gaming-past-era-designs/"><u>Present-Day Gaming, Past-Era Designs</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-ultimate-review-of-the-samsung-galaxy-tab-a-202n-an-essential-aspect-youre-not-getting/"><u>The Ultimate Review of the Samsung Galaxy Tab A (202N): An Essential Aspect You're Not Getting</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/windowsiphoneandroidinstagram/"><u>Windows・iPhone・AndroidでのInstagram再生中停止手順</u></a></li>
+</ul></div>
 

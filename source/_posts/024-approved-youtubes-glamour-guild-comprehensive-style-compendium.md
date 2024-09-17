@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Youtube's Glamour Guild  Comprehensive Style Compendium\""
-date: 2024-07-12T23:08:21.589Z
-updated: 2024-07-13T23:08:21.589Z
+date: 2024-09-14T17:55:11.880Z
+updated: 2024-09-17T05:13:09.028Z
 tags:
   - ai video
   - ai youtube
@@ -94,6 +94,13 @@ Here are some common types of beauty and lifestyle videos:
 * Kid’s Makeup Challenge
 * No Mirror Makeup Challenge
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115936/19272" target="_top" id="2115936">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115936" border="0" alt="https://techidaily.com" width="468" height="60"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115936/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **How to Get Products to Review**
 
  You probably already know that a lot of the products popular beauty YouTubers review in their videos were sent to them for free. Brands want to get their products into the hands of creators who have ‘influence’ both in the hopes that their audiences will decide to buy them and as part of generating buzz – getting more people talking about their products so more people become interested.
@@ -158,6 +165,19 @@ ISO 400 should be a happy medium for shooting inside with your ring light, but y
 
 ![set film speed](https://images.wondershare.com/filmora/article-images/set-film-speed3.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1983446">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983446.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983446">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983446.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983446%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983446/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 For more info on [camera settings for beauty videos, click here](https://www.filmora.io/video-tutorials/how-to-set-up-your-camera-%E2%80%93-the-makeup-series-12.html).
 
 ## **Lighting for Beauty**
@@ -173,6 +193,13 @@ There are, however, some reasons you might want additional light:
 If you only have a ring light/front light then you may end up looking like you’re surrounded by shadows. If you want more light for your space you can use windows, household lamps, or professional video lights like softboxes or LED panels.
 
  ![light background](https://images.wondershare.com/filmora/article-images/light-background4.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://wigfever.sjv.io/c/5597632/2005183/22899" target="_top" id="2005183">
+  <img src="//a.impactradius-go.com/display-ad/22899-2005183" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2005183/22899" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 #### **To Stand Out Against your Background (‘Backlighting’)**
 
@@ -241,6 +268,13 @@ This is your ring light. Continue to step 5 if you want it to have a stand (you 
 
 **_Step 5:_** Fasten your ring light tightly to your paper towel stand securely with several zip ties. Make sure to fasten it at the bottom (where the excess rope light is coming out of your ring light). Cut off the tails of the zip ties.
 
+<!-- affiliate ads begin -->
+<a href="https://aidotcom.pxf.io/c/5597632/2134502/19576" target="_top" id="2134502">
+  <img src="//a.impactradius-go.com/display-ad/19576-2134502" border="0" alt="https://techidaily.com" width="672" height="90"/>
+</a>
+<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134502/19576" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **How to Make a Makeup Tutorial – Before You Start**
 
 Before you start recording your makeup tutorial there are a few things you should do.
@@ -276,20 +310,24 @@ Remember to include what type of video you made, i.e. ‘tutorial’, ‘review�
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115944/19272" target="_top" id="2115944">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115944" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115944/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -298,6 +336,20 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-imitation-ingenuity-generating-parodies-of-films/"><u>[New] In 2024, Imitation Ingenuity Generating Parodies of Films</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/nstantaneous-video-downloader-selection-guide-for-2024/"><u>[New] Instantaneous Video Downloader Selection Guide for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-2024-approved-perfect-phone-match-up-for-samsungs-virtual-reality-dreams-update-2023/"><u>[Updated] 2024 Approved Perfect Phone Match-Up for Samsung's Virtual Reality Dreams - Update 2023</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-2024-approved-pro-tools-pro-results-elevating-video-quality-in-youtube-editing/"><u>[Updated] 2024 Approved Pro Tools, Pro Results Elevating Video Quality in YouTube Editing</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/updated-audiovisual-decision-making-is-podcast-or-youtube-more-appealing/"><u>[Updated] Audiovisual Decision-Making Is Podcast or YouTube More Appealing?</u></a></li>
+<li><a href="https://article-helps.techidaily.com/updated-in-2024-multiformat-manual-effortless-conversion-of-srt-files/"><u>[Updated] In 2024, Multiformat Manual Effortless Conversion of SRT Files</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-retrieve-erased-videos-from-14-pro-by-fonelab-android-recover-video/"><u>How to retrieve erased videos from 14 Pro</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/in-2024-best-sandbox-games-titles-you-shouldnt-be-missing/"><u>In 2024, Best Sandbox Games Titles You Shouldn’t Be Missing</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/24-quick-guide-to-correcting-hidden-shorts-on-youtube/"><u>In 2024, Quick Guide to Correcting Hidden Shorts on YouTube</u></a></li>
+<li><a href="https://video-content-creator.techidaily.com/new-windows-8-avi-editor-fast-and-reliable-video-editing-software-updated-2023-for-2024/"><u>New Windows 8 AVI Editor Fast and Reliable Video Editing Software - Updated 2023 for 2024</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/techniques-de-conversion-video-simplifiees-transformez-vos-fichiers-en-mp4-ou-mp3-gratuitement/"><u>Techniques De Conversion Vidéo Simplifiées - Transformez Vos Fichiers en MP4 Ou MP3 Gratuitement</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/e-channels-generating-top-notch-video-naming-for-2024/"><u>Unique Channels Generating Top-Notch Video Naming for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/unveiling-the-top-7-android-apps-to-banish-ads-for-2024/"><u>Unveiling The Top 7 Android Apps to Banish Ads for 2024</u></a></li>
+</ul></div>
 

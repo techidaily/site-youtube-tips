@@ -1,7 +1,7 @@
 ---
 title: "[New] Making Sporting Scenes Spectacomed for 2024"
-date: 2024-07-12T23:08:25.893Z
-updated: 2024-07-13T23:08:25.893Z
+date: 2024-09-09T20:46:06.369Z
+updated: 2024-09-17T05:48:52.616Z
 tags:
   - ai video
   - ai youtube
@@ -80,6 +80,13 @@ To start with, just launch Filmora on your computer and add the video that you w
 
 ![Import Media File](https://images.wondershare.com/filmora/guide/import-media-file-to-filmora-1.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2130891/7443" target="_top" id="2130891">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130891" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130891/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 #### Step 2: Edit the Sports Video
 
 In order to create a sports highlight video, the first thing that people do is trim any unwanted part. Once the video is loaded, you can view it on the timeline of the interface. Now, go to the timeline and get the trim tool to manually select the part of the video you wish to trim. After selecting the desired fragment, you can trim the clip or just delete it by clicking on their respective icons.
@@ -91,6 +98,13 @@ In the same way, you can also split your video and make other changes in it. You
 If you are including multiple videos, then make sure they have the same dimensions and aspect ratio. For this, you can select the video, right-click on the timeline, and click on the crop icon. Now, select the same aspect ratio for the entire video to keep it uniform.
 
 ![Edit Sports Video](https://images.wondershare.com/filmora/article-images/edit-sports-video-2.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://wigfever.sjv.io/c/5597632/2014854/22899" target="_top" id="2014854">
+  <img src="//a.impactradius-go.com/display-ad/22899-2014854" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014854/22899" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Most of the game highlights that we see have different speeds for various sections. That is, some actions would be fast-forwarded while some would be in slow motion. To apply this, simply select the section in the timeline, right-click, and go to the Speed and Duration settings. This will open a dedicated interface from where you can change the speed of the sports video.
 
@@ -111,6 +125,13 @@ To give your video a uniform and aesthetically pleasing appeal, you can also add
 Lastly, make sure that you added sound or voiceover to your video. You can add a sound from its library or import any other music file to it. Since highlight videos mostly have voiceovers, you add the same by visiting the Record > Record Voiceover option.
 
 ![Edit Sports Video](https://images.wondershare.com/filmora/article-images/edit-sports-video-4.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134218/18498" target="_top" id="2134218">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134218" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134218/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 #### Step 4: Export your video in the desired format
 
@@ -146,14 +167,11 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -162,6 +180,16 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-tips.techidaily.com/ed-the-art-of-beats-pure-dj-visuals-available-online/"><u>[Updated] The Art of Beats Pure DJ Visuals Available Online</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/approved-essential-steps-for-chromakey-magic/"><u>2024 Approved Essential Steps for Chromakey Magic</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-locate-inexpensive-deals-on-gopro-cameras-near-you/"><u>2024 Approved Locate Inexpensive Deals on GoPro Cameras Near You</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/how-to-use-pokemon-go-joystick-on-motorola-edgeplus-2023-drfone-by-drfone-virtual-android/"><u>How to use Pokemon Go Joystick on Motorola Edge+ (2023)? | Dr.fone</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/24-transform-your-videos-expert-choices-for-thumbnails/"><u>In 2024, Transform Your Videos Expert Choices for Thumbnails</u></a></li>
+<li><a href="https://extra-information.techidaily.com/luminances-hdr-accuracy-assessment/"><u>Luminance's HDR Accuracy Assessment</u></a></li>
+<li><a href="https://windows11.techidaily.com/navigating-windows-11-calendar-easily/"><u>Navigating Windows 11 Calendar Easily</u></a></li>
+<li><a href="https://win-able.techidaily.com/overcoming-performance-hiccups-fixing-horizon-zero-dawn-pc-game-crashes-successfully/"><u>Overcoming Performance Hiccups: Fixing Horizon Zero Dawn PC Game Crashes Successfully</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/by-step-editing-and-uploading-360-videos-on-youtube-for-2024/"><u>Step-by-Step Editing & Uploading 360 Videos on YouTube for 2024</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "\"Simple Steps to Great Videos  Crafting 10 Basic Concepts Easily for 2024\""
-date: 2024-07-12T23:06:44.183Z
-updated: 2024-07-13T23:06:44.183Z
+date: 2024-09-11T00:17:00.582Z
+updated: 2024-09-17T00:29:18.262Z
 tags:
   - ai video
   - ai youtube
@@ -66,11 +66,31 @@ Everywhere around you, there are items you can review. The Apple Watch and the l
 
 Review videos can also be a source of revenue because a lot of companies sponsor YouTubers who review their products.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2130875/7443" target="_top" id="2130875">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130875" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130875/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## 5\. Your Favorite Songs / Movies / Etc
 
 Are you a Tarantino fan? Why not? When you are struggling to find inspiration for your videos, just think about the things you like. Your subscribers are interested in you, so they’ll be interested in knowing about your favorite movies or music albums. Books, movies, and music are an inexhaustible source of fresh ideas because there is always a new song or a film you can talk about in your video.
 
 You can do a ‘my 5 favorite songs’ type of video, or talk in detail about just one favorite.
+
+<!-- affiliate ads begin -->
+<span id="1770544">
+					<video width="240" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1770544.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/20702-1770544">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1770544.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftokenmetrics.sjv.io%2Fc%2F5597632%2F1770544%2F20702'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1770544/20702" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## 6\. What’s on Your Phone?
 
@@ -83,6 +103,13 @@ Finding a way to talk about the apps you like to use the most can be a good idea
 There's no need to constantly produce new videos because you can just take some royalty-free music and create a slideshow from your old or new photos. The slideshow format will certainly allow you to try something different on your YouTube channel, while the photos you use in the slideshow can create a clear picture of who you are and what you do for your viewers.
 
 If you are a photography enthusiast you can also plan the entire slideshow in advance and then make a short video about how you created the images in the slideshow.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115915/19272" target="_top" id="2115915">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115915" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115915/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## 8\. Make a Tutorial
 
@@ -110,20 +137,24 @@ If you start your YouTube channel but have no video editing experience, Wondersh
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2123479/16836" target="_top" id="2123479">
+  <img src="//a.impactradius-go.com/display-ad/16836-2123479" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123479/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -132,6 +163,18 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-video-capture.techidaily.com/new-2024-approved-best-screen-time-for-peaceful-phone-puzzles/"><u>[New] 2024 Approved Best Screen-Time for Peaceful Phone Puzzles</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-smooth-streaming-selective-stabilizer-guidebook/"><u>[New] In 2024, Smooth Streaming Selective Stabilizer Guidebook</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/esolved-no-display-for-youtube-shorts-for-2024/"><u>[New] Resolved No Display for YouTube Shorts for 2024</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/new-unleash-creative-potential-effortless-backdrop-elimination-on-canvas/"><u>[New] Unleash Creative Potential Effortless Backdrop Elimination on Canvas</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-5-amazing-free-youtube-intro-makers-ranked-for-2024/"><u>[Updated] 5 Amazing Free YouTube Intro Makers Ranked for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-discover-efficient-methods-for-compiling-songs-on-youtube/"><u>[Updated] Discover Efficient Methods for Compiling Songs on YouTube</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/updated-in-2024-from-barely-known-to-famous-elevate-your-viewership-on-youtube/"><u>[Updated] In 2024, From Barely Known to Famous Elevate Your Viewership on Youtube</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-the-ultimate-2024-guide-to-enable-monetization-on-youtube-videos/"><u>[Updated] The Ultimate 2024 Guide to Enable Monetization on YouTube Videos</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/o-change-youtube-playback-speed-to-speed-up-or-slow-down-video-for-2024/"><u>How to Change YouTube Playback Speed to Speed Up or Slow Down Video for 2024</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-top-4-sim-location-trackers-to-easily-find-your-lost-vivo-g2-device-by-drfone-android/"><u>In 2024, Top 4 SIM Location Trackers To Easily Find Your Lost Vivo G2 Device</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/than-just-likes-and-watch-time-the-complexity-of-youtubes-view-tally-for-2024/"><u>More than Just Likes and Watch Time The Complexity of YouTube's View Tally for 2024</u></a></li>
+</ul></div>
 

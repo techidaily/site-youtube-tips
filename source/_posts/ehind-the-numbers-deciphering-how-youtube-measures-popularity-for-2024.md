@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Behind the Numbers  Deciphering How YouTube Measures Popularity for 2024\""
-date: 2024-07-12T23:09:53.590Z
-updated: 2024-07-13T23:09:53.590Z
+date: 2024-09-15T23:19:25.291Z
+updated: 2024-09-16T20:12:43.011Z
 tags:
   - ai video
   - ai youtube
@@ -74,6 +74,19 @@ We are adding ‘likely’ here because, despite this 30-second rule which has b
 
 Try to watch the same video numerous times in a single day. You will find that the count will add up at first, but after some time it will stop. YouTube knows that a lot of times people replay some videos over and over when they really enjoy them, and so they want to factor replays into their algorithm because they suggest quality. However, to avoid spam views, the counter will stop after a certain point.
 
+<!-- affiliate ads begin -->
+<span id="1516072">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1516072.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1516072">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1516072.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1516072%2F16446'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1516072/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## 4\. Account Tracking Factors - Some Viewers Don't Count
 
 Something else that can affect whether a view is counted is the behavior of the account which watches it prior to landing on your video’s watch page. Sometimes, YouTube might feel that there is an increased chance a particular account is actually a bot, and then views from that account might not be added.
@@ -85,6 +98,19 @@ Any bot-like action will result in an account’s views do not be added to your 
 ## 5\. The Skip & Skim
 
 It’s not uncommon for viewers to watch a video for say five seconds, skip forwards a bit and watch for another ten seconds as they look for a specific part. It is hard to say whether skipping through a video, but watching a scattered 30 seconds, would count as a view or not.
+
+<!-- affiliate ads begin -->
+<span id="1160850">
+					<video width="576" height="324" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1160850.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/14559-1160850">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1160850.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fpropmoneyinc.pxf.io%2Fc%2F5597632%2F1160850%2F14559'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1160850/14559" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## 6\. Frozen YouTube View Counts
 
@@ -108,20 +134,24 @@ If you want to engage your audience with cool effects and Filmora is the best ch
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139123/17108" target="_top" id="2139123">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139123" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139123/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -130,6 +160,17 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-tips.techidaily.com/updated-2024-approved-pro-iphone-photo-illumination-tricks/"><u>[Updated] 2024 Approved Pro Iphone Photo Illumination Tricks</u></a></li>
+<li><a href="https://fox-access.techidaily.com/updated-audiophiles-dilemma-podcast-or-youtube-dominance/"><u>[Updated] Audiophile's Dilemma Podcast or YouTube Dominance</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-from-youtube-to-avi-perfect-conversion-tools-revealed-for-2024/"><u>[Updated] From YouTube to AVI Perfect Conversion Tools Revealed for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-in-2024-strategic-play-tips-by-top-game-masters/"><u>[Updated] In 2024, Strategic Play Tips by Top Game Masters</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-learn-to-record-save-and-share-youtube-content-a-cost-free-approach-for-2024/"><u>[Updated] Learn to Record, Save, & Share YouTube Content A Cost-Free Approach for 2024</u></a></li>
+<li><a href="https://extra-information.techidaily.com/guide-to-enable-windows-11-auto-hdr-settings/"><u>Guide to Enable Windows 11 Auto-HDR Settings</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/24-25-steps-forward-in-youtube-mastery-and-recognition/"><u>In 2024, 25 Steps Forward in YouTube Mastery and Recognition</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-how-pgsharp-save-you-from-ban-while-spoofing-pokemon-go-on-oppo-a58-4g-drfone-by-drfone-virtual-android/"><u>In 2024, How PGSharp Save You from Ban While Spoofing Pokemon Go On Oppo A58 4G? | Dr.fone</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/step-by-step-process-to-fix-pet-eye-issues-in-pictures/"><u>Step-by-Step Process to Fix Pet Eye Issues in Pictures</u></a></li>
+<li><a href="https://howto.techidaily.com/troubleshooting-guide-how-to-fix-an-unresponsive-vivo-y56-5g-screen-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Troubleshooting Guide How to Fix an Unresponsive Vivo Y56 5G Screen | Dr.fone</u></a></li>
+</ul></div>
 

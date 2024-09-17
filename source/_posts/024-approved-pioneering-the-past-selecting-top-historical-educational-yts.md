@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Pioneering the Past  Selecting Top Historical Educational YTs\""
-date: 2024-07-12T23:04:42.087Z
-updated: 2024-07-13T23:04:42.087Z
+date: 2024-09-13T02:05:02.709Z
+updated: 2024-09-16T21:14:30.985Z
 tags:
   - ai video
   - ai youtube
@@ -124,6 +124,13 @@ This is another good history channel on Youtube, they provide the information th
 
 This is a channel that has dedicated its time to learning about the great war known as World War 1\. The channel shares videos telling the public about the era of World War 1\. This is a major part of history and so it is something we ought to learn about. This isn’t just about the soldiers on the battlefield or how the bombs went off to destroy the enemies but it covers everything that happened within that period, from the kind of food they are to the way they dress and the technologies used. Even the different tribes, arts, and cultures. They post videos twice a week
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2135474/26400" target="_top" id="2135474">
+  <img src="//a.impactradius-go.com/display-ad/26400-2135474" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2135474/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 7. Oversimplified
 
 Normally, no one likes the idea of listening or learning from someone who makes things too complicated. Also, when learning, it is more interesting if you could understand it in the best way that you can. Not everything can be learned that way and not everyone can make something that easy to grasp. Channels like oversimplified make things easier for everyone to understand. They oversimplify their contents. They give you histories like the French revolution and the battle of Hastings and make it funnier and twist the storytelling to a way that people would find it interesting and funny sometimes. Videos are posted three times a week
@@ -143,6 +150,13 @@ Epic history TV tells you a lot about history and its most important occurrences
 ## Part 2: How to Avoid Being Misled by Fake History
 
 For sure everyone knows the concept of fake news, this is like a rumor that people spread around to implicate those around them. Everyone is well aware that not every news is as authentic as it seems. Relating to the history part, you shouldn’t just go ahead and believe what everyone says on YouTube. Make sure you don’t fall for a fake history story. Sometimes, while trying to avoid fake history, you have to get a mindset that is critical, ensure that the source you get it from is checked, check the story out, take a look at the evidence given, and try to make sure it sounds believable.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135365/19272" target="_top" id="2135365">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135365" border="0" alt="https://techidaily.com" width="125" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135365/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Final Words
 
@@ -194,6 +208,13 @@ Normally, no one likes the idea of listening or learning from someone who makes 
 
 The history guy is known well for the short time he takes in his video. Other history videos online are short but they are much shorter because they take 5 to 15 minutes. Even with this short time, he tends to cover different histories. They are a little bit odd histories but they seem interesting. Things like the wild wide west and the New York blackout that happened in 1977\. Other things like how Europeans discovered Alaska and the great olive poisoning that happened in 1919\. He makes the videos short because he aims at getting the audience in their spare time. Videos are posted 3 to 4 times a week
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136617/26400" target="_top" id="2136617">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136617" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136617/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 9. Timeline
 
 This is a timeline popularly on YouTube as the home of world history. What they do here is drop a video once a week that talk about documentaries and other things. They explore around all of ancient Egypt, shedding their whole light on the former dark ages.
@@ -232,6 +253,19 @@ This has to be the most obvious one on the list because whenever you click to wa
 
 This channel follows the name that they gave to themselves, they dedicated their channel to posting topics on weird history like the chronicles of history, crystal Pepsi, gout, life in a medieval castle, and the Victorian pastimes. All the videos are weird, most times they seem funny and spooky but they are just videos that make you think deeply because they seem too weird. Video is here makes you feel like a police officer chasing a man with the power to turn into a leopard. That is how confused you get from watching this channel. They usually make their posts every day. The channel provides videos for their subscribers 3 to 4 times a week
 
+<!-- affiliate ads begin -->
+<span id="1492813">
+					<video width="1024" height="576" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1492813.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/14559-1492813">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1492813.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:640px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fpropmoneyinc.pxf.io%2Fc%2F5597632%2F1492813%2F14559'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1492813/14559" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 3. Tasting History With Max Miller
 
 This channel is just a brilliant channel, why do we say this? Well, see what they do here. You might have an interest in learning about the dishes that are served in amazing series like Game of Thrones and other historical movies. You just want to know how they make those historical cuisines on these epic series, this is the channel for you. They recreate the dishes made in movies and series like Vikings and the rest. This channel was created to pass time by a Disney employee but he got the most out of it and has made it a full-time job, posting two to three videos daily.
@@ -268,6 +302,13 @@ Epic history TV tells you a lot about history and its most important occurrences
 
 For sure everyone knows the concept of fake news, this is like a rumor that people spread around to implicate those around them. Everyone is well aware that not every news is as authentic as it seems. Relating to the history part, you shouldn’t just go ahead and believe what everyone says on YouTube. Make sure you don’t fall for a fake history story. Sometimes, while trying to avoid fake history, you have to get a mindset that is critical, ensure that the source you get it from is checked, check the story out, take a look at the evidence given, and try to make sure it sounds believable.
 
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2123468/16836" target="_top" id="2123468">
+  <img src="//a.impactradius-go.com/display-ad/16836-2123468" border="0" alt="https://techidaily.com" width="125" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123468/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Final Words
 
 Sometimes it might help your mental health if you can take out time to watch some videos on YouTube, it has so many niches so you can choose the ones you like. History should be a good one for everyone.
@@ -283,8 +324,6 @@ Sometimes it might help your mental health if you can take out time to watch som
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -293,6 +332,23 @@ Sometimes it might help your mental health if you can take out time to watch som
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-tips.techidaily.com/uilding-a-loyal-following-with-respectful-requests-for-2024/"><u>[New] Building a Loyal Following with Respectful Requests for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-rapid-fire-guide-to-successful-double-exposures/"><u>[New] In 2024, Rapid-Fire Guide to Successful Double Exposures</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-the-youtube-inversion-creative-tactics-to-watch-videos-backwards/"><u>[New] In 2024, The Youtube Inversion Creative Tactics to Watch Videos Backwards</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/updated-2024-approved-secrets-to-compelling-presentations-ppt-on-mobile-and-desktop-gmeet/"><u>[Updated] 2024 Approved Secrets to Compelling Presentations PPT on Mobile & Desktop GMeet</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-simplified-steps-for-cutting-top-sports-videos/"><u>[Updated] 2024 Approved Simplified Steps for Cutting Top Sports Videos</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-sound-surprises-androidioss-disruptive-selection/"><u>[Updated] Sound Surprises Android/iOS's Disruptive Selection</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-the-editors-journey-creating-impactful-videos-for-youtube-with-pc-for-2024/"><u>[Updated] The Editor's Journey Creating Impactful Videos for YouTube with PC for 2024</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/2024-approved-new-frontiers-in-immersive-experiences-the-best-metaverse-insights/"><u>2024 Approved New Frontiers in Immersive Experiences The Best Metaverse Insights</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/2024-approved-snowball-rally-highlights-from-the-beijing-games-2022/"><u>2024 Approved Snowball Rally Highlights From the Beijing Games, 2022</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/branding-success-on-fb-through-immersive-cover-videos/"><u>Branding Success on FB Through Immersive Cover Videos</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/gelato-gadgets-step-by-step-screen-capture-for-frozen-snacks-for-2024/"><u>Gelato Gadgets Step-by-Step Screen Capture for Frozen Snacks for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/24-dial-up-your-digital-presence-tips-for-confident-video-creators/"><u>In 2024, Dial Up Your Digital Presence Tips for Confident Video Creators</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/24-three-trustworthy-ways-to-extract-audio-from-youtube-videos/"><u>In 2024, Three Trustworthy Ways to Extract Audio From YouTube Videos</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/the-hook-up-guide-scripts-to-seduce-listeners-for-2024/"><u>The Hook-Up Guide Scripts to Seduce Listeners for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ing-on-both-sides-work-and-youtubing-tips/"><u>Thriving on Both Sides Work and YouTubing Tips</u></a></li>
+<li><a href="https://video-creation-software.techidaily.com/updated-2024-approved-unleash-your-creativity-10-best-cartoon-animation-apps-for-mobile/"><u>Updated 2024 Approved Unleash Your Creativity 10 Best Cartoon Animation Apps for Mobile</u></a></li>
+</ul></div>
 

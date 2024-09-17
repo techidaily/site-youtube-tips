@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  YT Outro Guidelines  Keeping Viewers Hooked\""
-date: 2024-07-12T23:06:37.700Z
-updated: 2024-07-13T23:06:37.700Z
+date: 2024-09-13T05:08:24.357Z
+updated: 2024-09-17T02:20:57.285Z
 tags:
   - ai video
   - ai youtube
@@ -108,6 +108,19 @@ Next, go to the shape tool again and select the "Ellipse Tool." Deselect the cur
 
 ![subscribe button added](https://images.wondershare.com/filmora/article-images/2021/make-outstanding-youtube-outro-5.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1444782">
+					<video width="1024" height="576" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1444782.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/14559-1444782">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1444782.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:640px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fpropmoneyinc.pxf.io%2Fc%2F5597632%2F1444782%2F14559'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1444782/14559" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Step 6: Add Effects
 
 Now highlight the shape layers again by shift. Right-click and add "Layer Styles" such as an "Outer Glow." Expand the settings, and you can change the color of your glow. Also, increase the opacity and blending mode of that as well as the size and strength.
@@ -140,6 +153,13 @@ You may now know the tricks about how to create a YouTube outro in After Effect.
 
 [![Download Filmora X Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora X Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135415/19272" target="_top" id="2135415">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135415" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135415/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Step 1: Install Filmora video editor.
 
 Step 2: Search and download the "YouTube Pack" from Filmstock.
@@ -149,6 +169,26 @@ Step 2: Search and download the "YouTube Pack" from Filmstock.
 Step 3: Find the YouTube outro from the Filmora Titles folder. Then drag and apply to your videos.
 
 ![apply the youtube outro to your video](https://images.wondershare.com/filmora/article-images/2021/make-outstanding-youtube-outro-16.jpg)
+
+<!-- affiliate ads begin -->
+<span id="1982462">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982462.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982462">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982462.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982462%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982462/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134494/18498" target="_top" id="2134494">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134494" border="0" alt="https://techidaily.com" width="721" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134494/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Part 3: 5 Video Effects to Help You Create a Stunning YouTube Outro
 
@@ -194,20 +234,24 @@ With Adobe After Effects, you can create the perfect YouTube outros for your vid
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137206/26400" target="_top" id="2137206">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137206" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137206/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Max Wales
 
 Max Wales is a writer and a lover of all things video.
 
 Follow @Max Wales
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -216,6 +260,21 @@ Follow @Max Wales
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-crafting-success-with-these-15-youtube-introduction-plans/"><u>[New] 2024 Approved Crafting Success with These 15 YouTube Introduction Plans</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-protect-your-data-while-turning-youtube-to-mp3-3-steps/"><u>[New] In 2024, Protect Your Data While Turning YouTube to MP3 - 3 Steps</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/new-securing-conversation-logs-how-to-store-mb-chats-and-calls-safely/"><u>[New] Securing Conversation Logs How to Store MB Chats and Calls Safely</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/he-ultimate-explanation-of-youtube-keyword-optimization-for-2024/"><u>[New] The Ultimate Explanation of YouTube Keyword Optimization for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-2024-approved-background-blur-101-boosting-video-clarity-on-youtube/"><u>[Updated] 2024 Approved Background Blur 101 Boosting Video Clarity on YouTube</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-choreographing-photography-and-filming-in-one-sweep-for-2024/"><u>[Updated] Choreographing Photography and Filming in One Sweep for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-insta-twist-magic-secrets-to-spinning-video-content-for-platform-perfection-for-2024/"><u>[Updated] Insta-Twist Magic Secrets to Spinning Video Content for Platform Perfection for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-navigating-to-your-digital-editing-oasis-on-youtube-for-2024/"><u>[Updated] Navigating to Your Digital Editing Oasis on YouTube for 2024</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/updated-premium-budget-friendly-screen-grabber-toolkit/"><u>[Updated] Premium Budget-Friendly Screen Grabber Toolkit</u></a></li>
+<li><a href="https://win11.techidaily.com/clear-out-clutter-personalize-your-w11-workspace/"><u>Clear Out Clutter: Personalize Your W11 Workspace</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/free-thinkpad-t420s-driver-downloads-and-updates-for-windows-10-easy-guide/"><u>Free ThinkPad T420s Driver Downloads and Updates for Windows 10 - Easy Guide</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/how-do-i-stop-someone-from-tracking-my-vivo-y28-5g-drfone-by-drfone-virtual-android/"><u>How Do I Stop Someone From Tracking My Vivo Y28 5G? | Dr.fone</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/24-the-ultimate-guide-to-no-cost-melodies-for-content-makers/"><u>In 2024, The Ultimate Guide to No-Cost Melodies for Content Makers</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/the-beginners-guide-to-weekly-virtual-office-hours/"><u>The Beginner's Guide to Weekly Virtual Office Hours</u></a></li>
+</ul></div>
 
