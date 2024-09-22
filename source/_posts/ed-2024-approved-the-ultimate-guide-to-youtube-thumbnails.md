@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  The Ultimate Guide to YouTube Thumbnails\""
-date: 2024-07-12T22:59:31.824Z
-updated: 2024-07-13T22:59:31.824Z
+date: 2024-09-19T01:05:45.887Z
+updated: 2024-09-21T16:50:03.999Z
 tags:
   - ai video
   - ai youtube
@@ -99,6 +99,13 @@ In your thumbnail maker or a program like Photoshop, you’ll need to put your p
 
 If instead of an object you plan to fill the other side of your thumbnail with text, question marks, emojis, or some other graphic element then now is the time to add it.
 
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1484950/16446" target="_top" id="1484950">
+  <img src="//a.impactradius-go.com/display-ad/16446-1484950" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484950/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 2: How to Upload a YouTube Thumbnail
 
 When you upload a new video to YouTube, you will see a **Custom thumbnail** option under **Video thumbnails** after your upload is complete.
@@ -116,6 +123,13 @@ YouTube recommends that thumbnail images have a resolution of **1280x720px**, an
 
 Make sure that all of your thumbnails adhere to YouTube’s Community guidelines. Anything sexually suggestive, violent, or otherwise graphic could result in your video being age-restricted.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2037355/7443" target="_top" id="2037355">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037355" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037355/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 3: YouTube Thumbnail Makers
 
 You don’t have to go out and buy a photo editor like Photoshop to make custom video thumbnails (although it’s a good thing to use if you already have it). Here are two free online programs you can use instead:
@@ -129,6 +143,13 @@ Generally, using Canva is as easy as dragging and dropping things where you want
 You can make changes to the colors in your Spark thumbnail easily by selecting a new color scheme or filter. You can even toggle through layouts easily. When you choose a new layout, Spark will rearrange all the pieces of your current thumbnail to align with the new layout so you can quickly see what it looks like instead of having to rebuild.
 
 Click to check more [YouTube thumbnail makers](https://tools.techidaily.com/wondershare/filmora/download/)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2105882/7443" target="_top" id="2105882">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105882" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105882/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Part 4: How to Make Thumbnails That Get Clicks (Without Clickbait!)
 
@@ -190,14 +211,11 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -206,6 +224,23 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-tips.techidaily.com/ow-to-find-and-change-your-youtube-channel-url-super-easy-in-2024/"><u>[New] How to Find and Change Your YouTube Channel URL – Super Easy, In 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-tiny-videos-deciphered-crucial-elements/"><u>[New] In 2024, Tiny Videos Deciphered Crucial Elements!</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/he-hidden-truths-about-youtube-earnings-for-2024/"><u>[New] The Hidden Truths About YouTube Earnings for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/racing-trending-commentary-across-videos/"><u>[New] Tracing Trending Commentary Across Videos</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-balancing-content-creation-and-employment/"><u>[Updated] Balancing Content Creation and Employment</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-in-2024-how-to-purge-personal-youtube-history-records/"><u>[Updated] In 2024, How to Purge Personal YouTube History Records</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-unveiling-video-capabilities-dslr-or-mirrorless-for-2024/"><u>[Updated] Unveiling Video Capabilities DSLR or Mirrorless for 2024</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/2024-approved-from-stills-to-songs-the-art-of-audio-visual-fusion/"><u>2024 Approved From Stills to Songs The Art of Audio-Visual Fusion</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/bypassing-bugs-with-ease-quick-resolution-techniques-for-error-code-0x887a0006/"><u>Bypassing Bugs with Ease: Quick Resolution Techniques for Error Code 0X887A0006</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/can-t-view-hevc-h-265-content-on-samsung-galaxy-m54-5g-by-aiseesoft-video-converter-play-hevc-video-on-android/"><u>Can’t view HEVC H.265 content on Samsung Galaxy M54 5G</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/crafting-your-virtual-identity-the-metaverse-simplified-for-2024/"><u>Crafting Your Virtual Identity - The Metaverse Simplified for 2024</u></a></li>
+<li><a href="https://win-able.techidaily.com/effective-solutions-when-call-of-duty-warzone-wont-start/"><u>Effective Solutions When Call of Duty Warzone Won't Start</u></a></li>
+<li><a href="https://fox-links.techidaily.com/examining-the-best-technology-for-crystal-clear-4k-visuals-for-2024/"><u>Examining the Best Technology for Crystal-Clear 4K Visuals for 2024</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/leading-ipad-audio-recorder-software-list-3-for-2024/"><u>Leading iPad Audio Recorder Software List #3 for 2024</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/start-saving-with-reddit-today-13-easy-and-effective-strategies-no-experience/"><u>Start Saving with Reddit Today - 13 Easy & Effective Strategies (No Experience)</u></a></li>
+<li><a href="https://techtrends.techidaily.com/unlock-the-secrets-to-finding-and-restoring-deleted-messages-on-any-mobile-platform/"><u>Unlock the Secrets to Finding and Restoring Deleted Messages on Any Mobile Platform</u></a></li>
+</ul></div>
 

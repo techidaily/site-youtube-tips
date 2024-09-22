@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Cultivate Creativity  Best Video Concepts for Viewers\""
-date: 2024-09-10T16:00:03.809Z
-updated: 2024-09-16T20:57:52.733Z
+date: 2024-09-20T20:05:24.207Z
+updated: 2024-09-22T07:10:02.571Z
 tags:
   - ai video
   - ai youtube
@@ -75,19 +75,6 @@ As you can see, coming up with ideas doesn’t have to be an agonizing drag. It�
 
 **Show and Tell:** Like the elementary school exercise, show and tell is a terrific way to show off something interesting you have and talk about the significance of it. An old childhood toy, a new gadget, a gift from a friend: every item has a story, show and tell it.
 
-<!-- affiliate ads begin -->
-<span id="1484963">
-					<video width="864" height="864" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1484963.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1484963">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1484963.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1484963%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1484963/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **3\. Challenge Yourself**
 
 **Leave Your Comfort Zone:** Do something that you didn’t think you can do and film it. It might end up being a [Fail](#Fail), but that is how you learn. Learn a new language and talk to a native speaker. Go bungee jumping. Offer free hugs in public. Do something that makes your heart beat faster everyday and film it.
@@ -105,13 +92,6 @@ As you can see, coming up with ideas doesn’t have to be an agonizing drag. It�
 **Creating:** Are you an artist? Show your process in making a piece. Depending on the speed in which your project takes, use a timelapse to present what you did in the most effective way.
 
  **Unusual skill:** Do you have a party trick that you would love to show everyone, but don’t have a party to go to? YouTube is the place for you. Juggle, do a magic trick, dance like Christopher Walkens, whatever unusual skill you have, share it on camera, and get the accolades you so deserve.
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2123508/26400" target="_top" id="2123508">
-  <img src="//a.impactradius-go.com/display-ad/26400-2123508" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2123508/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **5\. Explore Your Surroundings**
 
@@ -158,6 +138,13 @@ As you can see, coming up with ideas doesn’t have to be an agonizing drag. It�
 **Haul:** If you have some money to spend, create a haul YouTube video. Haul video involves you going on a shopping spree and bringing home a big “haul.” In essence, it is an unboxing video on steroids. This type of video generally involves fashion or groceries, but it can be related to anything in large quantity. It’s all about showing off your new stuff to the audience.
 
 **Unboxing:** Got something new from Amazon? Before you open it, turn on your camera. Unboxing is an easy YouTube video idea that allows your viewers who are considering buying the item to better understand whether it is in fact the right purchase for them.
+
+<!-- affiliate ads begin -->
+<a href="https://bluettide.pxf.io/c/5597632/2141684/17092" target="_top" id="2141684">
+  <img src="//a.impactradius-go.com/display-ad/17092-2141684" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettide.pxf.io/i/5597632/2141684/17092" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **8\. Nurture Your Curiosity**
 
@@ -211,10 +198,10 @@ As you can see, coming up with ideas doesn’t have to be an agonizing drag. It�
 **“Best of” Video:** Select the best scenes from your favorite actor or the best plays from your favorite athlete and compile it into a video that highlights all the best moments.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118325/7443" target="_top" id="2118325">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118325" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137213/26400" target="_top" id="2137213">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137213" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118325/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137213/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **10\. Create Entertainment**
@@ -249,6 +236,13 @@ I bet you are bursting and ready to create your next video. Onwards! Remember, w
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1975836/19272" target="_top" id="1975836">
+  <img src="//a.impactradius-go.com/display-ad/19272-1975836" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1975836/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
@@ -270,17 +264,14 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-tips.techidaily.com/ed-2024-approved-the-art-of-building-powerful-youtube-backlinks/"><u>[Updated] 2024 Approved The Art of Building Powerful YouTube Backlinks</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ed-in-2024-obtain-exclusive-free-media-from-elite-4-youtube-clips/"><u>[Updated] In 2024, Obtain Exclusive Free Media From Elite 4 YouTube Clips</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/updated-the-gradual-glide-out-technique-for-audio-in-adobe-premiere-pro/"><u>[Updated] The Gradual Glide Out Technique for Audio in Adobe Premiere Pro</u></a></li>
-<li><a href="https://fox-info.techidaily.com/updated-the-power-of-precision-in-slug-line-writing-techniques/"><u>[Updated] The Power of Precision in Slug Line Writing Techniques</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-thriving-despite-youtubes-rigorous-copyright-strike-system/"><u>[Updated] Thriving Despite YouTube's Rigorous Copyright Strike System</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/2024-approved-expert-tips-for-efficient-instagram-to-mp4-transformation/"><u>2024 Approved Expert Tips for Efficient Instagram to MP4 Transformation</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/approved-the-editors-playbook-mastering-the-art-of-youtube-cuts/"><u>2024 Approved The Editor's Playbook Mastering the Art of YouTube Cuts</u></a></li>
-<li><a href="https://fake-location.techidaily.com/how-to-sharefake-gps-on-uber-for-realme-narzo-60x-5g-drfone-by-drfone-virtual-android/"><u>How to share/fake gps on Uber for Realme Narzo 60x 5G | Dr.fone</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/how-to-unlock-a-network-locked-honor-90-lite-phone-by-drfone-android/"><u>How to Unlock a Network Locked Honor 90 Lite Phone?</u></a></li>
-<li><a href="https://review-topics.techidaily.com/in-2024-how-to-find-ispoofer-pro-activation-key-on-samsung-galaxy-a54-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How to Find iSpoofer Pro Activation Key On Samsung Galaxy A54 5G? | Dr.fone</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/in-2024-how-to-unlock-a-oneplus-easily-by-drfone-android/"><u>In 2024, How To Unlock a OnePlus Easily?</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/24-the-ultimate-guide-to-video-editing-best-tools-for-short-forms/"><u>In 2024, The Ultimate Guide to Video Editing Best Tools for Short Forms</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-2024-approved-the-aspiring-asmr-producers-guide-to-video-excellence/"><u>[Updated] 2024 Approved The Aspiring ASMR Producer's Guide to Video Excellence</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-in-2024-exploring-iphoneutility-mirror-photo-mastery-tips/"><u>[Updated] In 2024, Exploring iPhone'utility Mirror Photo Mastery Tips</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-mastering-media-conversion-youtube-to-mp3-on-appleos-for-2024/"><u>[Updated] Mastering Media Conversion YouTube to MP3 on AppleOS for 2024</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/updated-principles-of-impactful-narrative-writing-for-films/"><u>[Updated] Principles of Impactful Narrative Writing for Films</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-the-investors-edge-tapping-into-youtube-creators-earnings-for-2024/"><u>[Updated] The Investor’s Edge Tapping Into YouTube Creators' Earnings for 2024</u></a></li>
+<li><a href="https://driver-error.techidaily.com/graphical-interrupt-rejected-by-system-win11/"><u>Graphical Interrupt Rejected by System Win11</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/how-to-transfer-data-from-honor-80-pro-straight-screen-edition-to-other-android-devices-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Data from Honor 80 Pro Straight Screen Edition to Other Android Devices? | Dr.fone</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-best-3-vivo-y36-emulator-for-mac-to-run-your-wanted-android-apps-drfone-by-drfone-android/"><u>In 2024, Best 3 Vivo Y36 Emulator for Mac to Run Your Wanted Android Apps | Dr.fone</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/unlock-iphone-14-pro-without-passcode-easily-by-drfone-ios/"><u>Unlock iPhone 14 Pro Without Passcode Easily</u></a></li>
 </ul></div>
 

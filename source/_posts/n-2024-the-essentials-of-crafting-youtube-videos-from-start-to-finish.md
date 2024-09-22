@@ -1,7 +1,7 @@
 ---
 title: "[New] In 2024, The Essentials of Crafting YouTube Videos From Start to Finish"
-date: 2024-09-15T20:12:21.112Z
-updated: 2024-09-17T00:33:47.633Z
+date: 2024-09-19T05:48:06.493Z
+updated: 2024-09-22T02:51:31.595Z
 tags:
   - ai video
   - ai youtube
@@ -60,13 +60,40 @@ Now that you're ready to sit down and write, here's what you do:
 
 The first step in writing a script is to develop an outline for the story. You might think that it is an unnecessary step, but it’s one of the most important steps to writing a script. The outline serves as a guide that will make the finished product better compared to when you just tried to wing it. One tip on how to write a script for a YouTube video is to have an outline for the beginning, middle, and ending of the video. Once you have all the elements of the story, then you can start with the first draft of the script.
 
+<!-- affiliate ads begin -->
+<span id="1304647">
+					<video width="240" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1304647.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/15852-1304647">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1304647.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1304647%2F15852'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1304647/15852" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 2\. Set the tone
 
 The tone you pick for the video will depend on your audience. It’s safe to assume that viewers want something that’s unique, informative, and engaging. In some cases, they look for a video that’s personal, and they can relate to it. Humor is also something that you should consider when writing a script.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1975802/19272" target="_top" id="1975802">
+  <img src="//a.impactradius-go.com/display-ad/19272-1975802" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1975802/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 3\. Just keep writing
 
 When you start writing it is important that you keep on doing it no matter what happens. Just write down everything that comes into your mind. After that, read what you’ve written. If you think that something needs to be replaced, then replace it. If you get more inspiration and think that the script is lacking, then add to it.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151889/7443" target="_top" id="2151889">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151889" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151889/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 4\. Make sure that the script is well structured
 
@@ -90,25 +117,11 @@ While you are scripting and focusing on the information you want to deliver, it�
 
 Remember to refer to your audience as ‘you’, not ‘you guys’ (you are speaking to individual viewers, not a collective) and to include moments of engagement throughout your videos. Ask your viewers questions to keep their minds active, this also encourages them to leave comments.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118305/7443" target="_top" id="2118305">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118305" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118305/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## After Writing your YouTube Video Script
 
 After writing the script, the next step is to invite a trusted friend or family member to look at the script. Ask them for their feedback and if they have any ideas to add. And don’t forget, be open-minded to feedback
 
 These are the tips to keep in mind when considering how to write a script for a YouTube video.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115915/19272" target="_top" id="2115915">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115915" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115915/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Add Subtitles to Your YouTube Video with Wondershare Filmora
 
@@ -117,13 +130,6 @@ Creating subtitles with Wondershare Filmora is very easy and a newbie can easily
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135356/19272" target="_top" id="2135356">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135356" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135356/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -146,17 +152,15 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-footage.techidaily.com/new-elevate-your-youtube-content-editing-in-adobe-premiere-for-2024/"><u>[New] Elevate Your YouTube Content Editing in Adobe Premiere for 2024</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/n-2024-how-to-rotate-youtube-videos-by-any-angle/"><u>[New] In 2024, How to Rotate YouTube Videos by Any Angle</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/n-2024-slicedmedia-studio/"><u>[New] In 2024, SlicedMedia Studio</u></a></li>
-<li><a href="https://extra-support.techidaily.com/updated-premium-picks-recommended-spots-for-procuring-snapchat-chime/"><u>[Updated] Premium Picks Recommended Spots for Procuring Snapchat Chime</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/approved-the-initial-stages-of-joining-youtube-as-a-chanel-owner/"><u>2024 Approved The Initial Stages of Joining YouTube as a Chanel Owner</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/approved-the-ultimate-checklist-for-youtube-rule-adherence/"><u>2024 Approved The Ultimate Checklist for YouTube Rule Adherence</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/4-easy-ways-for-your-honor-x9a-hard-reset-drfone-by-drfone-reset-android-reset-android/"><u>4 Easy Ways for Your Honor X9a Hard Reset | Dr.fone</u></a></li>
-<li><a href="https://solve-latest.techidaily.com/aspiring-trainers-ultimate-guide-to-pokemon-go-simplified-strategies-and-walkthrough-essentials-for-newcomers/"><u>Aspiring Trainer's Ultimate Guide to Pokémon GO: Simplified Strategies and Walkthrough Essentials for Newcomers</u></a></li>
-<li><a href="https://extra-information.techidaily.com/avoid-common-errors-while-spinning-videos-in-android-apps-for-2024/"><u>Avoid Common Errors While Spinning Videos in Android Apps for 2024</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/ensure-optimal-performance-with-updated-razer-graphics-card-drivers-free-downloads-for-windows-111087xpvista-users/"><u>Ensure Optimal Performance with Updated Razer Graphics Card Drivers - Free Downloads for Windows 11/10/8/7/XP/Vista Users</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/how-do-i-stop-someone-from-tracking-my-oppo-a1x-5g-drfone-by-drfone-virtual-android/"><u>How Do I Stop Someone From Tracking My Oppo A1x 5G? | Dr.fone</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/24-premium-online-streams-convert-youtube-to-mp3-instantly/"><u>In 2024, Premium Online Streams Convert YouTube to MP3 Instantly</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/new-2024-approved-discovering-the-best-in-screen-recording/"><u>[New] 2024 Approved Discovering the Best in Screen Recording</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-tiny-videos-deciphered-crucial-elements/"><u>[New] In 2024, Tiny Videos Deciphered Crucial Elements!</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-see-it-all-your-free-selection-of-50-youtube-banners/"><u>[Updated] See It All - Your Free Selection of 50 YouTube Banners</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-vanguard-maker-guild-sights-sonics-and-memories-for-2024/"><u>[Updated] Vanguard Maker Guild Sights, Sonics & Memories for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/approved-strategies-for-securely-amassing-one-million-video-watches/"><u>2024 Approved Strategies for Securely Amassing One Million Video Watches</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/how-microsoft-enhances-the-windows-experience-on-portable-devices/"><u>How Microsoft Enhances the Windows Experience on Portable Devices</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-how-xiaomi-13t-mirror-screen-to-pc-drfone-by-drfone-android/"><u>In 2024, How Xiaomi 13T Mirror Screen to PC? | Dr.fone</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/in-2024-telegram-promotion-techniques-for-marketing-beginners/"><u>In 2024, Telegram Promotion Techniques For Marketing Beginners</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/orchestrating-a-harmonious-tiktok-finale/"><u>Orchestrating a Harmonious TikTok Finale</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/unleash-creativity-with-these-top-free-slideshow-templates/"><u>Unleash Creativity with These Top Free Slideshow Templates</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "[Updated] 6 Completely Different Places to Get Icons and Logos for YouTube Videos"
-date: 2024-09-12T21:47:34.790Z
-updated: 2024-09-16T22:43:04.660Z
+date: 2024-09-17T19:04:37.649Z
+updated: 2024-09-21T16:40:29.914Z
 tags:
   - ai video
   - ai youtube
@@ -114,6 +114,19 @@ I searched for YouTube – you never know when you might need the YouTube logo.
 
 Although the site does not advertise PNG in the list of formats on their front page, downloads do include PNG versions (which is useful if you need transparency and don’t have a program which can edit vector files, like .eps).
 
+<!-- affiliate ads begin -->
+<span id="1975636">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1975636.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1975636">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975636.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975636%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975636/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## 4\. [IconArchive.com](http://www.iconarchive.com/)
 
 **Key Points:**
@@ -124,13 +137,6 @@ Although the site does not advertise PNG in the list of formats on their front p
 IconArchive has a huge selection of icons with somewhat of an office/business slant. I searched for ‘flower’ and half the results were of file-folders with flowers on them.
 
 ![ YouTube Logo Icon on IconArchive](https://images.wondershare.com/filmora/article-images/icons-logos-on-iconarchive.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135419/19272" target="_top" id="2135419">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135419" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135419/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 _Could be cool for a lifestyle video about school or work?_
 
@@ -165,10 +171,10 @@ In Step 1 it’ll ask for your company name and an activity type. You just need 
 ![ YouTube Logo Icon on Logaster Start Window](https://images.wondershare.com/filmora/article-images/branding-icons-logos-on-logaster.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115942/19272" target="_top" id="2115942">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115942" border="0" alt="https://techidaily.com" width="160" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2123511/26400" target="_top" id="2123511">
+  <img src="//a.impactradius-go.com/display-ad/26400-2123511" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115942/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2123511/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 My heart burns with the secret desire to be YouTube’s Neil Degrasse Tyson (it doesn’t really, but he is super cool) so I tried ‘Katie Does Science’ and ‘Science, Studies, Education’. Here’s what it came up with:
@@ -199,28 +205,29 @@ To get started on Icons8, type something into the search bar on the home page th
 
 ![ Gaming Logo Icon on Icons8](https://images.wondershare.com/filmora/article-images/gaming-icons-logos-on-icons8.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2137394/7443" target="_top" id="2137394">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137394" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137394/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 _Lower down in the results there were different kinds of sports balls, hand-held gaming systems, playing cards, joy sticks, baseball caps and more._
 
 After you find an icon you like, click on it and it will appear on the right side of your screen where you’ll be able to make a few changes (an editing screen will pop up once you start clicking on things). You can edit your colors, overlay small decals, add text, and add a border, change your background and adjust your size. Here’s the editing screen:
 
 ![ Edit Gaming Logo Icon on Icons8](https://images.wondershare.com/filmora/article-images/edit-gaming-icons-logos-on-icons8.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://electronicx.pxf.io/c/5597632/1167086/14483" target="_top" id="1167086">
+  <img src="//a.impactradius-go.com/display-ad/14483-1167086" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://electronicx.pxf.io/i/5597632/1167086/14483" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 You can give your icon a pretty different look from its default. Check this out:
 
 ![ Change Gaming Logo Icon background on Icons8](https://images.wondershare.com/filmora/article-images/change-gaming-icons-logos-background-on-icons8.jpg)
-
-<!-- affiliate ads begin -->
-<span id="1983446">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983446.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983446">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983446.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983446%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983446/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 You cannot download your icon from the editing screen. You need to click Save, and then download it from the main display screen here:
 
@@ -236,19 +243,6 @@ However, the preview is larger than the actual profile picture. Once I set it, i
 
 ![ Preview Gaming Logo Icon made with icons8 to YouTube](https://images.wondershare.com/filmora/article-images/preview-gaming-icons-logos-made-with-icons8.jpg)
 
-<!-- affiliate ads begin -->
-<span id="1770544">
-					<video width="240" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1770544.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/20702-1770544">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1770544.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftokenmetrics.sjv.io%2Fc%2F5597632%2F1770544%2F20702'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1770544/20702" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Looking for somewhere you can build your own icon/logo from scratch? Check out this [list of logo makers](https://www.filmora.io/community-blog/top-9-free-youtube-logo-makers-304.html).
 
 After downloading the icons or logos, it is time to add them to your YouTube video. Here I recommend our [Wondershare Filmora video editor](https://tools.techidaily.com/wondershare/filmora/download/). Below is a video tutorial about [how to add a logo to video in Filmora](https://tools.techidaily.com/wondershare/filmora/download/). Remember to download the free trial version to test.
@@ -258,10 +252,10 @@ After downloading the icons or logos, it is time to add them to your YouTube vid
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118312/7443" target="_top" id="2118312">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118312" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1868499/19272" target="_top" id="1868499">
+  <img src="//a.impactradius-go.com/display-ad/19272-1868499" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118312/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1868499/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -285,12 +279,21 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-video-files.techidaily.com/new-in-2024-professional-techniques-for-mobile-and-dslr-igtv-mastery/"><u>[New] In 2024, Professional Techniques for Mobile & DSLR IGTV Mastery</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-in-2024-transform-your-youtube-presence-effortlessly/"><u>[Updated] In 2024, Transform Your YouTube Presence Effortlessly</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/approved-essential-steps-for-chromakey-magic/"><u>2024 Approved Essential Steps for Chromakey Magic</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/deciphering-hulus-mystery-tips-and-tricks-for-overcoming-error-rununk13/"><u>Deciphering Hulu's Mystery: Tips and Tricks for Overcoming ERROR RUNUNK13</u></a></li>
-<li><a href="https://techidaily.com/repair-damaged-unplayable-video-files-of-infinix-smart-7-hd-on-windows-by-stellar-video-repair-mobile-video-repair/"><u>Repair damaged, unplayable video files of Infinix Smart 7 HD on Windows</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/by-step-editing-and-uploading-360-videos-on-youtube-for-2024/"><u>Step-by-Step Editing & Uploading 360 Videos on YouTube for 2024</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/top-8-chrome-productivity-boosts-with-cutting-edge-ai-technology/"><u>Top 8 Chrome Productivity Boosts with Cutting-Edge AI Technology</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/new-comprehensive-guide-to-xbox-screen-recording-success/"><u>[New] Comprehensive Guide to Xbox Screen Recording Success</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-balancing-act-proper-techniques-for-stable-photos/"><u>[Updated] Balancing Act Proper Techniques for Stable Photos</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/updated-high-def-gaming-gpu-recommendations/"><u>[Updated] High-Def Gaming GPU Recommendations</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-in-2024-video-visibility-the-ideal-platform-for-your-work/"><u>[Updated] In 2024, Video Visibility The Ideal Platform for Your Work</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/updated-master-5-strategies-for-copying-files-to-your-system/"><u>[Updated] Master 5 Strategies for Copying Files to Your System</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-mastering-adsense-on-youtube-a-beginners-guide/"><u>[Updated] Mastering AdSense on YouTube A Beginner's Guide</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-strategies-for-successful-youtube-monetization-for-2024/"><u>[Updated] Strategies for Successful YouTube Monetization for 2024</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/2024-approved-in-depth-insights-into-camstudio-recording/"><u>2024 Approved In-Depth Insights Into CamStudio Recording</u></a></li>
+<li><a href="https://some-skills.techidaily.com/2024-approved-the-top-artisans-in-sound-and-video-craftsminas-online/"><u>2024 Approved The Top Artisans in Sound and Video Craftsminas Online</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/approved-the-video-gurus-playbook-smooth-transition-to-easy-youtube-cc-and-subtitles/"><u>2024 Approved The Video Guru's Playbook Smooth Transition to Easy YouTube CC & Subtitles</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/he-and-stretch-with-these-expert-yogis-online/"><u>Breathe and Stretch with These Expert Yogis Online</u></a></li>
+<li><a href="https://discover-helper.techidaily.com/conversion-efficace-et-dhaut-qualite-des-fichiers-ts-vers-mp4-techniques-rapides-a-succes/"><u>Conversion Efficace Et D'Haut Qualité Des Fichiers TS Vers MP4 : Techniques Rapides À Succès</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/jolly-juxtaposition-of-latins-and-games/"><u>Jolly Juxtaposition of Latins and Games</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/stylish-methodology-combining-gopro-imagery-into-360-video-tapestry-for-2024/"><u>Stylish Methodology Combining GoPro Imagery Into 360 Video Tapestry for 2024</u></a></li>
+<li><a href="https://extra-information.techidaily.com/unleashing-humor-kinemaster-for-memes/"><u>Unleashing Humor KineMaster for Memes</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/visual-impact-journey-begins-with-our-50-free-banners/"><u>Your Visual Impact Journey Begins with Our 50 FREE Banners</u></a></li>
 </ul></div>
 

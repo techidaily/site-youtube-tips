@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Step by Step Guide to Crafting Striking YouTube Thumbnails - Mac Edition\""
-date: 2024-09-11T20:57:41.189Z
-updated: 2024-09-16T19:23:13.858Z
+date: 2024-09-21T01:57:38.837Z
+updated: 2024-09-22T08:13:13.808Z
 tags:
   - ai video
   - ai youtube
@@ -63,25 +63,18 @@ You can easily choose the frame from the video or use the preview frame button t
 
 ![thumbnails editor](https://images.wondershare.com/filmora/Mac-articles/thumbnails-editor.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151870/7443" target="_top" id="2151870">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151870" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151870/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 2. Add text, shape, and image overlays
 
 Once you’ve chosen the frame for the thumbnail, the next step would be to add text to it to catch the attention of the audience. You can also adjust the thumbnail size as per your requirement, however, the ideal size would be 1280x720 pixels with a minimum width of 640 pixels.
 
 ![add text on thumbnail](https://images.wondershare.com/filmora/Mac-articles/add-text-on-thumbnail.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115931/19272" target="_top" id="2115931">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115931" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115931/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<a href="https://aidotcom.pxf.io/c/5597632/2134501/19576" target="_top" id="2134501">
-  <img src="//a.impactradius-go.com/display-ad/19576-2134501" border="0" alt="https://techidaily.com" width="640" height="90"/>
-</a>
-<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134501/19576" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 3. Add effects
 
@@ -90,16 +83,10 @@ FilmoraX has a wide range of effects that you can apply to your videos or pictur
 ![filter9](https://images.wondershare.com/filmora/guide/filter-9-mac.jpg)
 
 <!-- affiliate ads begin -->
-<span id="1938136">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1938136.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1938136">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1938136.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1938136%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1938136/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/1925468/19272" target="_top" id="1925468">
+  <img src="//a.impactradius-go.com/display-ad/19272-1925468" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925468/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 4. Save the thumbnail
@@ -115,6 +102,13 @@ So, using this thumbnail maker you can easily create custom thumbnails for your 
 Hopefully, the above-mentioned steps have given you enough insight and clarity on making creative and good youtube thumbnails. Using [FilmoraX](https://tools.techidaily.com/wondershare/filmora/download/) will further simplify the process for you with its amazing tools and features!
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144289/7443" target="_top" id="2144289">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144289" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144289/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
@@ -139,18 +133,14 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-mirroring-recording.techidaily.com/new-2024-approved-become-a-pro-at-sims-4-video-sessions/"><u>[New] 2024 Approved Become a Pro at Sims 4 Video Sessions</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/new-2024-approved-essential-mc-house-strategies-6-10/"><u>[New] 2024 Approved Essential MC House Strategies #6-10</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/o-expenses-the-ultimate-guide-to-16-top-tier-youtube-rippers-for-audios-for-2024/"><u>[New] No Expenses The Ultimate Guide to 16 Top-Tier YouTube Rippers for Audios for 2024</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/new-video-capture-perfection-achieving-silence-success/"><u>[New] Video Capture Perfection Achieving Silence Success</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-perfecting-the-pathway-of-imovie-content-to-youtube-for-2024/"><u>[Updated] Perfecting the Pathway of iMovie Content to YouTube for 2024</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-professional-and-amateur-cameras-a-youtube-journey/"><u>[Updated] Professional & Amateur Cameras A YouTube Journey</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-unlocking-imovies-potential-youtube-video-edition-excellence/"><u>[Updated] Unlocking iMovie's Potential YouTube Video Edition Excellence</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/8-best-apps-for-screen-mirroring-xiaomi-redmi-note-12-4g-pc-drfone-by-drfone-android/"><u>8 Best Apps for Screen Mirroring Xiaomi Redmi Note 12 4G PC | Dr.fone</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/24-setup-essentials-prepping-for-a-thriving-youtube-channel/"><u>In 2024, Setup Essentials Prepping for a Thriving YouTube Channel</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/live-radio-at-your-fingertips-an-easy-recording-guide-for-2024/"><u>Live Radio at Your Fingertips An Easy Recording Guide for 2024</u></a></li>
-<li><a href="https://ai-video-tools.techidaily.com/new-2024-approved-free-divx-video-trimming-tools-top-picks/"><u>New 2024 Approved Free Divx Video Trimming Tools Top Picks</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/teach-yourself-the-secrets-of-seamless-multiple-picture-sharing-on-facebook-today/"><u>Teach Yourself the Secrets of Seamless Multiple Picture Sharing on Facebook Today!</u></a></li>
-<li><a href="https://tiktok-videos.techidaily.com/who-are-tiktoks-10-most-popular-game-creators-in-2024/"><u>Who Are TikTok’s 10 Most Popular Game Creators, In 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/reating-captivating-youtube-openers-two-ways-for-2024/"><u>[New] Creating Captivating YouTube Openers - Two Ways for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ive-speech-to-text-converter-for-2024/"><u>[New] Live Speech to Text Converter for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-2024-approved-how-to-safely-increase-your-youtube-fanbase-to-one-million/"><u>[Updated] 2024 Approved How to Safely Increase Your YouTube Fanbase To One Million</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/updated-demystifying-zoom-sessions-into-smaller-groups/"><u>[Updated] Demystifying Zoom Sessions Into Smaller Groups</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-in-2024-step-by-step-implementing-auto-captions-in-reels/"><u>[Updated] In 2024, Step-by-Step Implementing Auto Captions in Reels</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/choosing-your-ideal-ipad-our-comprehensive-comparison-chart-explained/"><u>Choosing Your Ideal iPad? Our Comprehensive Comparison Chart Explained</u></a></li>
+<li><a href="https://data-safeguard.techidaily.com/1721202585179-enhance-data-security-on-mac-using-stellar-file-eraser-5-set-up-regular-clean-up-sessions-now/"><u>Enhance Data Security on Mac Using Stellar File Eraser 5 - Set Up Regular Clean-Up Sessions Now</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/how-to-remove-or-bypass-knox-enrollment-service-on-vivo-v30-pro-by-drfone-android/"><u>How To Remove or Bypass Knox Enrollment Service On Vivo V30 Pro</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-the-6-best-sim-unlock-services-that-actually-work-on-your-zte-blade-a73-5g-device-by-drfone-android/"><u>In 2024, The 6 Best SIM Unlock Services That Actually Work On Your ZTE Blade A73 5G Device</u></a></li>
 </ul></div>
 

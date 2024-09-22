@@ -1,7 +1,7 @@
 ---
 title: "Who's Gaining Thunder in the Video Cosmos?"
-date: 2024-09-11T21:52:11.316Z
-updated: 2024-09-16T16:55:37.690Z
+date: 2024-09-16T16:18:09.105Z
+updated: 2024-09-22T07:38:20.655Z
 tags:
   - ai video
   - ai youtube
@@ -83,13 +83,6 @@ Based in Madrid, El Rubius OMG first became popular in Spanish-speaking countrie
 
 ![Smosh](https://images.wondershare.com/filmora/article-images/smosh.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2121335/18498" target="_top" id="2121335">
-  <img src="//a.impactradius-go.com/display-ad/18498-2121335" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2121335/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Originally, Smosh was a channel run by sketch comedy duo Ian Andrew Hecox and Anthony Padilla. They started the Smosh YouTube channel in 2005 and since then they have grown their team to include more creators, and their content to include animation and gaming. Smosh has become much more than two funny guys on YouTube – it is a wildly successful content company.
 
 Most channels that have one viral video do not go on to have sustained success on YouTube, but Smosh is an exception to this rule. Their ‘Pokemon Theme Music Video’, released in 2005, became the most viewed video of all time (as of that year). This video kick-started the growth of their channel.
@@ -97,16 +90,10 @@ Most channels that have one viral video do not go on to have sustained success o
 In 2017, Anthony Padilla chose to leave Smosh to focus on his own solo YouTube channel.
 
 <!-- affiliate ads begin -->
-<span id="1983446">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983446.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983446">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983446.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983446%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983446/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2123512/26400" target="_top" id="2123512">
+  <img src="//a.impactradius-go.com/display-ad/26400-2123512" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2123512/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 5\.  Fernanfloo
@@ -121,18 +108,25 @@ At the end of 2015, Alvarado launched the Fenanfloo mobile app that had 2.3 mill
 
 Looking for a live [YouTube subscriber chart](https://tools.techidaily.com/wondershare/filmora/download/)?
 
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2148648/16836" target="_top" id="2148648">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148648" border="0" alt="https://techidaily.com" width="468" height="60"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148648/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Edit YouTube Videos with Full-Featured Video Editing Software
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
-![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
-
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136618/26400" target="_top" id="2136618">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136618" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2151892/7443" target="_top" id="2151892">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151892" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136618/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151892/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 Richard Bennett
 
@@ -155,20 +149,18 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-video-capture.techidaily.com/new-visioncaptor-new-era-of-screen-recorders-unveiled-for-2024/"><u>[New] 'VisionCaptor' New Era of Screen Recorders Unveiled for 2024</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ecoding-the-marketplace-where-to-invest-in-monetized-channels-for-2024/"><u>[New] Decoding the Marketplace Where to Invest in Monetized Channels for 2024</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/armonizing-hues-in-online-beauty-videos/"><u>[New] Harmonizing Hues in Online Beauty Videos</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/new-huawei-p10-review/"><u>[New] Huawei P10 Review</u></a></li>
-<li><a href="https://article-helps.techidaily.com/new-your-digital-footprint-the-impact-of-off-facebook-history/"><u>[New] Your Digital Footprint The Impact of Off-Facebook History</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-ace-your-youtube-finances-secrets-for-profits-at-the-500-subscriber-milestone/"><u>[Updated] Ace Your Youtube Finances Secrets for Profits at the 500-Subscriber Milestone</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-learn-from-the-best-youtubes-top-green-screen-techniques-for-2024/"><u>[Updated] Learn From The Best Youtube’s Top Green Screen Techniques for 2024</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-rush-towards-a-millennium-of-channel-supporters-for-2024/"><u>[Updated] Rush Towards a Millennium of Channel Supporters for 2024</u></a></li>
-<li><a href="https://win-able.techidaily.com/banish-game-disruptions-resolving-persistent-crashing-problems-in-psychonauts-2-on-windowsmacos/"><u>Banish Game Disruptions: Resolving Persistent Crashing Problems in Psychonauts 2 on Windows/MacOS</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ing-compelling-thumbnails-for-your-youtube-content/"><u>Crafting Compelling Thumbnails for Your YouTube Content</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/cutting-edge-optics-top-recommendations-for-best-4k-cinematography/"><u>Cutting-Edge Optics Top Recommendations for Best 4K Cinematography</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/in-2024-expert-guide-to-snagging-twitter-gifs-pc/"><u>In 2024, Expert Guide to Snagging Twitter GIFs (PC)</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/24-unleash-potential-optimizing-short-films-in-marketing/"><u>In 2024, Unleash Potential Optimizing Short Films in Marketing</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/in-2024-unleashing-full-potential-of-firefox-x-pie-mode/"><u>In 2024, Unleashing Full Potential of Firefox X-Pie Mode</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ators-crafting-engaging-marvel-escapades/"><u>Innovators Crafting Engaging Marvel Escapades</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/new-2024-approved-demystifying-the-process-of-writing-youtube-video-content/"><u>[New] 2024 Approved Demystifying the Process of Writing YouTube Video Content</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/1716068659777-new-2024-approved-top-12-capture-providers-never-stop/"><u>[New] 2024 Approved Top 12 Capture Providers, Never Stop!</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/new-harmonic-hits-top-rated-dj-template-downloads/"><u>[New] Harmonic Hits Top-Rated DJ Template Downloads</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-musical-masterclasses-in-15-short-video-formats-on-youtube/"><u>[New] In 2024, Musical Masterclasses in 15 Short Video Formats on YouTube</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-tiny-videos-deciphered-crucial-elements/"><u>[New] In 2024, Tiny Videos Deciphered Crucial Elements!</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-see-it-all-your-free-selection-of-50-youtube-banners/"><u>[Updated] See It All - Your Free Selection of 50 YouTube Banners</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-step-by-step-tutorial-for-aspiring-mukbang-creators-for-2024/"><u>[Updated] Step-by-Step Tutorial for Aspiring Mukbang Creators for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-vanguard-maker-guild-sights-sonics-and-memories-for-2024/"><u>[Updated] Vanguard Maker Guild Sights, Sonics & Memories for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/approved-strategies-for-securely-amassing-one-million-video-watches/"><u>2024 Approved Strategies for Securely Amassing One Million Video Watches</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/24-end-screen-magic-free-templates-to-boost-video-appeal/"><u>In 2024, End-Screen Magic Free Templates to Boost Video Appeal</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-prevent-cross-site-tracking-on-oppo-f23-5g-and-browser-drfone-by-drfone-virtual-android/"><u>In 2024, Prevent Cross-Site Tracking on Oppo F23 5G and Browser | Dr.fone</u></a></li>
+<li><a href="https://win-blog.techidaily.com/logiciel-denregistrement-decran-pour-mac-trouvez-le-meilleur-achat/"><u>Logiciel D'enregistrement D’écran Pour Mac - Trouvez Le Meilleur Achat</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/mastering-your-messenger-presence-a-zodiac-guide-for-2024/"><u>Mastering Your Messenger Presence - A Zodiac Guide for 2024</u></a></li>
 </ul></div>
 

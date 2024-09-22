@@ -1,7 +1,7 @@
 ---
 title: "[New] Master the Art of Immutable Image Creation"
-date: 2024-09-16T01:32:18.884Z
-updated: 2024-09-16T22:02:31.880Z
+date: 2024-09-15T03:25:42.751Z
+updated: 2024-09-22T03:14:22.515Z
 tags:
   - ai video
   - ai youtube
@@ -80,6 +80,13 @@ To get similar functions from the ‘any stable surface’ solution you can use 
 
 Now if your camera isn’t up high enough, or is too high, you can adjust it just by adding or taking away books. If you want to move it closer or farther away from you, just pull the towel forwards or backward.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2049382/7443" target="_top" id="2049382">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049382" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049382/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### **DIY gripping ‘Gorillapod’ using wire and tape**
 
 Gorillapod’s are cool because you can use them like normal tripods, carry them around like selfie sticks, or attach them to things like fences and posts. Here’s how you can make something similar using **wire**, **electrical tape** or **duct tape**, and a **1/4 bolt**.
@@ -87,13 +94,6 @@ Gorillapod’s are cool because you can use them like normal tripods, carry them
 Your wire should be fairly stiff and you’ll need three pieces the same length, which should be at least 10 inches. Old clothes hangers work well. This needs to be something strong enough to support the weight of your camera, but soft enough that it’s not impossible for you to bend.
 
  ![wire and type](https://images.wondershare.com/filmora/article-images/wire-and-type.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130870/7443" target="_top" id="2130870">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130870" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130870/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 _All of your supplies plus the finished product._
 
@@ -118,16 +118,10 @@ _Note: make sure the bolt is a fit for your camera before you get too far into t
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<span id="1975562">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1975562.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1975562">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975562.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975562%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975562/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://wigfever.sjv.io/c/5597632/2014850/22899" target="_top" id="2014850">
+  <img src="//a.impactradius-go.com/display-ad/22899-2014850" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014850/22899" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -151,16 +145,16 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-tips.techidaily.com/asy-youtube-file-transfer-techniques-for-2024/"><u>[New] Easy YouTube File Transfer Techniques for 2024</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/astering-tripod-setup-in-vlogging/"><u>[New] Mastering Tripod Setup in Vlogging</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/imple-steps-to-great-videos-crafting-10-basic-concepts-easily/"><u>[New] Simple Steps to Great Videos Crafting 10 Basic Concepts Easily</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/2024-approved-crafting-images-to-go-viral-the-ultimate-step-by-step-guide-for-youtube-success/"><u>2024 Approved Crafting Images to Go Viral The Ultimate Step-by-Step Guide for YouTube Success</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/approved-exploring-video-marketing-youtube-or-tiktok/"><u>2024 Approved Exploring Video Marketing YouTube or TikTok?</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/approved-the-ultimate-list-of-virtual-journeys-by-channel/"><u>2024 Approved The Ultimate List of Virtual Journeys, By Channel</u></a></li>
-<li><a href="https://bypass-frp.techidaily.com/about-zte-nubia-flip-5g-frp-bypass-by-drfone-android/"><u>About ZTE Nubia Flip 5G FRP Bypass</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/gigglegraph-make-amusing-graphics-swiftly-for-2024/"><u>GiggleGraph Make Amusing Graphics Swiftly for 2024</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/how-to-find-and-install-the-best-audio-drivers-for-windows-7/"><u>How to Find and Install the Best Audio Drivers for Windows 7</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/inside-the-tech-what-is-virtual-reality-gear-in-2024/"><u>Inside the Tech What Is Virtual Reality Gear, In 2024</u></a></li>
-<li><a href="https://win-answers.techidaily.com/resolved-issues-fixing-the-problem-when-fifa-21-doesnt-launch/"><u>Resolved Issues: Fixing the Problem When FIFA 21 Doesn't Launch</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/new-in-2024-effortless-integration-uploading-and-showcasing-imovie-videos-to-vimeo/"><u>[New] In 2024, Effortless Integration Uploading and Showcasing iMovie Videos to Vimeo</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-unwanted-comments-made-easy-an-overview/"><u>[New] In 2024, Unwanted Comments Made Easy An Overview</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ransform-your-vision-youtubes-innovative-green-screen-solutions-for-2024/"><u>[New] Transform Your Vision – YouTube's Innovative Green Screen Solutions for 2024</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/2024-approved-best-kept-secrets-elite-mac-speech-apps-youre-missing-out-on/"><u>2024 Approved Best-Kept Secrets Elite Mac Speech Apps You're Missing Out On</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ring-free-and-premium-youtube-experiences-whats-best/"><u>Comparing Free and Premium YouTube Experiences What's Best?</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/vering-calmer-video-consumption-three-ways-to-pause-time-56-chars-slightly-over-but-a-minor-exception-due-to-title-length/"><u>Discovering Calmer Video Consumption Three Ways to Pause Time (56 Chars, Slightly over but a Minor Exception Due to Title Length)</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ways-to-add-music-to-imovie-from-youtube-for-2024/"><u>Easy Ways to Add Music to iMovie From YouTube for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ree-youtube-music-anytime-with-these-high-performing-splitters-for-2024/"><u>Get Free YouTube Music Anytime With These High-Performing Splitters for 2024</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/monthly-income-for-content-creators-on-youtube/"><u>Monthly Income for Content Creators on YouTube?</u></a></li>
+<li><a href="https://fox-that.techidaily.com/the-seven-major-iphone-x-headaches-and-how-to-easily-resolve-them/"><u>The Seven Major iPhone X Headaches and How to Easily Resolve Them</u></a></li>
+<li><a href="https://discover-amazing.techidaily.com/transformez-vos-fichiers-avchd-m2ts-en-mp4-sans-compromettre-la-qualite-top-5-methodes/"><u>Transformez Vos Fichiers AVCHD M2TS en MP4 Sans Compromettre La Qualité - Top 5 Méthodes</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "[Updated] The Science of Captivating YouTube Thumbnails"
-date: 2024-07-12T22:57:48.858Z
-updated: 2024-07-13T22:57:48.858Z
+date: 2024-09-16T22:59:20.665Z
+updated: 2024-09-22T04:27:52.365Z
 tags:
   - ai video
   - ai youtube
@@ -132,6 +132,13 @@ Many of you might be interested in how to make a fortnite thumbnail, so here it 
 
 ![make-fortnite-thumbnail-step3](https://images.wondershare.com/filmora/article-images/make-fortnite-thumbnail-step3.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1484945/16446" target="_top" id="1484945">
+  <img src="//a.impactradius-go.com/display-ad/16446-1484945" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484945/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 1. Open Filmora X, make sure to select the 16:9 screen ratio. Import the screenshot that you have taken from Fortnite.
 
 ![make-fortnite-thumbnail-step4](https://images.wondershare.com/filmora/article-images/make-fortnite-thumbnail-step4.jpg)
@@ -139,6 +146,13 @@ Many of you might be interested in how to make a fortnite thumbnail, so here it 
 1. Place it into the timeline to start working on it.
 
 ![make-fortnite-thumbnail-step5](https://images.wondershare.com/filmora/article-images/make-fortnite-thumbnail-step5.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2037358/7443" target="_top" id="2037358">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037358" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037358/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 1. Now to separate the character from the background, go to the Effects. Under effects, you can find a tab named AI Portraits. Click on AI Portrait. Now drag the Human Segmentation and drop it on the screenshot in the timeline.
 
@@ -160,6 +174,19 @@ Many of you might be interested in how to make a fortnite thumbnail, so here it 
 
 ![make-fortnite-thumbnail-step10](https://images.wondershare.com/filmora/article-images/make-fortnite-thumbnail-step10.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1993652">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1993652.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1993652">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993652.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993652%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993652/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 1. To make it more attractive, we can add icons and other elements from Filmora's Element tab. You can also download the stickers from the internet and use them.
 
 ![make-fortnite-thumbnail-step11](https://images.wondershare.com/filmora/article-images/make-fortnite-thumbnail-step11.jpg)
@@ -172,7 +199,21 @@ Many of you might be interested in how to make a fortnite thumbnail, so here it 
 
 ![make-fortnite-thumbnail-step13](https://images.wondershare.com/filmora/article-images/make-fortnite-thumbnail-step13.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2087253/19272" target="_top" id="2087253">
+  <img src="//a.impactradius-go.com/display-ad/19272-2087253" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2087253/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  ---
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135400/19272" target="_top" id="2135400">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135400" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135400/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## How to Add a Custom YouTube Thumbnail to Your Video in YouTube
 
@@ -204,14 +245,11 @@ Benjamin Arango is a writer and a lover of all things video.
 
 Follow @Benjamin Arango
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -220,6 +258,21 @@ Follow @Benjamin Arango
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-tips.techidaily.com/ed-2024-approved-techniques-for-efficiently-blending-flv-files/"><u>[Updated] 2024 Approved Techniques for Efficiently Blending FLV Files</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/updated-in-2024-how-to-record-a-timelapse-video-on-ipad/"><u>[Updated] In 2024, How to Record a Timelapse Video on iPad</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-the-definitive-guide-to-film-gear-buying-tips-for-2024/"><u>[Updated] The Definitive Guide to Film Gear Buying Tips for 2024</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/customize-and-captivate-thumbnail-magic-for-shorts/"><u>Customize & Captivate Thumbnail Magic for Shorts</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/expert-tips-for-superior-4k-visual-quality-with-gear/"><u>Expert Tips for Superior 4K Visual Quality with Gear</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/free-to-paid-subscriber-count-surpasses-500-for-2024/"><u>From Free to Paid Subscriber Count Surpasses 500 for 2024</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-15-best-strongest-pokemon-to-use-in-pokemon-go-pvp-leagues-for-honor-play-40c-drfone-by-drfone-virtual-android/"><u>In 2024, 15 Best Strongest Pokémon To Use in Pokémon GO PvP Leagues For Honor Play 40C | Dr.fone</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/24-streaming-success-stories-of-gaming-geeks/"><u>In 2024, Streaming Success Stories of Gaming Geeks</u></a></li>
+<li><a href="https://sound-optimizing.techidaily.com/new-exploring-the-best-cinematic-sounds-an-assembled-top-8-collection-for-2024/"><u>New Exploring the Best Cinematic Sounds - An Assembled Top 8 Collection for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ify-your-video-sharing-with-our-youtube-upload-strategy-for-2024/"><u>Simplify Your Video Sharing with Our YouTube Upload Strategy for 2024</u></a></li>
+<li><a href="https://driver-download.techidaily.com/the-essential-process-of-upgrading-intelamd-cpu-drivers-in-microsoft-windows-systems/"><u>The Essential Process of Upgrading Intel/AMD CPU Drivers in Microsoft Windows Systems</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/e-stories-crafting-powerful-yt-narratives/"><u>Unique Stories Crafting Powerful YT Narratives</u></a></li>
+<li><a href="https://dvd-bd.techidaily.com/windows-11-dvd-3/"><u>Windows 11 DVD バックアップ手順：3種の最良方法</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/world-of-warcraft-fixing-launch-errors-and-optimizing-game-performance-on-pc/"><u>World of Warcraft: Fixing Launch Errors and Optimizing Game Performance on PC</u></a></li>
+</ul></div>
 

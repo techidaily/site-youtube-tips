@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Optimizing Self-Filmed Content on YouTube\""
-date: 2024-07-12T23:01:16.108Z
-updated: 2024-07-13T23:01:16.108Z
+date: 2024-09-17T06:28:34.194Z
+updated: 2024-09-21T16:56:43.200Z
 tags:
   - ai video
   - ai youtube
@@ -52,6 +52,13 @@ Objects and people that just make it into the sides of the frame will appear mor
 
 If you look closely into Sean’s eyes, you can also see a specular highlight in the shape of a circle. Many people like the way eyes look against a ring light.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2037351/7443" target="_top" id="2037351">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037351" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037351/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 2.  Medium Vlog Set-Up
 
 If you have more space and want to shoot a more professional-looking talking-head shot with more realistic perspectives, a medium vlog set-up may be a better alternative for you.
@@ -73,6 +80,13 @@ If your talking-head shot has got to include two people, you can use a similar s
 If you look back at the 39-second mark of deadmau5’s Masterclass trailer, you can see that there’s a lot of space to the left and right of deadmau5\. Now imagine the same shot but with two people.
 
 With two people, though, you’ll want to set up your mic slightly differently. Rather than using a directional shotgun mic with a narrow area of sensitivity, you’ll want to use a directional mic with a wider area of sensitivity.
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2130531/26400" target="_top" id="2130531">
+  <img src="//a.impactradius-go.com/display-ad/26400-2130531" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130531/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 4.  Long Teleprompter Vlog Set-Up
 
@@ -104,14 +118,11 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -120,6 +131,22 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-recording.techidaily.com/new-horizontal-vs-vertical-best-for-fb-videos/"><u>[New] Horizontal Vs. Vertical Best for FB Videos?</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-unleash-creativity-with-youtube-list-mix-ups/"><u>[New] In 2024, Unleash Creativity with YouTube List Mix-Ups</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-photovideo-text-warping-essentials-for-2024/"><u>[New] Photo/Video Text Warping Essentials for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/uick-win-strategies-top-20-video-tips-for-content-boosters-for-2024/"><u>[New] Quick-Win Strategies Top 20 Video Tips for Content Boosters for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/op-8-proven-video-growth-enhancers/"><u>[New] Top 8 Proven Video Growth Enhancers</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-2024-approved-master-iphone-and-ipad-best-free-video-editors-guide/"><u>[Updated] 2024 Approved Master iPhone & iPad Best Free Video Editors Guide</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-digital-deviation-expert-strategies-to-rotate-videos-on-youtube-for-2024/"><u>[Updated] Digital Deviation Expert Strategies to Rotate Videos on YouTube for 2024</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/updated-in-2024-amazons-viral-discoveries-your-essential-list-from-tiktok/"><u>[Updated] In 2024, Amazon's Viral Discoveries - Your Essential List From TikTok</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-in-2024-unveiling-the-top-7-android-apps-to-banish-ads/"><u>[Updated] In 2024, Unveiling The Top 7 Android Apps to Banish Ads</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/updated-iphone-hdr-capturing-dynamic-range-in-your-images/"><u>[Updated] IPhone HDR Capturing Dynamic Range in Your Images</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/approved-historical-insights-at-your-fingertips-top-10-for-students/"><u>2024 Approved Historical Insights at Your Fingertips – Top 10 for Students</u></a></li>
+<li><a href="https://fox-access.techidaily.com/2024-approved-quick-curving-techniques-for-modern-photoshop-artists/"><u>2024 Approved Quick Curving Techniques for Modern Photoshop Artists</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/2024-approved-the-premier-source-of-no-cost-creative-tools-in-ae/"><u>2024 Approved The Premier Source of No-Cost Creative Tools in AE</u></a></li>
+<li><a href="https://win-marvelous.techidaily.com/convert-mpg-and-mp3-to-m4v-format-free-online-easy-guide/"><u>Convert MPG & MP3 to M4V Format FREE Online - Easy Guide</u></a></li>
+<li><a href="https://extra-information.techidaily.com/top-virtual-reality-development-tools-gamers/"><u>Top Virtual Reality Development Tools Gamers</u></a></li>
+</ul></div>
 

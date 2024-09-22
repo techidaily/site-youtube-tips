@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Rising Stars of Online Videos  Top Subscription Hits\""
-date: 2024-07-12T22:58:40.385Z
-updated: 2024-07-13T22:58:40.385Z
+date: 2024-09-15T20:07:22.317Z
+updated: 2024-09-22T01:01:50.910Z
 tags:
   - ai video
   - ai youtube
@@ -70,14 +70,35 @@ More than 25 million subscribers who follow this gaming commentator. The El Rubi
 
 Based in Madrid, El Rubius OMG first became popular in Spanish-speaking countries, and as his fame increased he gained recognition throughout the world. During 2012 his channel became the most subscribed Spanish speaking channel, and on April 21, 2016, El Rubius received the 'YouTuber of the Year' award during the 1st Play Awards celebration in Palma De Mallorca. In addition to being one of the most popular YouTubers of all time, Rubén is also a published author whose first book 'The Troll Book' was the bestselling book in Spain for 8 weeks.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2080333/19272" target="_top" id="2080333">
+  <img src="//a.impactradius-go.com/display-ad/19272-2080333" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2080333/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 4\.  Smosh
 ![Smosh](https://images.wondershare.com/filmora/article-images/smosh.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1896541/19272" target="_top" id="1896541">
+  <img src="//a.impactradius-go.com/display-ad/19272-1896541" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896541/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Originally, Smosh was a channel run by sketch comedy duo Ian Andrew Hecox and Anthony Padilla. They started the Smosh YouTube channel in 2005 and since then they have grown their team to include more creators, and their content to include animation and gaming. Smosh has become much more than two funny guys on YouTube – it is a wildly successful content company.
 
 Most channels that have one viral video do not go on to have sustained success on YouTube, but Smosh is an exception to this rule. Their ‘Pokemon Theme Music Video’, released in 2005, became the most viewed video of all time (as of that year). This video kick-started the growth of their channel.
 
 In 2017, Anthony Padilla chose to leave Smosh to focus on his own solo YouTube channel.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123735/7443" target="_top" id="2123735">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123735" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123735/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 5\.  Fernanfloo
 ![Fernanfloo](https://images.wondershare.com/filmora/article-images/fernan-floo.jpg)
@@ -102,14 +123,11 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -118,6 +136,20 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-breakdown-of-profit-earning-potential-from-each-youtube-sponsored-post/"><u>[New] In 2024, Breakdown of Profit Earning Potential From Each YouTube Sponsored Post?</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-in-2024-how-to-watch-deleted-youtube-videos-online-in-2-ways-ultimate-guide/"><u>[Updated] In 2024, How to Watch Deleted YouTube Videos Online in 2 Ways | Ultimate Guide</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-in-2024-revenue-calculation-for-every-clicked-video/"><u>[Updated] In 2024, Revenue Calculation for Every Clicked Video</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-unleashing-the-full-potential-of-your-channel-in-studio-for-2024/"><u>[Updated] Unleashing the Full Potential of Your Channel in Studio for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/approved-mastering-backward-play-innovative-youtube-video-tricks/"><u>2024 Approved Mastering Backward Play Innovative YouTube Video Tricks</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/essential-uphere-m201-ssd-heatsink-evaluation-affordable-nvme-thermal-solution-at-just-5/"><u>Essential UpHere M201 SSD Heatsink Evaluation - Affordable NVMe Thermal Solution at Just $5</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-how-to-change-location-on-facebook-dating-for-your-oppo-a2-drfone-by-drfone-virtual-android/"><u>In 2024, How to Change Location On Facebook Dating for your Oppo A2 | Dr.fone</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/seamless-social-circulation-sharing-your-journey-through-video-on-facebook-for-2024/"><u>Seamless Social Circulation Sharing Your Journey Through Video on Facebook for 2024</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/sophisticated-screen-capture-3-top-tier-techniques-for-zoom-conversion/"><u>Sophisticated Screen Capture 3 Top-Tier Techniques for Zoom Conversion</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/-guide-image-to-youtube-thumbnail-transformation-techniques/"><u>Swift Guide Image to YouTube Thumbnail Transformation Techniques</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/three-ways-to-sim-unlock-infinix-smart-8-pro-by-drfone-android/"><u>Three Ways to Sim Unlock Infinix Smart 8 Pro</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/top-27-speech-to-text-conversion-programs-a-comprehensive-guide-by-movavi/"><u>Top 27 Speech-to-Text Conversion Programs: A Comprehensive Guide by Movavi</u></a></li>
+<li><a href="https://techtrends.techidaily.com/wireless-fun-unleashed-configuring-your-nintendo-switch-console-with-a-television-display/"><u>Wireless Fun Unleashed: Configuring Your Nintendo Switch Console with a Television Display</u></a></li>
+</ul></div>
 

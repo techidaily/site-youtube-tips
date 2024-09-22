@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Making FX Magic  A Novice's Step Into Animated Worlds\""
-date: 2024-09-10T23:18:11.443Z
-updated: 2024-09-16T16:17:28.796Z
+date: 2024-09-17T20:44:34.761Z
+updated: 2024-09-21T22:28:03.171Z
 tags:
   - ai video
   - ai youtube
@@ -66,10 +66,10 @@ What’s great about this course is that it assumes you have no animation experi
  Most of the video animation courses on this site are paid, but they have a lot of cool free tutorials as well. The focus is more on animating figures/cartoons than video effects, but if you have any interest in animation more generally then this is a great place to start learning. They even have a free ebook you can download which is targeted at beginners.
 
 <!-- affiliate ads begin -->
-<a href="https://review-au.sjv.io/c/5597632/2098700/14409" target="_top" id="2098700">
-  <img src="//a.impactradius-go.com/display-ad/14409-2098700" border="0" alt="https://techidaily.com" width="160" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1896527/19272" target="_top" id="1896527">
+  <img src="//a.impactradius-go.com/display-ad/19272-1896527" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098700/14409" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896527/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **[Video Copilot](http://www.videocopilot.net/)**
@@ -79,10 +79,10 @@ This site has a huge number of free After Effects tutorials. There are basic int
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115927/19272" target="_top" id="2115927">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115927" border="0" alt="https://techidaily.com" width="125" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2123740/7443" target="_top" id="2123740">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123740" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115927/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123740/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -106,17 +106,21 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-tips.techidaily.com/est-free-tools-for-converting-youtube-videos-for-2024/"><u>[New] Best Free Tools for Converting YouTube Videos for 2024</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/new-maximize-video-conferencing-value-discover-our-top-10-recorder-picks/"><u>[New] Maximize Video Conferencing Value - Discover Our Top 10 Recorder Picks</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/new-twitdance-choreographed-videos-go-viral-online-for-2024/"><u>[New] TwitDance Choreographed Videos Go Viral Online for 2024</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-multimedia-caption-compiler-for-2024/"><u>[Updated] Multimedia Caption Compiler for 2024</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-photobooth-glitch-unraveling-video-lags/"><u>[Updated] Photobooth Glitch Unraveling Video Lags</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ed-stay-in-the-limelight-how-to-keep-youtube-cc-and-boost-views/"><u>[Updated] Stay in the Limelight How to Keep YouTube CC and Boost Views</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/updated-unlocking-your-digital-cameras-potential-for-2024/"><u>[Updated] Unlocking Your Digital Camera's Potential for 2024</u></a></li>
-<li><a href="https://fox-that.techidaily.com/empowering-sight-challenges-discover-these-8-essential-iphone-accessibility-options/"><u>Empowering Sight Challenges: Discover These 8 Essential iPhone Accessibility Options</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/eufy-t8200-review-a-no-subscription-video-doorbell/"><u>Eufy T8200 Review: A “No-Subscription” Video Doorbell</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/in-2024-best-pokemons-for-pvp-matches-in-pokemon-go-for-honor-magic5-ultimate-drfone-by-drfone-virtual-android/"><u>In 2024, Best Pokemons for PVP Matches in Pokemon Go For Honor Magic5 Ultimate | Dr.fone</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/24-perfect-ending-for-youtubers-best-practices-and-pro-files/"><u>In 2024, Perfect Ending for YouTubers Best Practices and Pro Files</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/24-the-framework-for-an-epic-youtube-series/"><u>In 2024, The Framework for an Epic YouTube Series</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/new-boost-cinematic-excellence-with-final-cuts-best-10-plugins/"><u>[New] Boost Cinematic Excellence with Final Cut’s Best 10 Plugins</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/new-expert-strategies-for-3d-lut-implementation-in-photoshop/"><u>[New] Expert Strategies for 3D LUT Implementation in Photoshop</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/uffaws-in-grooves-parody-playlist-for-2024/"><u>[New] Guffaws in Grooves Parody Playlist for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-optimal-visual-branding-best-practices-for-youtube-channel-size/"><u>[New] In 2024, Optimal Visual Branding Best Practices for YouTube Channel Size</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-2024-approved-real-time-skype-monitoring-with-live-obs-integration/"><u>[Updated] 2024 Approved Real-Time Skype Monitoring with Live OBS Integration</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-exclusive-access-sharing-restricted-youtube-content-with-emailid/"><u>[Updated] Exclusive Access Sharing Restricted YouTube Content with EmailID</u></a></li>
+<li><a href="https://extra-support.techidaily.com/updated-leading-graphics-cards-in-4k-resolution/"><u>[Updated] Leading Graphics Cards in 4K Resolution</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-optimize-content-collaboration-in-youtube-for-increased-engagement/"><u>[Updated] Optimize Content Collaboration in YouTube for Increased Engagement</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-revenue-revolution-leveraging-the-youtube-premium-opportunity-for-2024/"><u>[Updated] Revenue Revolution Leveraging the YouTube Premium Opportunity for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-the-financial-framework-of-youtube-snippet-creation-for-2024/"><u>[Updated] The Financial Framework of YouTube Snippet Creation for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/g-copyright-challenges-on-youtube-know-your-rights-for-2024/"><u>Facing Copyright Challenges on YouTube Know Your Rights for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/high-viewers-the-best-of-youtube-now/"><u>Hour-High Viewers The Best of YouTube Now</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-is-fake-gps-location-spoofer-a-good-choice-on-apple-iphone-11-drfone-by-drfone-virtual-ios/"><u>In 2024, Is Fake GPS Location Spoofer a Good Choice On Apple iPhone 11? | Dr.fone</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/no-official-chatgpt-client-for-windowsdont-get-duped-by-malicious-clones/"><u>No Official ChatGPT Client for Windows—Don't Get Duped by Malicious Clones!</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/preventing-overheat-in-laptops-with-intensive-play/"><u>Preventing Overheat in Laptops with Intensive Play</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/1722894983727-understanding-the-variations-between-cat5-and-cat6-network-cabling/"><u>Understanding the Variations Between Cat5 and Cat6 Network Cabling</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "[New] In 2024, Creating Captivating YouTube Thumbnails for Mac Users"
-date: 2024-09-13T00:08:24.039Z
-updated: 2024-09-16T22:01:02.062Z
+date: 2024-09-16T08:09:00.495Z
+updated: 2024-09-22T07:04:02.405Z
 tags:
   - ai video
   - ai youtube
@@ -63,13 +63,6 @@ You can easily choose the frame from the video or use the preview frame button t
 
 ![thumbnails editor](https://images.wondershare.com/filmora/Mac-articles/thumbnails-editor.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2129740/7443" target="_top" id="2129740">
-  <img src="//a.impactradius-go.com/display-ad/7443-2129740" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2129740/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 2. Add text, shape, and image overlays
 
 Once you’ve chosen the frame for the thumbnail, the next step would be to add text to it to catch the attention of the audience. You can also adjust the thumbnail size as per your requirement, however, the ideal size would be 1280x720 pixels with a minimum width of 640 pixels.
@@ -77,10 +70,10 @@ Once you’ve chosen the frame for the thumbnail, the next step would be to add 
 ![add text on thumbnail](https://images.wondershare.com/filmora/Mac-articles/add-text-on-thumbnail.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aidotcom.pxf.io/c/5597632/2129043/19576" target="_top" id="2129043">
-  <img src="//a.impactradius-go.com/display-ad/19576-2129043" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135401/19272" target="_top" id="2135401">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135401" border="0" alt="https://techidaily.com" width="320" height="90"/>
 </a>
-<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2129043/19576" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135401/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 3. Add effects
@@ -88,6 +81,19 @@ Once you’ve chosen the frame for the thumbnail, the next step would be to add 
 FilmoraX has a wide range of effects that you can apply to your videos or pictures to make them look more attractive.
 
 ![filter9](https://images.wondershare.com/filmora/guide/filter-9-mac.jpg)
+
+<!-- affiliate ads begin -->
+<span id="1304647">
+					<video width="240" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1304647.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/15852-1304647">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1304647.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1304647%2F15852'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1304647/15852" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 4. Save the thumbnail
 
@@ -106,10 +112,10 @@ Hopefully, the above-mentioned steps have given you enough insight and clarity o
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115909/19272" target="_top" id="2115909">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115909" border="0" alt="https://techidaily.com" width="120" height="90"/>
+<a href="https://imp.i357552.net/c/5597632/1001453/11832" target="_top" id="1001453">
+  <img src="//a.impactradius-go.com/display-ad/11832-1001453" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115909/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1001453/11832" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Shanoon Cox
@@ -133,14 +139,20 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://some-knowledge.techidaily.com/new-extensive-examination-of-vsco-image-tools/"><u>[New] Extensive Examination of VSCO Image Tools</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/new-in-2024-discovering-why-filmora-captivates-your-heart/"><u>[New] In 2024, Discovering Why Filmora Captivates Your Heart</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-2024-approved-how-to-create-stunning-igtv-video-footage-using-smartphones-and-dslr/"><u>[Updated] 2024 Approved How to Create Stunning IGTV Video Footage Using Smartphones and DSLR</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/updated-comprehensive-analysis-of-directed-motion-tracking/"><u>[Updated] Comprehensive Analysis of Directed Motion Tracking</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-in-2024-direct-hit-the-techno-friendly-way-to-upload-your-short-clips/"><u>[Updated] In 2024, Direct Hit The Techno-Friendly Way to Upload Your Short Clips</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-in-2024-rapid-fortnite-tile-making-hacks/"><u>[Updated] In 2024, Rapid Fortnite Tile-Making Hacks</u></a></li>
-<li><a href="https://extra-support.techidaily.com/updated-leading-video-making-phones-top-10-edition/"><u>[Updated] Leading Video-Making Phones Top 10 Edition</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-legal-boundaries-of-online-video-capturing-tools-for-2024/"><u>[Updated] Legal Boundaries of Online Video Capturing Tools for 2024</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/24-ultimate-buyers-guide-top-gpus-for-youtube-streamers/"><u>In 2024, Ultimate Buyer's Guide Top GPUs for YouTube Streamers</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-musical-masterclasses-in-15-short-video-formats-on-youtube/"><u>[New] In 2024, Musical Masterclasses in 15 Short Video Formats on YouTube</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/new-in-2024-never-compromise-on-security-try-our-list-of-top-10-secure-free-video-calling-apps/"><u>[New] In 2024, Never Compromise on Security – Try Our List of Top 10 Secure, Free Video Calling Apps</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-why-watch-hd-switch-to-av1-codec-on-youtube/"><u>[New] In 2024, Why Watch HD? - Switch to AV1 Codec on YouTube</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-skillful-conversion-of-youtube-videos-to-interactive-gif-artistry/"><u>[Updated] Skillful Conversion of YouTube Videos to Interactive GIF Artistry</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-youtube-shorts-music-things-you-need-to-know-for-2024/"><u>[Updated] YouTube Shorts Music - Things You Need to Know for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/cting-biggest-fifa-footage-trends-in-graphs/"><u>Dissecting Biggest FIFA Footage Trends in Graphs</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/effective-fixes-for-when-steam-fails-to-detect-controllers-on-windows-machines/"><u>Effective Fixes for When Steam Fails to Detect Controllers on Windows Machines</u></a></li>
+<li><a href="https://win-dash.techidaily.com/effortless-driver-updates-for-intel-nuc-systems-fast-guide/"><u>Effortless Driver Updates for Intel NUC Systems - Fast Guide</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/24-end-screen-magic-free-templates-to-boost-video-appeal/"><u>In 2024, End-Screen Magic Free Templates to Boost Video Appeal</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-how-to-unlock-sim-cards-of-oneplus-nord-3-5g-without-puk-codes-by-drfone-android/"><u>In 2024, How To Unlock SIM Cards Of OnePlus Nord 3 5G Without PUK Codes</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/project-zero-unveils-revolutionary-msi-motherboard-introducing-the-next-gen-camm2-memory-for-enhanced-gaming-pcs/"><u>Project Zero Unveils Revolutionary MSI Motherboard: Introducing the Next-Gen CAMM2 Memory for Enhanced Gaming PCs</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/tailoring-audio-rate-on-mobile-and-desktops-for-youtube/"><u>Tailoring Audio Rate on Mobile and Desktops for YouTube</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/top-4-no-cost-avi-to-mp4-conversion-tools-compatible-with-windows-mac-and-online-services/"><u>Top 4 No-Cost AVI to MP4 Conversion Tools Compatible with Windows, Mac & Online Services</u></a></li>
+<li><a href="https://article-helps.techidaily.com/troubleshooting-guide-star-wars-jedi-fallen-order-failure-to-start/"><u>Troubleshooting Guide: Star Wars Jedi: Fallen Order Failure to Start</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/be-cpm-rates-how-much-do-youtubers-make/"><u>YouTube CPM Rates How Much Do YouTubers Make</u></a></li>
 </ul></div>
 

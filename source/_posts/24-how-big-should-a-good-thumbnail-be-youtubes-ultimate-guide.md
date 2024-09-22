@@ -1,7 +1,7 @@
 ---
 title: "In 2024, How Big Should a Good Thumbnail Be? YouTube's Ultimate Guide"
-date: 2024-07-12T23:01:00.979Z
-updated: 2024-07-13T23:01:00.979Z
+date: 2024-09-15T06:30:44.241Z
+updated: 2024-09-21T16:55:33.189Z
 tags:
   - ai video
   - ai youtube
@@ -96,6 +96,13 @@ You may want to know:
 * [**Question 1:** **How do I make my youtube thumbnail less than 2mb?**](#question1)
 * [**Question 2:** **How can I create an attractive youtube thumbnail?**](#question2)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2047346/19272" target="_top" id="2047346">
+  <img src="//a.impactradius-go.com/display-ad/19272-2047346" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2047346/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 1\. How do I make my youtube thumbnail less than 2mb?
 
 YouTube will not allow you to upload a custom thumbnail image if it is bigger than the 2MB limit. So, you need to make sure the file size is below the limit to be able to successfully upload a custom thumbnail. To reduce the image size you can follow the steps below:
@@ -135,20 +142,24 @@ YouTube thumbnail plays an important part for the audience's first impression on
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135357/19272" target="_top" id="2135357">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135357" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135357/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -157,6 +168,21 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-data.techidaily.com/024-approved-platform-predicament-choosing-the-right-space/"><u>[New] 2024 Approved Platform Predicament Choosing the Right Space</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-youtube-venture-made-easy-the-most-accessible-biz-channel-ideas-ranked/"><u>[New] In 2024, YouTube Venture Made Easy The Most Accessible Biz Channel Ideas Ranked</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/astery-over-moments-jake-pauls-youtube-saga/"><u>[New] Mastery Over Moments Jake Paul's YouTube Saga</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-2024-approved-conquered-everlasting-deactivation-of-youtube-shorts/"><u>[Updated] 2024 Approved Conquered Everlasting Deactivation of YouTube Shorts</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-mastering-insta-video-sharing-from-youtube-for-2024/"><u>[Updated] Mastering Insta-Video Sharing From YouTube for 2024</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/updated-step-by-step-youtube-image-enlargement-technique/"><u>[Updated] Step-by-Step Youtube Image Enlargement Technique</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/2024-approved-perfected-beats-on-the-go-no-cost-just-download-and-play/"><u>2024 Approved Perfected Beats on the Go - No Cost, Just Download and Play</u></a></li>
+<li><a href="https://fake-location.techidaily.com/how-to-sharefake-gps-on-uber-for-realme-v30-drfone-by-drfone-virtual-android/"><u>How to share/fake gps on Uber for Realme V30 | Dr.fone</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-how-to-unlock-a-nokia-g310-easily-by-drfone-android/"><u>In 2024, How To Unlock a Nokia G310 Easily?</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-how-to-unlock-cricket-apple-iphone-14-pro-for-free-by-drfone-ios/"><u>In 2024, How To Unlock Cricket Apple iPhone 14 Pro for Free</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-set-your-preferred-job-location-on-linkedin-app-of-your-realme-11-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Set Your Preferred Job Location on LinkedIn App of your Realme 11 5G | Dr.fone</u></a></li>
+<li><a href="https://win11.techidaily.com/opening-your-canvas-microsoft-paint-on-windows-11/"><u>Opening Your Canvas: Microsoft Paint on Windows 11</u></a></li>
+<li><a href="https://driver-error.techidaily.com/unlock-optimal-performance-for-your-hp-envy-20-with-the-latest-driver-downloads/"><u>Unlock Optimal Performance for Your HP ENVY 20 with the Latest Driver Downloads</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ched-youtube-success-10-unique-tips-for-your-shorts-for-2024/"><u>Unmatched YouTube Success 10 Unique Tips for Your Shorts for 2024</u></a></li>
+</ul></div>
 

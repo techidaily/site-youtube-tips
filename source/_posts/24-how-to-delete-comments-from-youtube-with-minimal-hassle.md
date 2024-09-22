@@ -1,7 +1,7 @@
 ---
 title: "In 2024, How to Delete Comments From YouTube with Minimal Hassle"
-date: 2024-07-12T22:59:12.414Z
-updated: 2024-07-13T22:59:12.414Z
+date: 2024-09-18T03:14:06.339Z
+updated: 2024-09-21T16:35:47.447Z
 tags:
   - ai video
   - ai youtube
@@ -68,6 +68,13 @@ Fear not. Read on to know how to **delete all comments you posted on someone els
 1. When you reach the Comment History page, you will be able to find all comments you have ever posted. Scroll down to the comment you want to delete.
 2. Click on the three vertical dots that you see beside the target comment. You will find a Delete option. Tap on it, and confirm that you want to delete the comment. That completes the process. No more embarrassing comments!
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2094477/7443" target="_top" id="2094477">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094477" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094477/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## How Do You Delete Your Comments from Your Phone?
 
 Don’t have a desktop handy? This section will tell you how you can delete your comments you posted on your or someone else’s YouTube video from your mobile.
@@ -81,6 +88,13 @@ If it is your video where the comment to be removed is, you can go to My Channel
 
 1. Once you locate the video, you need to find the comment you want to delete. On the YouTube app, you may need to scroll down for a while to do this.
 2. When you reach it, click on the three vertical dots at the bottom corner of your comment. You should see an option called Delete. Click on that. You need to confirm once more that you want to delete it, and the process will be complete.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2137413/7443" target="_top" id="2137413">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137413" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137413/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Delete Other People’s Comments on Others’ Channels
 
@@ -101,6 +115,13 @@ To find your History from your desktop, you need to click on the three horizonta
 3. When you tap Report, another dialogue box will appear. From the list of options, choose the most appropriate option, tap on Report at the lower right corner of the pop-up, and complete the process. YouTube will do the rest.
 
 ![Report YouTube comments](https://images.wondershare.com/filmora/article-images/report-youtube-comment.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2006960/19272" target="_top" id="2006960">
+  <img src="//a.impactradius-go.com/display-ad/19272-2006960" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006960/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## How to Delete All Your Posted YouTube Comments?
 
@@ -133,14 +154,11 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -149,6 +167,18 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://some-techniques.techidaily.com/new-hero5-black-vs-yi-4k-which-takes-the-crown-in-action-cam-war/"><u>[New] Hero5 Black Vs. Yi 4K Which Takes the Crown in Action Cam War?</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/martphone-cinematography-mastery-designing-impactful-youtube-thumbnails-for-2024/"><u>[New] Smartphone Cinematography Mastery Designing Impactful YouTube Thumbnails for 2024</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/updated-how-much-can-you-earn-on-youtube-via-ad-revenue-for-2024/"><u>[Updated] How Much Can You Earn on YouTube via Ad Revenue for 2024</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/updated-quintessential-underwater-accessories-for-gopro-for-2024/"><u>[Updated] Quintessential Underwater Accessories for Gopro for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-youtube-revenue-verification-confirming-pro-rated-earnings-for-2024/"><u>[Updated] YouTube Revenue Verification Confirming Pro-Rated Earnings for 2024</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/fixing-muted-madness-solutions-for-silent-hearthstone-gameplay/"><u>Fixing Muted Madness: Solutions for Silent Hearthstone Gameplay</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/24-effortless-youtube-income-computations/"><u>In 2024, Effortless YouTube Income Computations</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/organizing-virtual-gatherings-syncing-slack-with-filmoras-features/"><u>Organizing Virtual Gatherings Syncing Slack with Filmora's Features</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/1723015521209-razer-man-o-war-mic-problems-heres-how-to-get-it-working-again/"><u>Razer Man O' War Mic Problems? Here's How to Get It Working Again!</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/selecting-the-perfect-footage-editor-hero-vs-the-cube-for-2024/"><u>Selecting the Perfect Footage Editor Hero Vs. The Cube for 2024</u></a></li>
+<li><a href="https://buynow-marvelous.techidaily.com/wireless-bliss-select-top-buds/"><u>Wireless Bliss: Select Top Buds</u></a></li>
+</ul></div>
 

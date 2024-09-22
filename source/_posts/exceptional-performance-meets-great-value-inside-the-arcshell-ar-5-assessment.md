@@ -1,7 +1,7 @@
 ---
 title: "Exceptional Performance Meets Great Value: Inside the Arcshell AR-5 Assessment"
-date: 2024-09-14T21:25:30.129Z
-updated: 2024-09-17T02:47:48.376Z
+date: 2024-09-17T22:44:47.972Z
+updated: 2024-09-22T08:42:08.300Z
 categories:
   - BestProducts
 description: "This Article Describes Exceptional Performance Meets Great Value: Inside the Arcshell AR-5 Assessment"
@@ -99,13 +99,6 @@ Andrew Hayward / Lifewire
 
 ![Oculus Quest 2 ](https://www.lifewire.com/thmb/1aG6kdNHMuvnim8p8_i1RwH9QG8=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Oculus-Quest-2-VR-Headset-3-eec6cabc11db4ed9be5254aa2bc46ec1.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137209/26400" target="_top" id="2137209">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137209" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137209/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Andrew Hayward / Lifewire
 
  But there is a potential loss for function and comfort with one other particular aspect of the headset itself: IPD adjustment. Inter-pupillary distance, or IPD, is the physical distance between your eyes, and a headset must account for it to effectively deliver clear, 3D experiences. On the original Quest, a physical slider let you precisely adjust the distance to match your own face. With the Quest 2, however, there are just three settings, and you can physically shift the placement of the lenses to choose the position that is closest to your own.
@@ -116,6 +109,13 @@ Andrew Hayward / Lifewire
 
 ![Oculus Quest 2](https://www.lifewire.com/thmb/gwWuuSfTzWNDoS45b-iG9qG32-w=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Oculus-Quest-2-VR-Headset-4-27f169e7e71b4372a38e13332b7b1364.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1918661/19272" target="_top" id="1918661">
+  <img src="//a.impactradius-go.com/display-ad/19272-1918661" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918661/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Andrew Hayward / Lifewire
 
 ## Setup Process: You’ll need a phone… and Facebook
@@ -125,13 +125,6 @@ Andrew Hayward / Lifewire
  Part of the setup process, and the process each time you use the headset, is to designate your play space by “drawing” a barrier within the augmented view of your surroundings seen through the headset’s cameras. From there, the headset determines whether you have enough space for active, room-scale experiences, or you can choose a stationary setup for seated play modes. During active play, a virtual barrier called the Oculus Guardian appears when you get close to the edges of your designated play space to help you avoid crashing into your surroundings. It’s all rather clever and effective.
 
  There’s one other potential hitch with the Oculus Quest 2 that wasn’t present with the original: the new headset_requires_ a[Facebook account](https://www.lifewire.com/tutorial-how-facebook-works-2654610) and there’s no way around it. Facebook owns Oculus, and while the first Quest could be used simply with an Oculus account, the new one requires the social media account. For some, that may be a deal-breaker, given frustrations over privacy and the increasing role that Facebook plays in our society, so just know that going in.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135370/19272" target="_top" id="2135370">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135370" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135370/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Performance: It’s a big upgrade
 
@@ -151,6 +144,13 @@ Andrew Hayward / Lifewire
 
  I felt the Quest 2’s enhancements more prominently in some games over others. Laser sword-swinging music game Beat Saber, for example, ran well on the first headset and isn’t that different here—just smoother and clearer-looking. But with the online battle royale shooter Population: One, the cleaner-looking textures and more fluid performance helped mitigate some of the light motion sickness I felt playing on the first Quest.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123735/7443" target="_top" id="2123735">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123735" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123735/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Sound Quality: Works fine without headphones
 
  Plugging in headphones delivers a more closed-off, immersive experience, but the Oculus Quest 2’s built-in speaker does a solid job of delivering audio and music. It does sound a tiny bit louder and fuller than the original Quest’s speaker, but not significantly so. Still, if you want to play without being fully shut-off from your surroundings, it works just fine.
@@ -164,19 +164,20 @@ Andrew Hayward / Lifewire
 ![Oculus Quest 2](https://www.lifewire.com/thmb/Ns2S3DQVema5UEDDSO8n3N7SC_4=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Oculus-Quest-2-VR-Headset-7-0a0e40b6a3064fe7abc985f0900dbeff.jpg)
 
 <!-- affiliate ads begin -->
-<span id="2127886">
-					<video width="576" height="1024" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/2127886.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/18498-2127886">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/2127886.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Funicoeye.pxf.io%2Fc%2F5597632%2F2127886%2F18498'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/2127886/18498" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2037359/7443" target="_top" id="2037359">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037359" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037359/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  Andrew Hayward / Lifewire
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2049369/7443" target="_top" id="2049369">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049369" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049369/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Software: Use the headset or connect to PC
 
@@ -194,13 +195,6 @@ Andrew Hayward / Lifewire
 
  The $299 edition of the headset comes with 64GB of internal storage and the $399 version nets you 256GB, with some of each tally taken up by system software and resources. Luckily, the games and apps themselves aren’t huge, typically weighing in between 1-4GB apiece, sometimes less, and they’re pretty quick to download again if you want to revisit something. The 64GB edition should provide enough space for most players, as you could probably comfortably have a dozen or more games installed, along with streaming media apps, but anyone who wants to have a robust VR library on hand at all times without waiting might consider spending the extra cash.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135350/19272" target="_top" id="2135350">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135350" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135350/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Games: A good, growing selection
 
  Although those aforementioned games and some others are still only found on PC (or maybe PlayStation VR on the PlayStation 4 or 5), the Oculus Quest platform has amassed a very nice selection of native games that you can download and play right on the headset.There is no difference in compatibility between the headsets: all Quest games play on Quest 2 and vice versa, just with performance differences.
@@ -212,13 +206,6 @@ Andrew Hayward / Lifewire
  There’s a lot of great stuff on Quest 2, ranging from simple arcade-like experiences to larger-scale adventures, quirky interactive experiences, and more. And on top of that, there are the aforementioned video services for 360-degree videos, plus fitness apps and games, VR chat for communicating with friends and random people, a web browser, and more.
 
 ![Oculus Quest 2](https://www.lifewire.com/thmb/FqVvo044zoPghSD_PR1g2e0L2rs=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Oculus-Quest-2-VR-Headset-5-216bbf638cbe407b8b6f332abc94ae47.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139115/17108" target="_top" id="2139115">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139115" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139115/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  Andrew Hayward / Lifewire
 
@@ -249,6 +236,19 @@ Andrew Hayward / Lifewire
 * [Oculus Rift S](https://www.lifewire.com/oculus-rift-s-review-4764112)
 * [Oculus Go Standalone VR Headset](https://www.lifewire.com/oculus-go-vr-headset-review-4690298)
 * [Valve Index](https://www.lifewire.com/valve-index-review-4775604)
+
+<!-- affiliate ads begin -->
+<span id="1982570">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982570.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982570">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982570.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982570%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982570/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Specs
 
@@ -281,21 +281,14 @@ Andrew Hayward / Lifewire
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-tips.techidaily.com/n-2024-decoding-the-economic-riches-of-mr-beast/"><u>[New] In 2024, Decoding the Economic Riches of Mr. Beast</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/n-2024-premier-asmr-videographers-list/"><u>[New] In 2024, Premier ASMR Videographers' List</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/n-2024-the-ultimate-list-of-premier-youtube-cosmetics-experts/"><u>[New] In 2024, The Ultimate List of Premier YouTube Cosmetics Experts</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/rofessional-filmmaking-essentials-ideal-lenses-to-consider/"><u>[New] Professional Filmmaking Essentials Ideal Lenses to Consider</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-captivate-audiences-with-perfectly-tailored-youtube-descriptions-for-2024/"><u>[Updated] Captivate Audiences with Perfectly Tailored Youtube Descriptions for 2024</u></a></li>
-<li><a href="https://fox-http.techidaily.com/updated-entertainment-galore-kinemaster-the-android-game-guide-2023/"><u>[Updated] Entertainment Galore KineMaster - The Android Game Guide 2023</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-perfecting-your-videos-the-power-of-proper-thumbnails-for-2024/"><u>[Updated] Perfecting Your Videos The Power of Proper Thumbnails for 2024</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/animation-amalgamator-a-top-choice-for-saving-and-storing-your-tweeted-gifs/"><u>Animation Amalgamator A Top Choice for Saving and Storing Your Tweeted GIFs</u></a></li>
-<li><a href="https://iphone-unlock.techidaily.com/can-you-unlock-iphone-se-2022-after-forgetting-the-passcode-drfone-by-drfone-ios/"><u>Can You Unlock iPhone SE (2022) After Forgetting the Passcode? | Dr.fone</u></a></li>
-<li><a href="https://fake-location.techidaily.com/how-to-change-netflix-location-to-get-more-country-version-on-tecno-phantom-v-fold-drfone-by-drfone-virtual-android/"><u>How to Change Netflix Location to Get More Country Version On Tecno Phantom V Fold | Dr.fone</u></a></li>
-<li><a href="https://vimeo-videos.techidaily.com/in-2024-streamlined-upload-procedures-for-media-center-videos-to-vimeo/"><u>In 2024, Streamlined Upload Procedures for Media Center Videos to Vimeo</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/projecting-zoom-meeting-audio-and-video-to-hd-television-a-step-by-step-tutorial/"><u>Projecting Zoom Meeting Audio & Video to HD Television – A Step-By-Step Tutorial</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/securing-your-profile-learn-how-to-modify-your-facebook-login-key/"><u>Securing Your Profile - Learn How to Modify Your Facebook Login Key</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/tech-meets-classic-a-detailed-review-of-the-skagen-falster-3-your-next-must-have-accessory/"><u>Tech Meets Classic: A Detailed Review of the Skagen Falster 3, Your Next Must-Have Accessory</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/the-archivists-collection-essential-retro-visual-hacks-for-video-editors/"><u>The Archivist's Collection Essential Retro Visual Hacks for Video Editors</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ering-your-personalized-playlist-hideaway/"><u>Uncovering Your Personalized Playlist Hideaway</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-quantifying-the-fortune-of-mr-beast/"><u>[New] In 2024, Quantifying the Fortune of Mr. Beast</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/he-ultimate-guide-to-youtubes-2024-partner-earnings/"><u>[New] The Ultimate Guide to YouTube's 2024 Partner Earnings</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-2024-approved-optimizing-profile-visibility-in-snapchats-focus/"><u>[Updated] 2024 Approved Optimizing Profile Visibility in Snapchat's Focus</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-virtual-victors-the-leading-ladies-in-gaming-for-2024/"><u>[Updated] Virtual Victors The Leading Ladies in Gaming for 2024</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/a-journey-from-prose-to-picture-play-for-2024/"><u>A Journey From Prose to Picture Play for 2024</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/best-realme-11-proplus-pattern-lock-removal-tools-remove-android-pattern-lock-without-losing-data-by-drfone-android/"><u>Best Realme 11 Pro+ Pattern Lock Removal Tools Remove Android Pattern Lock Without Losing Data</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/decoding-nfts-your-essential-companion-into-the-realm-of-blockchain-powered-treasures/"><u>Decoding NFTs: Your Essential Companion Into the Realm of Blockchain-Powered Treasures</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/harnessing-the-transformative-force-of-ai-for-global-advancement/"><u>Harnessing the Transformative Force of AI for Global Advancement</u></a></li>
+<li><a href="https://driver-install.techidaily.com/upgrade-screen-drivers-in-windows-10-acer-model/"><u>Upgrade Screen Drivers in Windows 10, Acer Model</u></a></li>
 </ul></div>
 

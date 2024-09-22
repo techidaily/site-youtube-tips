@@ -1,7 +1,7 @@
 ---
 title: "[Updated] The Secret Technique for Instantaneous Deletion of Youtube Discussions for 2024"
-date: 2024-07-12T22:59:40.498Z
-updated: 2024-07-13T22:59:40.498Z
+date: 2024-09-17T23:32:49.260Z
+updated: 2024-09-21T20:40:53.379Z
 tags:
   - ai video
   - ai youtube
@@ -68,6 +68,13 @@ Fear not. Read on to know how to **delete all comments you posted on someone els
 1. When you reach the Comment History page, you will be able to find all comments you have ever posted. Scroll down to the comment you want to delete.
 2. Click on the three vertical dots that you see beside the target comment. You will find a Delete option. Tap on it, and confirm that you want to delete the comment. That completes the process. No more embarrassing comments!
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151888/7443" target="_top" id="2151888">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151888" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151888/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## How Do You Delete Your Comments from Your Phone?
 
 Don’t have a desktop handy? This section will tell you how you can delete your comments you posted on your or someone else’s YouTube video from your mobile.
@@ -111,6 +118,13 @@ You can also delete all comments you ever posted on any YouTube video by hiding 
 
 ![YouTube Settings](https://images.wondershare.com/filmora/article-images/two-ways-settings-youtube-channel.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://bluetties.sjv.io/c/5597632/2141687/17094" target="_top" id="2141687">
+  <img src="//a.impactradius-go.com/display-ad/17094-2141687" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluetties.sjv.io/i/5597632/2141687/17094" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 1. YouTube will direct you to the Settings page of your account. Choose Advanced Settings from the list on your left. You can also access it from [here](https://www.youtube.com/account%5Fadvanced).
 
 ![YouTube Advanced  Settings](https://images.wondershare.com/filmora/article-images/youtube-advanced-settings.jpg)
@@ -120,6 +134,13 @@ You can also delete all comments you ever posted on any YouTube video by hiding 
 ![YouTube Settings](https://images.wondershare.com/filmora/article-images/remove-youtube-content.jpg)
 
 1. YouTube will now show you what will happen when you hide your channel. Check all the boxes to confirm that you understand, and then tap on Hide My Channel. YouTube will now delete all comments made by your account.
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136612/26400" target="_top" id="2136612">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136612" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136612/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Final Thoughts
 
@@ -133,14 +154,11 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -149,6 +167,22 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-tips.techidaily.com/levate-your-channel-studio-upgrade-vs-beta-shift/"><u>[New] Elevate Your Channel Studio Upgrade Vs. Beta Shift</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-in-2024-elite-powerhouses-of-desktop-technology/"><u>[New] In 2024, Elite Powerhouses of Desktop Technology</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/avigating-youtube-shorts-thumbnail-losses-for-2024/"><u>[New] Navigating YouTube Shorts Thumbnail Losses for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/revent-these-8-key-mishaps-on-your-youtube-journey/"><u>[New] Prevent These 8 Key Mishaps on Your YouTube Journey</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-boosting-channel-earnings-the-step-by-step-famebit-guide-to-affiliates-for-2024/"><u>[Updated] Boosting Channel Earnings The Step-by-Step FameBit Guide to Affiliates for 2024</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/updated-building-a-loyal-following-with-respectful-requests/"><u>[Updated] Building a Loyal Following with Respectful Requests</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/updated-in-2024-stitching-an-innovative-tiktok-closing-credits/"><u>[Updated] In 2024, Stitching An Innovative TikTok Closing Credits</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/updated-incorporating-keywords-for-seo/"><u>[Updated] Incorporating Keywords for SEO</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-the-ultimate-guide-to-setting-your-youtube-video-width-and-height/"><u>[Updated] The Ultimate Guide to Setting Your YouTube Video Width and Height</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/2024-approved-how-to-create-professional-gopro-vlogs/"><u>2024 Approved How to Create Professional Gopro Vlogs</u></a></li>
+<li><a href="https://win11.techidaily.com/effortless-navigation-in-files-windows-11s-tab-system/"><u>Effortless Navigation in Files: Windows 11'S Tab System</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/expert-fixes-for-when-grand-theft-auto-v-keeps-freezing-solved/"><u>Expert Fixes for When Grand Theft Auto V Keeps Freezing - Solved</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/prime-ringtone-reserves-retro-rhythms-online-for-2024/"><u>Prime Ringtone Reserves Retro Rhythms Online for 2024</u></a></li>
+<li><a href="https://review-topics.techidaily.com/recover-your-photos-after-realme-narzo-60-pro-5g-has-been-deleted-by-fonelab-android-recover-photos/"><u>Recover your photos after Realme Narzo 60 Pro 5G has been deleted.</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/streamline-video-content-delivery-a-curated-list-of-players/"><u>Streamline Video Content Delivery A Curated List of Players</u></a></li>
+</ul></div>
 

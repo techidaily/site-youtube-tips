@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] The Quintessential Quotient  Subscriber Rankings\""
-date: 2024-09-11T05:52:49.899Z
-updated: 2024-09-16T18:19:31.715Z
+date: 2024-09-17T17:59:12.042Z
+updated: 2024-09-21T22:57:21.743Z
 tags:
   - ai video
   - ai youtube
@@ -79,22 +79,15 @@ More than 25 million subscribers who follow this gaming commentator. The El Rubi
 
 Based in Madrid, El Rubius OMG first became popular in Spanish-speaking countries, and as his fame increased he gained recognition throughout the world. During 2012 his channel became the most subscribed Spanish speaking channel, and on April 21, 2016, El Rubius received the 'YouTuber of the Year' award during the 1st Play Awards celebration in Palma De Mallorca. In addition to being one of the most popular YouTubers of all time, Rubén is also a published author whose first book 'The Troll Book' was the bestselling book in Spain for 8 weeks.
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2120864/26400?prodsku=Mercury" target="_top" id="2120864">
-  <img src="//a.impactradius-go.com/display-ad/26400-2120864" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2120864/26400?prodsku=Mercury" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ###  4\.  Smosh
 
 ![Smosh](https://images.wondershare.com/filmora/article-images/smosh.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139109/17108" target="_top" id="2139109">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139109" border="0" alt="https://techidaily.com" width="320" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135371/19272" target="_top" id="2135371">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135371" border="0" alt="https://techidaily.com" width="320" height="90"/>
 </a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139109/17108" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135371/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Originally, Smosh was a channel run by sketch comedy duo Ian Andrew Hecox and Anthony Padilla. They started the Smosh YouTube channel in 2005 and since then they have grown their team to include more creators, and their content to include animation and gaming. Smosh has become much more than two funny guys on YouTube – it is a wildly successful content company.
@@ -102,6 +95,13 @@ Originally, Smosh was a channel run by sketch comedy duo Ian Andrew Hecox and An
 Most channels that have one viral video do not go on to have sustained success on YouTube, but Smosh is an exception to this rule. Their ‘Pokemon Theme Music Video’, released in 2005, became the most viewed video of all time (as of that year). This video kick-started the growth of their channel.
 
 In 2017, Anthony Padilla chose to leave Smosh to focus on his own solo YouTube channel.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151873/7443" target="_top" id="2151873">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151873" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151873/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 5\.  Fernanfloo
 
@@ -120,10 +120,10 @@ Looking for a live [YouTube subscriber chart](https://tools.techidaily.com/wonde
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115912/19272" target="_top" id="2115912">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115912" border="0" alt="https://techidaily.com" width="160" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136621/26400" target="_top" id="2136621">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136621" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115912/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136621/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
@@ -149,20 +149,21 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-zero.techidaily.com/024-approved-snicker-sonatas-top-10-humorous-hits/"><u>[New] 2024 Approved Snicker Sonatas Top 10 Humorous Hits</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/new-imovie-rhythms-a-sound-experts-handbook/"><u>[New] IMovie Rhythms A Sound Expert's Handbook</u></a></li>
-<li><a href="https://facebook-video-files.techidaily.com/new-in-2024-fixing-failed-video-uploads-on-facebook-live-features/"><u>[New] In 2024, Fixing Failed Video Uploads on Facebook Live Features</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/n-2024-step-by-step-designing-striking-youtube-thumbnails-with-macos/"><u>[New] In 2024, Step-by-Step Designing Striking Youtube Thumbnails with macOS</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/n-2024-unveiling-mr-beasts-cash-flow/"><u>[New] In 2024, Unveiling Mr. Beast's Cash Flow</u></a></li>
-<li><a href="https://extra-support.techidaily.com/new-speedy-shots-that-captivate-audiences/"><u>[New] Speedy Shots That Captivate Audiences</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/outube-vision-navigating-video-degrees-with-ease/"><u>[New] YouTube Vision Navigating Video Degrees with Ease</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-2024-approved-get-free-stock-footage-from-these-4-youtube-channels/"><u>[Updated] 2024 Approved Get Free Stock Footage From These 4 YouTube Channels</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-2024-approved-navigating-the-starscape-a-guide-to-influencers-for-your-needs/"><u>[Updated] 2024 Approved Navigating the Starscape A Guide to Influencers for Your Needs</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/onomic-genius-ideal-culinary-network-name-strategies/"><u>Gastronomic Genius Ideal Culinary Network Name Strategies</u></a></li>
-<li><a href="https://ios-unlock.techidaily.com/how-to-unlock-apple-iphone-xs-by-drfone-ios/"><u>How to Unlock Apple iPhone XS?</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/cket-views-essential-youtube-seo-enhancements-uncovered/"><u>Skyrocket Views Essential YouTube SEO Enhancements Uncovered</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/erpro-suite-for-2024/"><u>SnipperPro Suite for 2024</u></a></li>
-<li><a href="https://driver-install.techidaily.com/surface-pro-speed-boosters-download-microsofts-drivers/"><u>Surface Pro Speed Boosters: Download Microsoft's Drivers</u></a></li>
-<li><a href="https://smart-video-creator.techidaily.com/updated-mastering-green-screen-in-fcp-x-a-step-by-step-guide-for-2024/"><u>Updated Mastering Green Screen in FCP X A Step-by-Step Guide for 2024</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/new-2024-approved-choosing-the-right-screen-recorder-outside-of-xbox/"><u>[New] 2024 Approved Choosing the Right Screen Recorder, Outside of Xbox</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-top-earnings-achiever-in-the-streaming-world/"><u>[New] In 2024, Top Earnings Achiever in the Streaming World</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-unlock-views-essential-fonts-for-stellar-thumbnails/"><u>[New] In 2024, Unlock Views Essential Fonts for Stellar Thumbnails</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/new-optimal-energy-solutions-official-and-third-party-hero5-batteries/"><u>[New] Optimal Energy Solutions - Official & Third-Party Hero5 Batteries</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-unlocking-earnings-potential-with-youtube-adsense-payments-per-1k-viewer/"><u>[Updated] Unlocking Earnings Potential with Youtube AdSense Payments Per 1K Viewer</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-youtubing-success-final-stages-and-top-resources/"><u>[Updated] YouTubing Success Final Stages and Top Resources</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-ideal-accessories-for-optimal-gopro-photography/"><u>2024 Approved Ideal Accessories for Optimal GoPro Photography</u></a></li>
+<li><a href="https://fox-info.techidaily.com/2024-approved-pristine-visionary-storytelling-system/"><u>2024 Approved Pristine Visionary Storytelling System</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/bypassing-disney-drm-for-legal-home-backups-of-your-beloved-movies/"><u>Bypassing Disney DRM for Legal Home Backups of Your Beloved Movies</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/n-issues-with-youtube-shorts-thumbnails/"><u>Common Issues with YouTube Shorts Thumbnails</u></a></li>
+<li><a href="https://graphic-issues.techidaily.com/fix-vertical-lines-on-laptop-screen-easily/"><u>Fix Vertical Lines on Laptop Screen. Easily</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/full-guide-to-iphone-15-icloud-bypass-by-drfone-ios/"><u>Full guide to iPhone 15 iCloud Bypass</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/ps5-storage-enhancement-the-ultimate-tutorial-on-adding-an-ssd-hardware-upgrade/"><u>PS5 Storage Enhancement: The Ultimate Tutorial on Adding an SSD Hardware Upgrade</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/up-your-stream-simultaneous-views-on-one-screen/"><u>Step Up Your Stream Simultaneous Views on One Screen</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/by-step-strategies-how-to-create-stellar-youtube-shorts-for-2024/"><u>Step-by-Step Strategies How to Create Stellar YouTube Shorts for 2024</u></a></li>
+<li><a href="https://common-error.techidaily.com/winupdate-mishap-bypass-error-code-0x80240017-efficiently/"><u>WinUpdate Mishap? Bypass Error Code 0X80240017 Efficiently</u></a></li>
 </ul></div>
 

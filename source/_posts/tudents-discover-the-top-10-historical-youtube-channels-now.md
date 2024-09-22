@@ -1,7 +1,7 @@
 ---
 title: "For Students, Discover the Top 10 Historical YouTube Channels Now"
-date: 2024-07-12T23:00:01.791Z
-updated: 2024-07-13T23:00:01.791Z
+date: 2024-09-21T06:52:56.349Z
+updated: 2024-09-21T21:25:12.885Z
 tags:
   - ai video
   - ai youtube
@@ -50,6 +50,13 @@ This channel follows the name that they gave to themselves, they dedicated their
 
 This channel is just a brilliant channel, why do we say this? Well, see what they do here. You might have an interest in learning about the dishes that are served in amazing series like Game of Thrones and other historical movies. You just want to know how they make those historical cuisines on these epic series, this is the channel for you. They recreate the dishes made in movies and series like Vikings and the rest. This channel was created to pass time by a Disney employee but he got the most out of it and has made it a full-time job, posting two to three videos daily.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2087248/19272" target="_top" id="2087248">
+  <img src="//a.impactradius-go.com/display-ad/19272-2087248" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2087248/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 4. History Civils
 
 A YouTube channel created by someone who loves Rome like he were from there. A Rome freak who created a channel based on the Roman Empire. There are several histories to talk about when it comes to Rome, for instance, talking about NATO and Cleopatra. The videos on the channel are very short but they hit the nail directly on the head so you get to gain knowledge about old Rome and what it was before. Most of the videos are on the wars that were fought but they were also other Roman histories involved. This channel posts videos every week, at least once
@@ -57,6 +64,19 @@ A YouTube channel created by someone who loves Rome like he were from there. A R
 ### 5. Kings And Generals
 
 This is another good history channel on Youtube, they provide the information through animated historical documentaries. From the channel from the title, you would know that the channel talks mainly in battles and politics, hence the name kings and generals. Aside from the war niche, the videos talk about some of the important happenings in history. The user makes a post on this channel for you to learn about the different kings and generals in history who lost and won their battles and crowns. Videos are posted twice a week
+
+<!-- affiliate ads begin -->
+<span id="1630055">
+					<video width="192" height="320" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1630055.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/18460-1630055">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1630055.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:120px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fcaperobbin.sjv.io%2Fc%2F5597632%2F1630055%2F18460'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1630055/18460" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 6. The Great War
 
@@ -178,6 +198,13 @@ This channel is just a brilliant channel, why do we say this? Well, see what the
 
 A YouTube channel created by someone who loves Rome like he were from there. A Rome freak who created a channel based on the Roman Empire. There are several histories to talk about when it comes to Rome, for instance, talking about NATO and Cleopatra. The videos on the channel are very short but they hit the nail directly on the head so you get to gain knowledge about old Rome and what it was before. Most of the videos are on the wars that were fought but they were also other Roman histories involved. This channel posts videos every week, at least once
 
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139107/17108" target="_top" id="2139107">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139107" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139107/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 5. Kings And Generals
 
 This is another good history channel on Youtube, they provide the information through animated historical documentaries. From the channel from the title, you would know that the channel talks mainly in battles and politics, hence the name kings and generals. Aside from the war niche, the videos talk about some of the important happenings in history. The user makes a post on this channel for you to learn about the different kings and generals in history who lost and won their battles and crowns. Videos are posted twice a week
@@ -232,6 +259,13 @@ This has to be the most obvious one on the list because whenever you click to wa
 
 This channel follows the name that they gave to themselves, they dedicated their channel to posting topics on weird history like the chronicles of history, crystal Pepsi, gout, life in a medieval castle, and the Victorian pastimes. All the videos are weird, most times they seem funny and spooky but they are just videos that make you think deeply because they seem too weird. Video is here makes you feel like a police officer chasing a man with the power to turn into a leopard. That is how confused you get from watching this channel. They usually make their posts every day. The channel provides videos for their subscribers 3 to 4 times a week
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151864/7443" target="_top" id="2151864">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151864" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151864/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 3. Tasting History With Max Miller
 
 This channel is just a brilliant channel, why do we say this? Well, see what they do here. You might have an interest in learning about the dishes that are served in amazing series like Game of Thrones and other historical movies. You just want to know how they make those historical cuisines on these epic series, this is the channel for you. They recreate the dishes made in movies and series like Vikings and the rest. This channel was created to pass time by a Disney employee but he got the most out of it and has made it a full-time job, posting two to three videos daily.
@@ -255,6 +289,13 @@ Normally, no one likes the idea of listening or learning from someone who makes 
 ### 8. The History Guy
 
 The history guy is known well for the short time he takes in his video. Other history videos online are short but they are much shorter because they take 5 to 15 minutes. Even with this short time, he tends to cover different histories. They are a little bit odd histories but they seem interesting. Things like the wild wide west and the New York blackout that happened in 1977\. Other things like how Europeans discovered Alaska and the great olive poisoning that happened in 1919\. He makes the videos short because he aims at getting the audience in their spare time. Videos are posted 3 to 4 times a week
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135417/19272" target="_top" id="2135417">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135417" border="0" alt="https://techidaily.com" width="392" height="72"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135417/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 9. Timeline
 
@@ -283,8 +324,6 @@ Sometimes it might help your mental health if you can take out time to watch som
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -293,6 +332,17 @@ Sometimes it might help your mental health if you can take out time to watch som
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-tips.techidaily.com/rafting-your-personalbusiness-youtube-mobile-hub-for-2024/"><u>[New] Crafting Your Personal/Business YouTube Mobile Hub for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-pathways-to-profitability-in-personal-vlogging/"><u>[New] In 2024, Pathways to Profitability in Personal Vlogging</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-a-treasure-trove-sifting-through-the-top-10-economical-online-art-hubs/"><u>[Updated] A Treasure Trove Sifting Through the Top 10 Economical Online Art Hubs</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-youtube-taping-permissibility-concerns-for-2024/"><u>[Updated] YouTube Taping Permissibility Concerns for 2024</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/2024-approved-colors-unleashed-practical-application-of-color-theory/"><u>2024 Approved Colors Unleashed Practical Application of Color Theory</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/download-and-install-hp-printer-drivers-on-windows-1011-step-by-step-guide/"><u>Download and Install HP Printer Drivers on Windows 10/11: Step-by-Step Guide</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/1722971033529-get-your-broadcom-bluetooth-software-for-windows-1187-systems-today/"><u>Get Your Broadcom Bluetooth Software for Windows 11/8/7 Systems Today</u></a></li>
+<li><a href="https://apple-account.techidaily.com/in-2024-how-to-change-your-iphone-6-plus-apple-id-on-macbook-by-drfone-ios/"><u>In 2024, How To Change Your iPhone 6 Plus Apple ID on MacBook</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/24-no-cash-needed-for-youtube-audio-check-out-this-list-of-23-crackers/"><u>In 2024, No Cash Needed for YouTube Audio? Check Out This List of 23 Crackers</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/taking-flight-simulation-to-new-heights-a-closer-look-at-x-planes-latest-release-with-exceptional-graphics/"><u>Taking Flight Simulation to New Heights: A Closer Look at X-Plane's Latest Release with Exceptional Graphics</u></a></li>
+</ul></div>
 

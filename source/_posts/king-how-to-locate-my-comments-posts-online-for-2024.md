@@ -1,7 +1,7 @@
 ---
 title: "Unmasking How To Locate My Comments Posts Online for 2024"
-date: 2024-09-15T17:24:51.107Z
-updated: 2024-09-16T22:01:18.307Z
+date: 2024-09-21T00:54:20.043Z
+updated: 2024-09-22T08:32:33.716Z
 tags:
   - ai video
   - ai youtube
@@ -84,6 +84,13 @@ Tap the **Menu** icon from the top-left corner of the YouTube page, and tap **Hi
 
 ![Access the Desktop Version of YouTube ](https://images.wondershare.com/filmora/article-images/view-past-youtube-comments-iphone.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://homestyler.sjv.io/c/5597632/1943647/22993" target="_top" id="1943647">
+  <img src="//a.impactradius-go.com/display-ad/22993-1943647" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://homestyler.sjv.io/i/5597632/1943647/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 3\. Find Your YouTube Comments on an Android Smartphone
 
 As it is with iOS, the YouTube app for Android doesn’t allow you to view your comments history either. However, the workaround of using a web browser works pretty well on Android smartphones too, but with a few tweaks. The process of doing so is given below:
@@ -137,13 +144,6 @@ Click the **More** icon from the right of the comment you want to moderate, and 
 
 Note: To view all comments received on your YouTube channel, go to the Comments tab under YouTube Studio, and you will find all Channel comments & mentions.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115933/19272" target="_top" id="2115933">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115933" border="0" alt="https://techidaily.com" width="320" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115933/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 2\. Find Your Channel’s YouTube Comments on a Mobile App
 
 This process is comparatively simpler than the previous one as all that you need to do is download the YT Studio app, and access a central location where all the comments for all the videos can be viewed. The process is given below:
@@ -163,6 +163,19 @@ Tap the **More** button from the right of an inappropriate comment, and tap **Hi
 **Note:** Unfortunately, you cannot hold the comments for approval using the YT Studio app. As a workaround, you can follow the procedure given earlier to access the desktop version of YouTube on your smartphone, and then use the method explained in the previous section to get this done. However, it is recommended that you do all such sensitive tasks on a laptop or desktop computer to avoid any errors.
 
 ![Find  YouTube Comments mobile ](https://images.wondershare.com/filmora/article-images/find-youtube-channel-comments-mobile.jpg)
+
+<!-- affiliate ads begin -->
+<span id="1374819">
+					<video width="200" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1374819.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/15852-1374819">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1374819.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1374819%2F15852'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1374819/15852" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Part 3: Find Someone’s YouTube Comments by User Name
 
@@ -186,13 +199,6 @@ Choose **Comments** from the search type drop-down list, enter the name of the u
 
 ![Serach  YouTube Comments of specific users ](https://images.wondershare.com/filmora/article-images/search-comment-from-specific-user-with-ycs-extension.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2121335/18498" target="_top" id="2121335">
-  <img src="//a.impactradius-go.com/display-ad/18498-2121335" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2121335/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Part 4: How to Edit and Reply to YouTube Comments?
 
 Editing an existing YouTube comment that you have posted earlier, or replying to the one published by someone else is simple. The process is given below:
@@ -206,6 +212,19 @@ Use any of the methods explained above to locate your YouTube comment that you w
 Locate the comment that you want to reply to, click **REPLY** from under the comment, type your text in the available field, and click **REPLY**.
 
 ![Reply  YouTube Comments  ](https://images.wondershare.com/filmora/article-images/reply-youtube-comments.jpg)
+
+<!-- affiliate ads begin -->
+<span id="1983473">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983473.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983473">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983473.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983473%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983473/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Part 5: How to Moderate YouTube Comments?
 
@@ -234,10 +253,10 @@ While posting a comment on a YouTube video, it is imperative to keep a few thing
 * Ignore the replies with inappropriate content
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123728/7443" target="_top" id="2123728">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123728" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2144308/7443" target="_top" id="2144308">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144308" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123728/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144308/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## FAQs About YouTube Comments
@@ -253,13 +272,6 @@ In such a case, you are advised to wait for the authorized person to approve you
 **A:** You won’t be able to view the unpublished comments or those from the users you have added to the ‘hidden’ list. To fix this problem, you may want to disable moderation from your channel or the videos, and also unhide the users. The processes of both these configurations are explained in detail in the above sections.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115916/19272" target="_top" id="2115916">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115916" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115916/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -282,15 +294,16 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-tips.techidaily.com/ed-2024-approved-ideal-mp4-slicer-for-mac-boost-your-vlog-game/"><u>[Updated] 2024 Approved Ideal MP4 Slicer for Mac Boost Your Vlog Game</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-2024-approved-stream-youtube-in-the-background-using-iphone-and-android/"><u>[Updated] 2024 Approved Stream YouTube in the Background Using iPhone & Android</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/updated-expertly-handling-timecodes-in-srt-using-macos-tools/"><u>[Updated] Expertly Handling Timecodes in SRT Using macOS Tools</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-the-visionaries-of-video-workshop/"><u>[Updated] The Visionaries of Video Workshop</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-unlock-creative-potentials-youtube-trailers-with-filmora-for-2024/"><u>[Updated] Unlock Creative Potentials YouTube Trailers with Filmora for 2024</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/2024-approved-configure-storage-of-captured-mac-screen/"><u>2024 Approved Configure Storage of Captured Mac Screen</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ing-continuous-viewing-pleasure-on-television-for-2024/"><u>Creating Continuous Viewing Pleasure on Television for 2024</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/in-2024-elevate-your-facebook-chronicles-with-gratuitous-upgrades/"><u>In 2024, Elevate Your Facebook Chronicles with Gratuitous Upgrades</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/unlocking-the-secrets-of-spanish-accent-typography/"><u>Unlocking the Secrets of Spanish Accent Typography</u></a></li>
-<li><a href="https://win-dash.techidaily.com/update-and-install-synaptics-drivers-in-no-time-a-step-by-step-tutorial-for-windows-users/"><u>Update & Install Synaptics Drivers in No Time: A Step-by-Step Tutorial for Windows Users</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/new-2024-approved-distinctive-shadowing-via-outer-radial-fuzz-on-pics-cs/"><u>[New] 2024 Approved Distinctive Shadowing via Outer Radial Fuzz on Pics CS</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/asy-guide-to-youtube-livestreaming-from-google-meet/"><u>[New] Easy Guide to YouTube Livestreaming From Google Meet</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-2024-approved-audio-archiving-strategies-on-apple-devices/"><u>[Updated] 2024 Approved Audio Archiving Strategies on Apple Devices</u></a></li>
+<li><a href="https://some-skills.techidaily.com/updated-the-streaming-spectrum-digital-vs-physical-frontiers/"><u>[Updated] The Streaming Spectrum Digital vs Physical Frontiers</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-unlimited-christmas-classics-9-films-available-for-no-charge-in-2024/"><u>[Updated] Unlimited Christmas Classics 9 Films Available for No Charge, In 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-why-youtube-premium-should-be-on-everyones-radar-for-2024/"><u>[Updated] Why YouTube Premium Should Be on Everyone's Radar for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/avoiding-pitfalls-techniques-for-legitimate-video-acquisition/"><u>Avoiding Pitfalls: Techniques for Legitimate Video Acquisition</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/cross-device-video-transformation-guide-compatibility-and-conversion-using-the-winx-mobile-video-tool/"><u>Cross-Device Video Transformation Guide: Compatibility and Conversion Using the WinX Mobile Video Tool</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/in-2024-expert-choice-list-ultimate-streaming-audio-gear/"><u>In 2024, Expert Choice List Ultimate Streaming Audio Gear</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/tp-link-archer-ax6000-vs-nighthawk-ax12-which-router-reigns-supreme/"><u>TP-Link Archer AX6000 Vs. Nighthawk AX12: Which Router Reigns Supreme?</u></a></li>
+<li><a href="https://techtrends.techidaily.com/understanding-and-resolving-missing-wlanapidll-issues-in-windows-systems/"><u>Understanding and Resolving Missing WLanapi.dll Issues in Windows Systems</u></a></li>
 </ul></div>
 

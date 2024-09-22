@@ -1,7 +1,7 @@
 ---
 title: "[New] In 2024, The Solo Creator’s Path to Dynamic Animation Art"
-date: 2024-07-12T22:57:57.613Z
-updated: 2024-07-13T22:57:57.613Z
+date: 2024-09-15T04:15:36.612Z
+updated: 2024-09-22T02:11:48.206Z
 tags:
   - ai video
   - ai youtube
@@ -59,11 +59,25 @@ What’s great about this course is that it assumes you have no animation experi
 
  Most of the video animation courses on this site are paid, but they have a lot of cool free tutorials as well. The focus is more on animating figures/cartoons than video effects, but if you have any interest in animation more generally then this is a great place to start learning. They even have a free ebook you can download which is targeted at beginners.
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136622/26400" target="_top" id="2136622">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136622" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136622/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## ** Video Copilot
 
 This site has a huge number of free After Effects tutorials. There are basic introductory lessons, and really advanced classes on creating custom cinematic FX, like explosions. There’s even a playlist on title design, which will be useful for anyone looking to create an intro sequence for their videos.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134228/18498" target="_top" id="2134228">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134228" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134228/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -71,14 +85,11 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -87,6 +98,19 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-links.techidaily.com/new-2024-approved-capturing-the-essence-including-dates-in-image-files/"><u>[New] 2024 Approved Capturing the Essence Including Dates in Image Files</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-charting-success-with-these-top-15-youtube-introduction-techniques/"><u>[New] 2024 Approved Charting Success with These Top 15 YouTube Introduction Techniques</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/asy-guide-to-youtube-livestreaming-from-google-meet/"><u>[New] Easy Guide to YouTube Livestreaming From Google Meet</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-essential-guide-for-teachers-on-using-visual-aids-for-2024/"><u>[New] Essential Guide for Teachers on Using Visual Aids for 2024</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/updated-adventure-essentials-ultimate-guide-to-1-10-gopro-protectors/"><u>[Updated] Adventure Essentials - Ultimate Guide to #1-10 GoPro Protectors</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-pioneering-video-design-on-a-shoestring-exclusive-tutorials-for-free-from-top-4-youtube-vfx-channels-for-2024/"><u>[Updated] Pioneering Video Design on a Shoestring Exclusive Tutorials for Free From Top 4 YouTube VFX Channels for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-why-youtube-premium-should-be-on-everyones-radar-for-2024/"><u>[Updated] Why YouTube Premium Should Be on Everyone's Radar for 2024</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/fixing-unstable-pcs-how-to-prevent-your-system-from-enshrouded-crashing/"><u>Fixing Unstable PCs: How to Prevent Your System From Enshrouded Crashing</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/how-to-enroll-in-chatgpt-plugin-upgrades-now/"><u>How to Enroll in ChatGPT Plugin Upgrades Now!</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-restore-missing-messages-files-from-tecno-camon-20-pro-5g-by-fonelab-android-recover-messages/"><u>How To Restore Missing Messages Files from Tecno Camon 20 Pro 5G</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/step-by-step-solutions-for-overcoming-the-windows-update-issue-error-0x8024002e/"><u>Step-by-Step Solutions for Overcoming the Windows Update Issue (Error 0X8024002E)</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ssential-guide-to-a-bespoke-youtube-channel-url-for-2024/"><u>The Essential Guide to a Bespoke YouTube Channel URL for 2024</u></a></li>
+</ul></div>
 

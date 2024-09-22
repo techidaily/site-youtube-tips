@@ -1,7 +1,7 @@
 ---
 title: "[New] Cultivating Confidence for Captivating Your YouTube Audience"
-date: 2024-07-12T23:00:51.790Z
-updated: 2024-07-13T23:00:51.790Z
+date: 2024-09-16T04:21:30.417Z
+updated: 2024-09-22T00:02:52.395Z
 tags:
   - ai video
   - ai youtube
@@ -65,6 +65,13 @@ Unlike being invited to a party, there is no obligation when it comes to YouTube
 
 The opposite of inviting is rejecting, and when you are a vlogger, you don’t want to reject anyone from enjoying your videos.
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137213/26400" target="_top" id="2137213">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137213" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137213/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **5\. Compose the Shot**
 
 Vlogging is a visual medium, and while the story is important, what is captured in the frame will play an impactful role in the video as well.
@@ -76,6 +83,13 @@ The great thing about vlogging is that you will get a lot of practice framing sh
 Check out this example from [Rosanna Pansino](https://www.youtube.com/channel/UCjwmbv6NE4mOh8Z8VhPUx1Q), where she gives a tour of her bedroom.
 
  The camera follows her fluidly throughout the video, but it is her eyes that guide both the camera moves and what she wants our attention to be directed to. Don’t hesitate to let the viewer know what you want them to see.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2132160/7443" target="_top" id="2132160">
+  <img src="//a.impactradius-go.com/display-ad/7443-2132160" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2132160/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **6\. Be Prepared**
 
@@ -96,6 +110,13 @@ If you speak on camera in a monotone voice, you are not being expressive. Your f
 Consider your audience: they are coming home from school or work, where there were classes and meetings, and the last thing they want to watch is a video of your speaking without energy.
 
 Want to see a vlogger that is awesome at being expressive on camera? Check out [Emma Chamberlain](https://www.youtube.com/channel/UC78cxCAcp7JfQPgKxYdyGrg), if you haven’t already. Every word she says in her video is layered with emotion. We know exactly how she feels.
+
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1484909/16446" target="_top" id="1484909">
+  <img src="//a.impactradius-go.com/display-ad/16446-1484909" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484909/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **8\. Stay Organized**
 
@@ -129,14 +150,11 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -145,6 +163,16 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-tips.techidaily.com/ed-determinants-of-youtube-video-prominence-and-success/"><u>[Updated] Determinants of YouTube Video Prominence and Success</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-speedy-screen-grab-creation-techniques/"><u>[Updated] Speedy Screen Grab Creation Techniques</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-the-fundamentals-of-crafting-youtube-videos-from-scratch-for-2024/"><u>[Updated] The Fundamentals of Crafting YouTube Videos From Scratch for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-unlocking-youtube-profits-a-comprehensive-manual-for-2024/"><u>[Updated] Unlocking YouTube Profits A Comprehensive Manual for 2024</u></a></li>
+<li><a href="https://article-files.techidaily.com/animepic-full-review-year-2024-edition/"><u>AnimEpic Full Review - Year 2024 Edition</u></a></li>
+<li><a href="https://techidaily.com/how-to-factory-reset-asus-rog-phone-7-ultimate-without-losing-data-drfone-by-drfone-reset-android-reset-android/"><u>How to Factory Reset Asus ROG Phone 7 Ultimate without Losing Data | Dr.fone</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/how-to-unlock-iphone-14-apples-new-iphone-by-drfone-ios/"><u>How to Unlock iPhone 14, Apples New iPhone</u></a></li>
+<li><a href="https://ai-video-tools.techidaily.com/new-video-editors-toolkit-10-must-have-software-for-2024/"><u>New Video Editors Toolkit 10 Must-Have Software for 2024</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/online-aiff-en-mp4-konvertiseren-vrije-ldv-tool-via-movavi/"><u>Online AIFF en MP4 Konvertiseren - Vrije LDV-Tool via Movavi</u></a></li>
+</ul></div>
 
