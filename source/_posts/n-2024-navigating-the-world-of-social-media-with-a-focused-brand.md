@@ -1,7 +1,7 @@
 ---
 title: "[New] In 2024, Navigating the World of Social Media with a Focused Brand"
-date: 2024-09-16T07:08:50.903Z
-updated: 2024-09-22T01:04:01.284Z
+date: 2024-09-26T17:03:02.831Z
+updated: 2024-09-28T23:42:05.757Z
 tags:
   - ai video
   - ai youtube
@@ -50,6 +50,13 @@ No Doubt, Filmora is the one of the best tools for newbie editors, vloggers and 
 
 Competing on YouTube is all about offering value. Viewers should be able to find something on your channel that they can’t find anywhere else. This doesn’t mean you need to bend over backwards trying to[invent brand new video ideas that nobody has ever tried before](https://www.filmora.io/community-blog/how-to-be-original-on-youtube-289.html) – it just means you need to focus on building your unique brand. That is what will make viewers subscribe to you instead of just watching one of your videos and then clicking away.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2052060/7443" target="_top" id="2052060">
+  <img src="//a.impactradius-go.com/display-ad/7443-2052060" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2052060/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## The Elevator Pitch
 
 If you had 20 seconds – a short elevator ride – to describe your channel in a way that would make someone want to subscribe, what would you say?
@@ -67,10 +74,16 @@ You need to be able to do that when you talk about your channel.
 Work on developing an elevator pitch for your channel. It will help you define your brand for yourself, and it’ll be useful if you make a channel trailer.
 
 <!-- affiliate ads begin -->
-<a href="https://electronicx.pxf.io/c/5597632/1166360/14483" target="_top" id="1166360">
-  <img src="//a.impactradius-go.com/display-ad/14483-1166360" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://electronicx.pxf.io/i/5597632/1166360/14483" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1983573">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983573.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983573">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983573.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983573%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983573/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## How to Start Building Your Brand
@@ -82,6 +95,13 @@ Building a brand should be intentional. You need to be yourself, but it’s not 
 You will notice patterns. There will be things you do in your video that people consistently like more and less. The way you build your brand is by cutting out the stuff that isn’t working and focusing more intentionally on the stuff that is. If people like it when you do meme humor, for example, do more meme humor and make incorporating that in your videos part of your brand.
 
 Banners and thumbnails are also a part of your brand. [More on that here](https://www.filmora.io/community-blog/how-to-make-youtube-banners-and-thumbnails-316.html).
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151873/7443" target="_top" id="2151873">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151873" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151873/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Being Consistent
 
@@ -104,10 +124,10 @@ When you intentionally create your personal brand on YouTube, you take charge of
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082536/7443" target="_top" id="2082536">
-  <img src="//a.impactradius-go.com/display-ad/7443-2082536" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://bluettius.sjv.io/c/5597632/2139112/17108" target="_top" id="2139112">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139112" border="0" alt="https://techidaily.com" width="250" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082536/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139112/17108" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Shanoon Cox
@@ -129,5 +149,20 @@ Follow @Shanoon Cox
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://eaxpv-info.techidaily.com/new-free-converters-at-your-fingertenaside-download-and-enjoy-videos-anywhere-for-2024/"><u>[New] Free Converters at Your Fingertenaside Download & Enjoy Videos Anywhere for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-best-affordable-video-editors-in-the-market-2023-edition/"><u>[New] In 2024, Best Affordable Video Editors in the Market - 2023 Edition</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/treamline-your-youtube-shorts-thumbnail-process/"><u>[New] Streamline Your YouTube Shorts Thumbnail Process</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-in-2024-top-5-best-3d-intro-makers-for-youtube/"><u>[Updated] In 2024, Top 5 Best 3D Intro Makers for YouTube</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-mastery-of-viewership-hierarchy-key-aspects-examined-for-2024/"><u>[Updated] Mastery of Viewership Hierarchy Key Aspects Examined for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-tackling-the-mystery-of-missing-shorts-video-images-for-2024/"><u>[Updated] Tackling the Mystery of Missing Shorts Video Images for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-youtube-journey-starter-pack-8-essential-online-courses/"><u>[Updated] YouTube Journey Starter Pack 8 Essential Online Courses</u></a></li>
+<li><a href="https://media-tips.techidaily.com/creating-animated-gifs-from-your-iphone-pictures-a-step-by-step-guide/"><u>Creating Animated GIFs From Your iPhone Pictures: A Step-by-Step Guide</u></a></li>
+<li><a href="https://techtrends.techidaily.com/enhancing-icloud-email-security-with-dual-step-verification/"><u>Enhancing iCloud Email Security with Dual-Step Verification</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-fake-the-location-to-get-around-the-mlb-blackouts-on-motorola-moto-g-stylus-2023-drfone-by-drfone-virtual-android/"><u>In 2024, Fake the Location to Get Around the MLB Blackouts on Motorola Moto G Stylus (2023) | Dr.fone</u></a></li>
+<li><a href="https://fox-that.techidaily.com/top-7-factors-causing-sluggish-wi-fi-speeds-on-mobile-devices/"><u>Top 7 Factors Causing Sluggish Wi-Fi Speeds on Mobile Devices</u></a></li>
+<li><a href="https://win11.techidaily.com/unlocking-the-potential-of-openais-ai-for-voice-to-text-in-windows/"><u>Unlocking the Potential of OpenAI's AI for Voice-to-Text in Windows</u></a></li>
+<li><a href="https://win11.techidaily.com/windows-tips-eliminating-grayed-out-options/"><u>Windows Tips: Eliminating Grayed Out Options</u></a></li>
+</ul></div>
 
