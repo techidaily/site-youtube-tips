@@ -1,7 +1,7 @@
 ---
 title: "[New] How to Restrict Viewership of Your YouTube Content for 2024"
-date: 2024-09-22T17:59:22.980Z
-updated: 2024-09-28T21:05:05.354Z
+date: 2024-09-26T21:25:56.297Z
+updated: 2024-10-03T16:26:38.412Z
 tags:
   - ai video
   - ai youtube
@@ -65,13 +65,6 @@ thumbnail: https://thmb.techidaily.com/4f0baa4676690f713a7c64c49fa175c4aff67762b
 
 ![youtube privacy setting](https://images.wondershare.com/filmora/article-images/youtube-privacy-setting.JPG)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1915805/19272" target="_top" id="1915805">
-  <img src="//a.impactradius-go.com/display-ad/19272-1915805" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1915805/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Part 2: How to Change Privacy Settings
 
  There are two ways to change the privacy settings: firstly, when you upload the video, and secondly through Creator Studio.
@@ -82,18 +75,18 @@ thumbnail: https://thmb.techidaily.com/4f0baa4676690f713a7c64c49fa175c4aff67762b
 
 ![upload youtube video privacy](https://images.wondershare.com/filmora/article-images/upload-youtube-video-privacy.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/1030380/11832" target="_top" id="1030380">
-  <img src="//a.impactradius-go.com/display-ad/11832-1030380" border="0" alt="https://techidaily.com" width="720" height="90"/>
-</a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1030380/11832" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 **Method 2:**
 
  To change the privacy setting later, go to Creator Studio, then Video Manager. On the right-hand side you’ll see one of three icons: a world, a chain, and a lock. The world means **"public"**, the chain means **"unlisted"**, and the lock is for **"private"**.
 
 ![youtube privacy settings](https://images.wondershare.com/filmora/article-images/unlisted-video.JPG)
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134224/18498" target="_top" id="2134224">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134224" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134224/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  To change the privacy, click the icon. You’ll be taken to the video's info and settings page. Down below where you see the thumbnails you'll see the selected privacy setting. Click this to open a drop down menu, and select your desired privacy level.
 
@@ -104,16 +97,17 @@ thumbnail: https://thmb.techidaily.com/4f0baa4676690f713a7c64c49fa175c4aff67762b
 ![share youtube privacy video](https://images.wondershare.com/filmora/article-images/share-private-video.JPG)
 
 <!-- affiliate ads begin -->
-<span id="1983545">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983545.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983545">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983545.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983545%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983545/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/2135416/19272" target="_top" id="2135416">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135416" border="0" alt="https://techidaily.com" width="336" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135416/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2006955/19272" target="_top" id="2006955">
+  <img src="//a.impactradius-go.com/display-ad/19272-2006955" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006955/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Conclusion
@@ -123,10 +117,10 @@ thumbnail: https://thmb.techidaily.com/4f0baa4676690f713a7c64c49fa175c4aff67762b
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1484940/16446" target="_top" id="1484940">
-  <img src="//a.impactradius-go.com/display-ad/16446-1484940" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1902278/19272" target="_top" id="1902278">
+  <img src="//a.impactradius-go.com/display-ad/19272-1902278" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484940/16446" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902278/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
@@ -152,19 +146,24 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://twitter-clips.techidaily.com/new-2024-approved-videotwitterconverter-direct-media-conversion/"><u>[New] 2024 Approved VideoTwitterConverter Direct Media Conversion</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ow-to-get-more-views-with-youtube-shorts/"><u>[New] How to Get More Views with YouTube Shorts</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/n-2024-how-regular-are-youtube-monetization-payments/"><u>[New] In 2024, How Regular Are YouTube Monetization Payments?</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/n-2024-the-essential-how-to-for-youtube-comment-control/"><u>[New] In 2024, The Essential How-To for YouTube Comment Control</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/n-2024-the-ultimate-insider-guide-to-youtube-live-video-thumbnails/"><u>[New] In 2024, The Ultimate Insider Guide to YouTube Live Video Thumbnails</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/new-innovative-approaches-to-social-media-video-making/"><u>[New] Innovative Approaches to Social Media Video Making</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/1715860818674-new-snap-and-save-your-android-no-price-tag/"><u>[New] Snap & Save Your Android - No Price Tag!</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-quick-fix-from-raw-images-to-high-quality-youtube-thumbnails/"><u>[Updated] Quick Fix From Raw Images To High-Quality YouTube Thumbnails</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/2024-approved-budget-friendly-skydrive-solution-for-bulk-files/"><u>2024 Approved Budget-Friendly SkyDrive Solution for Bulk Files</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-recover-old-videos-from-your-tecno-spark-10-4g-by-fonelab-android-recover-video/"><u>How to recover old videos from your Tecno Spark 10 4G</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/for-finding-googles-ad-sponsors-on-video-for-2024/"><u>Hubs for Finding Google's Ad Sponsors on Video for 2024</u></a></li>
-<li><a href="https://change-location.techidaily.com/in-2024-6-ways-to-change-spotify-location-on-your-nokia-c210-drfone-by-drfone-virtual-android/"><u>In 2024, 6 Ways to Change Spotify Location On Your Nokia C210 | Dr.fone</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/24-the-art-of-attraction-top-20-fonts-for-impactful-youtube-thumbnails/"><u>In 2024, The Art of Attraction Top 20 Fonts for Impactful YouTube Thumbnails</u></a></li>
-<li><a href="https://ai-driven-video-production.techidaily.com/new-avi-video-editing-on-a-budget-top-5-free-options-for-2024/"><u>New AVI Video Editing on a Budget Top 5 Free Options for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-mastering-tags-a-must-read-before-uploading/"><u>[New] In 2024, Mastering Tags A Must-Read Before Uploading</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-optimize-video-publishing-timing-for-maximum-views/"><u>[New] In 2024, Optimize Video Publishing Timing for Maximum Views</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-ultimate-movie-watchlists-for-efficient-screen-time/"><u>[New] In 2024, Ultimate Movie Watchlists for Efficient Screen Time</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ynchronizing-social-media-channels-for-broad-distribution/"><u>[New] Synchronizing Social Media Channels for Broad Distribution</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-2024-approved-journey-through-time-the-best-history-yt-channels-ranked-1-10/"><u>[Updated] 2024 Approved Journey Through Time The Best History YT Channels Ranked #1-10</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-how-to-build-youtube-backlinks-for-your-channel-for-2024/"><u>[Updated] How to Build YouTube Backlinks for Your Channel for 2024</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/updated-mastering-online-team-interactions-for-2024/"><u>[Updated] Mastering Online Team Interactions for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-significant-details-in-asmr-recording-art/"><u>[Updated] Significant Details in ASMR Recording Art</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-vanishing-acts-how-to-blur-faces-and-objects-online/"><u>[Updated] Vanishing Acts How to Blur Faces and Objects Online</u></a></li>
+<li><a href="https://extra-support.techidaily.com/2024-approved-jokesterjuxtaposer/"><u>2024 Approved JokesterJuxtaposer</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/2024-approved-smooth-operations-leading-windows-phones-videos/"><u>2024 Approved Smooth Operations Leading Windows Phones Videos</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/automated-youtube-content-feeds-for-2024/"><u>Curb Automated YouTube Content Feeds for 2024</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/download-canon-pixma-mx925-printer-software-for-pc/"><u>Download Canon PIXMA MX925 Printer Software for PC</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/exploring-the-significance-a-game-changer-geminis-leap-with-one-million-tokens-context/"><u>Exploring the Significance: A Game Changer - Gemini's Leap with One Million Tokens Context</u></a></li>
+<li><a href="https://fake-location.techidaily.com/how-to-change-spotify-location-after-moving-to-another-country-on-itel-p55-5g-drfone-by-drfone-virtual-android/"><u>How to Change Spotify Location After Moving to Another Country On Itel P55 5G | Dr.fone</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/24-top-insights-into-2018-fifa-football-videos-on-youtube-infographic/"><u>In 2024, Top Insights Into 2018 FIFA Football Videos On YouTube [Infographic]</u></a></li>
+<li><a href="https://win11.techidaily.com/resolving-error-code-0x800700e1-on-w10w11/"><u>Resolving Error Code: 0X800700E1 on W10/W11</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/the-art-and-science-of-fb-video-ads-unveiling-20-crucial-steps-for-2024/"><u>The Art and Science of FB Video Ads Unveiling 20 Crucial Steps for 2024</u></a></li>
+<li><a href="https://techidaily.com/undelete-lost-data-from-honor-x50iplus-by-fonelab-android-recover-data/"><u>Undelete lost data from Honor X50i+</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "Essential Strategies for Memorable YouTube Closings"
-date: 2024-09-21T04:37:27.811Z
-updated: 2024-09-21T23:32:00.399Z
+date: 2024-10-01T06:07:10.857Z
+updated: 2024-10-03T16:19:45.107Z
 tags:
   - ai video
   - ai youtube
@@ -100,6 +100,13 @@ Another way to get your YouTube end screens for free, of course, is to make them
 
 ![create-outro-end-screen-with-canva  ](https://images.wondershare.com/filmora/article-images/create-outro-end-screen-with-canva-2.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2087389/7443" target="_top" id="2087389">
+  <img src="//a.impactradius-go.com/display-ad/7443-2087389" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087389/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 3\. After clicking “Design!,” a new browser will open with a blank canvas.
 
 4\. Next, do an image search for “YouTube End Screen,” choose an end screen with a layout that you would like to build off of, and save the image onto your computer.
@@ -110,6 +117,13 @@ Another way to get your YouTube end screens for free, of course, is to make them
 
 ![upload-downloaded-youtube-end-screen-canva ](https://images.wondershare.com/filmora/article-images/upload-downloaded-youtube-end-screen-canva.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1938721/19272" target="_top" id="1938721">
+  <img src="//a.impactradius-go.com/display-ad/19272-1938721" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938721/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 6\. Stretch your image to the ends of your canvas.
 
 ![stretch-end-screen-templates-canva ](https://images.wondershare.com/filmora/article-images/stretch-end-screen-templates-canva.jpg)
@@ -117,6 +131,13 @@ Another way to get your YouTube end screens for free, of course, is to make them
 7\. Insert your own shapes, lines, colours, images, and text over the image.
 
 ![adjust-end-screen-templates-in-canva](https://images.wondershare.com/filmora/article-images/adjust-end-screen-templates-in-canva.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1948932/19272" target="_top" id="1948932">
+  <img src="//a.impactradius-go.com/display-ad/19272-1948932" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948932/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 8\. When you’re done, delete the original image so that you’re left with just your own design. Go ahead and click “download.”
 
@@ -127,6 +148,19 @@ If you're looking for other options to design your end screen, make sure to also
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<span id="1993645">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1993645.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1993645">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993645.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993645%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993645/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -147,12 +181,16 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2100542/7443" target="_top" id="2100542">
-  <img src="//a.impactradius-go.com/display-ad/7443-2100542" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100542/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-mirroring-recording.techidaily.com/new-snapping-and-recording-screen-on-macos/"><u>[New] Snapping and Recording Screen on macOS</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-2024-approved-inviolate-disengagement-protocol-for-compact-youtube-clips/"><u>[Updated] 2024 Approved Inviolate Disengagement Protocol for Compact YouTube Clips</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-enhancing-your-snapchat-experience-mobile-recordings/"><u>[Updated] Enhancing Your Snapchat Experience Mobile Recordings</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-in-2024-navigating-the-world-of-youtube-music-shorts/"><u>[Updated] In 2024, Navigating the World of YouTube Music Shorts</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-professional-content-creators-guide-studio-vs-beta-platform/"><u>[Updated] Professional Content Creator's Guide Studio Vs. Beta Platform</u></a></li>
+<li><a href="https://fox-access.techidaily.com/2024-approved-exposing-the-pinnacle-5-digital-title-artists/"><u>2024 Approved Exposing the Pinnacle 5 Digital Title Artists</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/2024-approved-seamless-process-of-streaming-on-facebook-live/"><u>2024 Approved Seamless Process of Streaming on Facebook Live</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/approved-template-tips-for-efficient-and-effective-youtube-intros/"><u>2024 Approved Template Tips for Efficient and Effective YouTube Intros</u></a></li>
+<li><a href="https://common-error.techidaily.com/fixing-your-razers-unlit-keys-a-comprehensive-guide/"><u>Fixing Your Razer's Unlit Keys: A Comprehensive Guide</u></a></li>
+</ul></div>
 

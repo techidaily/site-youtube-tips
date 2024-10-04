@@ -1,7 +1,7 @@
 ---
 title: "The Young Filmmaker's Guide to Selecting Video Gear"
-date: 2024-09-23T21:26:41.855Z
-updated: 2024-09-29T02:41:44.296Z
+date: 2024-10-03T01:00:04.837Z
+updated: 2024-10-04T04:18:06.606Z
 tags:
   - ai video
   - ai youtube
@@ -39,19 +39,6 @@ If you want to start creating videos and uploading them onto YouTube, you’ll n
 ## Part 1: YOUTUBE EQUIPMENT: CAMERA
 
 The best camera for beginners is the one you already have. Most smartphones these days already come equipped with a powerful camera that can record HD videos. If you still want to add a camera to your equipment list as a beginner YouTuber, you should look for a camera with the following eight qualities:
-
-<!-- affiliate ads begin -->
-<span id="1977028">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1977028.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1977028">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977028.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977028%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977028/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### What To Look For In A Camera As A YouTuber
 
@@ -92,13 +79,6 @@ Below are the best cheap vlogging cameras that you can get for under $500\. They
 | ![Nikon A900](https://images.wondershare.com/filmora/article-images/nikon-coolpix-a900-camera.png) | **Best cheap vlogging camera under $400:** Nikon A900 The Nikon A900 not only comes with a non-interchangeable zoom lens, but it can also record videos in UHD 4K quality. Like the Nikon B500, the A900's ISO goes only up to 3200, making it a weak performer in poorly lit conditions.                                                                                                                                                                                                                                                                |
 | ![Sony a5100](https://images.wondershare.com/filmora/article-images/sony-a5100-camera.jpg)         | **Best cheap vlogging camera under $500:** Sony a5100 Among the cameras listed in our top cheap cameras list, the Sony a5100 is the only one you can interchange lenses with. All Sony E-mount lenses are compatible with this camera. This camera can record up to 1080p videos at 60 fps. Out of all of the above top cheap cameras, this one also auto focuses the best.                                                                                                                                                                              |
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123734/7443" target="_top" id="2123734">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123734" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123734/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ###  
 
 ### **Best Entry-Level and Mid-Range Vlogging Cameras**
@@ -111,20 +91,22 @@ If you have a bigger budget to work with, the following vlogging cameras are gre
 | CanonEOSM100      | ![Canon M100](https://images.wondershare.com/filmora/article-images/canon-m100-vlog-camera.jpg) | August2017   | Mirrorless   | Flip Up           | **No**  | $  |
 
 <!-- affiliate ads begin -->
-<span id="1498635">
-					<video width="320" height="320" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1498635.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/17326-1498635">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1498635.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:200px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fancheer.sjv.io%2Fc%2F5597632%2F1498635%2F17326'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1498635/17326" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137201/26400" target="_top" id="2137201">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137201" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137201/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 | CanonEOS RebelSL2 | ![Canon SL2](https://images.wondershare.com/filmora/article-images/canon-sl2-vlog-camera.jpg)   | June2017     | Compact SLR  | Fully Articulated | **Yes** | $  |
 | CanonEOS RebelT7i | ![Canon T7i](https://images.wondershare.com/filmora/article-images/canon-t7i-vlog-camera.jpg)   | February2017 | Mid-size SLR | Fully Articulated | **Yes** | $- |
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1886069/19272" target="_top" id="1886069">
+  <img src="//a.impactradius-go.com/display-ad/19272-1886069" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886069/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 | CanonEOS80D       | ![Canon 80D](https://images.wondershare.com/filmora/article-images/canon-80d-vlog-camera.jpg)   | February2016 | Mid-size SLR | Fully Articulated | **Yes** | $$ |
 
 | ![Canon M100](https://images.wondershare.com/filmora/article-images/canon-m100-vlog-camera.jpg) | **Best entry-level mirrorless camera for vlogging:** Canon EOS M100 The Canon M100 is a small and powerful camera that can shoot full HD (1080p) videos up to 60 fps. The touchscreen LCD of this camera flips up so that you can see yourself as you vlog in selfie mode.                                                                                                                                  |
@@ -133,10 +115,10 @@ If you have a bigger budget to work with, the following vlogging cameras are gre
 | ![Canon T7i](https://images.wondershare.com/filmora/article-images/canon-t7i-vlog-camera.jpg)   | **Best DSLR camera for daily vlogging:** Canon EOS T7i The Canon EOS T7i is a great DSLR camera for daily vlogging. It can record full HD 1080p videos at 60 fps, it can create HDR and time-lapse movies, and it also has a fully articulated screen.                                                                                                                                                      |
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123726/7443" target="_top" id="2123726">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123726" border="0" alt="https://techidaily.com" width="600" height="90"/>
+<a href="https://versadesk.pxf.io/c/5597632/1828647/21290" target="_top" id="1828647">
+  <img src="//a.impactradius-go.com/display-ad/21290-1828647" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123726/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://versadesk.pxf.io/i/5597632/1828647/21290" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 | ![Canon SL2](https://images.wondershare.com/filmora/article-images/canon-sl2-vlog-camera.jpg)   | **Best entry-level DSLR camera for vlogging:** Canon EOS SL2 The Canon EOS SL2 delivers a lot of power at a low price. This DSLR camera can capture full HD 1080p videos at 60 fps.                                                                                                                                                                                                                         |
@@ -154,13 +136,6 @@ When you start looking into bigger cameras, though, you’ll have to think about
 
 Every YouTuber should have a **wide-angle lens**. With this kind of lens, you can fit much more of a scene into your camera frame, including your own face when you’re just an arm’s length away from your camera. This is especially important for YouTubers because most YouTubers have to operate their camera on their own, without the assistance of an additional camera person.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135371/19272" target="_top" id="2135371">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135371" border="0" alt="https://techidaily.com" width="320" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135371/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Optical Image Stabilization
 
 You should also look for a lens with **optical image stabilization** if you’re shooting a lot of your YouTube videos handheld.
@@ -174,10 +149,10 @@ For more information on camera lenses, check out my [Vlogger’s Guide To Camera
 | ![Joby GorillaPod SLR-Zoom](https://images.wondershare.com/filmora/article-images/joby-gorillapod-tripod.jpg)   | **Joby GorillaPod With Ballhead** When you film yourself handheld, it’s difficult to keep your arm higher up so that your camera shoots down at an ideal angle. You may also notice that a lot of your arm gets into your shot, which you and other viewers might find distracting. Holding your camera up by a GorillaPod, however, can give you the extension you need to get that higher angle shot more easily, all without so much of your arm getting into your shot. |
 
 <!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148640/16836" target="_top" id="2148640">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148640" border="0" alt="https://techidaily.com" width="234" height="60"/>
+<a href="https://appsumo.8odi.net/c/5597632/2087389/7443" target="_top" id="2087389">
+  <img src="//a.impactradius-go.com/display-ad/7443-2087389" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148640/16836" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087389/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 4: YOUTUBE EQUIPMENT: MICROPHONE
@@ -215,10 +190,10 @@ The solution to this problem is getting additional video lighting equipment with
 | ------------------------------------------------------------------------------------------------------- | ----------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------- |
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1938693/19272" target="_top" id="1938693">
-  <img src="//a.impactradius-go.com/display-ad/19272-1938693" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2027181/19272" target="_top" id="2027181">
+  <img src="//a.impactradius-go.com/display-ad/19272-2027181" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938693/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2027181/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 | ![On-Camera LED Light](https://images.wondershare.com/filmora/article-images/on-camera-led-light.jpg)   | **On-Camera LED Light** If you need more light just in front of the camera and you need this light to be portable, LED lights that attach to your camera’s hot/cold shoe will do the job.                                                                                                                                                                                                             |
@@ -226,7 +201,21 @@ The solution to this problem is getting additional video lighting equipment with
 | ![Softbox Video Light](https://images.wondershare.com/filmora/article-images/softbox-video-light.jpg)   | **Softbox Video Light** If you need more light and have more space, another piece of lighting equipment good for beginners is a softbox video light.                                                                                                                                                                                                                                                  |
 | ![Umbrella Video Light](https://images.wondershare.com/filmora/article-images/umbrella-video-light.jpg) | **Umbrella Video Light** Umbrella video lights are very portable and affordable. The direction of the light from umbrella lights are more difficult to control than the light from softbox video lights.                                                                                                                                                                                              |
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2100529/7443" target="_top" id="2100529">
+  <img src="//a.impactradius-go.com/display-ad/7443-2100529" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100529/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 If you're looking for recommendations on which piece of lighting equipment to buy, check out my list of the [Top 17 Video Lighting Equipment For YouTubers](https://www.filmora.io/community-blog/top-17-video-lighting-equipment-for-youtubers-440.html).
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2037359/7443" target="_top" id="2037359">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037359" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037359/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Part 7: YOUTUBE EQUIPMENT: COMPUTER
 
@@ -254,6 +243,13 @@ Read more about these laptop computers for 4K video editing in [The Best Laptops
 
 ## YOUTUBE EQUIPMENT: AUDIO
 
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139123/17108" target="_top" id="2139123">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139123" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139123/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### **Music Libraries**
 
 Music is an important part of YouTube video creation. Here’s where you can get access to music:
@@ -276,13 +272,6 @@ Music is an important part of YouTube video creation. Here’s where you can get
 
 ![author avatar](https://images.wondershare.com/filmora/Contributor/Sumia-Rafique.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2137378/7443" target="_top" id="2137378">
-  <img src="//a.impactradius-go.com/display-ad/7443-2137378" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137378/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Sumia Rafique
 
 Sumia Rafique is a writer and a lover of all things video.
@@ -304,18 +293,17 @@ Follow @Sumia Rafique
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-content.techidaily.com/new-fb-chronicles-the-hidden-viewer/"><u>[New] FB Chronicles The Hidden Viewer</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/new-in-2024-best-in-class-no-charging-switch-replicas/"><u>[New] In 2024, Best-in-Class, No-Charging Switch Replicas</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ransform-your-asmr-experience-into-proficiently-produced-videos-for-2024/"><u>[New] Transform Your ASMR Experience Into Proficiently Produced Videos for 2024</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/updated-real-time-speech-processing-and-action-at-no-charge/"><u>[Updated] Real-Time Speech Processing & Action at No Charge</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-unveiling-the-process-of-making-a-twitter-account-for-2024/"><u>[Updated] Unveiling the Process of Making a Twitter Account for 2024</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/-bot-patterns-enhance-organic-video-reach/"><u>Break Bot Patterns, Enhance Organic Video Reach</u></a></li>
-<li><a href="https://driver-error.techidaily.com/device-device-event-code-219-wudfrd-failure-load/"><u>Device Device Event Code 219: WudfRd Failure Load</u></a></li>
-<li><a href="https://location-social.techidaily.com/how-to-detect-and-stop-mspy-from-spying-on-your-samsung-galaxy-a54-5g-drfone-by-drfone-virtual-android/"><u>How to Detect and Stop mSpy from Spying on Your Samsung Galaxy A54 5G | Dr.fone</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/-dimensions-for-youtube-thumbnail-attraction/"><u>Ideal Dimensions for YouTube Thumbnail Attraction</u></a></li>
-<li><a href="https://win-solutions.techidaily.com/1723002259996-lay-down-newspapers-or-a-drop-cloth-to-protect-your-work-area-from-paint-spills/"><u>Lay Down Newspapers or a Drop Cloth to Protect Your Work Area From Paint Spills</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/unlocking-the-secrets-a-comprehensive-guide-on-earning-your-free-youtube-premium-plan-as-a-student/"><u>Unlocking the Secrets: A Comprehensive Guide on Earning Your Free YouTube Premium Plan as a Student</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/-color-correction-for-youtube-beauty-for-2024/"><u>Video Color Correction for YouTube Beauty for 2024</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/-to-buy-a-monetized-youtube-channel-a-complete-guide-for-2024/"><u>Where to Buy a Monetized YouTube Channel A Complete Guide for 2024</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-a-curated-list-of-happiness-crying-combo-on-instagram-pages/"><u>[New] A Curated List of Happiness-Crying Combo on Instagram Pages</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/op-12-free-youtube-thumbnail-makers-filmora-for-2024/"><u>[New] Top 12 Free YouTube Thumbnail Makers - Filmora for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-premier-cutting-suites-on-linux-systems/"><u>[Updated] Premier Cutting Suites on Linux Systems</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-upgrade-your-channels-visual-appeal-for-2024/"><u>[Updated] Upgrade Your Channel's Visual Appeal for 2024</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/ai-and-humor-does-chatgpt-really-have-what-it-takes-to-entertain-us-with-jokes/"><u>AI and Humor: Does ChatGPT Really Have What It Takes to Entertain Us with Jokes?</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/eling-changes-transition-to-youtubes-updated-membership-model-for-2024/"><u>Channeling Changes Transition to YouTube's Updated Membership Model for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/delving-into-magix-photo-organizer/"><u>Delving Into MAGIX Photo Organizer</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/discover-the-premier-professional-development-courses-on-linkedin/"><u>Discover the Premier Professional Development Courses on LinkedIn</u></a></li>
+<li><a href="https://win-dash.techidaily.com/download-and-install-gigabynter-network-drivers-today-zero-cost/"><u>Download and Install Gigabynter Network Drivers Today – Zero Cost!</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/fixing-yahoo-mail-delivery-problems-steps-to-get-your-missing-emails-back/"><u>Fixing Yahoo Mail Delivery Problems: Steps to Get Your Missing Emails Back</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-change-your-name-on-facebook/"><u>How to Change Your Name on Facebook</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/24-maximizing-youtube-gains-a-comprehensive-approach-for-mobile-monetization/"><u>In 2024, Maximizing YouTube Gains A Comprehensive Approach for Mobile Monetization</u></a></li>
 </ul></div>
 

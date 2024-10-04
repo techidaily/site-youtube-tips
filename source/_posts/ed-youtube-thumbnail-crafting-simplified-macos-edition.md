@@ -1,7 +1,7 @@
 ---
 title: "[Updated] YouTube Thumbnail Crafting Simplified (macOS Edition)"
-date: 2024-09-20T19:34:30.402Z
-updated: 2024-09-22T07:07:15.877Z
+date: 2024-09-30T22:07:57.139Z
+updated: 2024-10-03T17:41:36.685Z
 tags:
   - ai video
   - ai youtube
@@ -51,6 +51,19 @@ If you don’t create a thumbnail then youtube will generate one by itself which
 
 You can easily create interesting thumbnails for youtube videos using a thumbnail maker like[FilmoraX](https://tools.techidaily.com/wondershare/filmora/download/) . Here is a step by step guide:
 
+<!-- affiliate ads begin -->
+<span id="701707">
+					<video width="1536" height="864" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/701707.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/7443-701707">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/701707.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:960px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fappsumo.8odi.net%2Fc%2F5597632%2F701707%2F7443'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/701707/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 1. Preview the video and choose the still snapshot
 
 The first step in creating a thumbnail is to import the final video into the FilmoraX editor on your MacBook.
@@ -63,6 +76,20 @@ You can easily choose the frame from the video or use the preview frame button t
 
 ![thumbnails editor](https://images.wondershare.com/filmora/Mac-articles/thumbnails-editor.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2148645/16836" target="_top" id="2148645">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148645" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148645/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1885932/19272" target="_top" id="1885932">
+  <img src="//a.impactradius-go.com/display-ad/19272-1885932" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1885932/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 2. Add text, shape, and image overlays
 
 Once you’ve chosen the frame for the thumbnail, the next step would be to add text to it to catch the attention of the audience. You can also adjust the thumbnail size as per your requirement, however, the ideal size would be 1280x720 pixels with a minimum width of 640 pixels.
@@ -74,13 +101,6 @@ Once you’ve chosen the frame for the thumbnail, the next step would be to add 
 FilmoraX has a wide range of effects that you can apply to your videos or pictures to make them look more attractive.
 
 ![filter9](https://images.wondershare.com/filmora/guide/filter-9-mac.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://versadesk.pxf.io/c/5597632/1828647/21290" target="_top" id="1828647">
-  <img src="//a.impactradius-go.com/display-ad/21290-1828647" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://versadesk.pxf.io/i/5597632/1828647/21290" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 4. Save the thumbnail
 
@@ -97,20 +117,13 @@ Hopefully, the above-mentioned steps have given you enough insight and clarity o
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144276/7443" target="_top" id="2144276">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144276" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://laganoo.pxf.io/c/5597632/1657400/16446" target="_top" id="1657400">
+  <img src="//a.impactradius-go.com/display-ad/16446-1657400" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144276/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1657400/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1997635/19272" target="_top" id="1997635">
-  <img src="//a.impactradius-go.com/display-ad/19272-1997635" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997635/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Shanoon Cox
 
@@ -131,5 +144,20 @@ Follow @Shanoon Cox
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-tips.techidaily.com/esigning-effective-video-previews-for-channels/"><u>[New] Designing Effective Video Previews for Channels</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-mastering-subscription-the-art-of-positive-engagement/"><u>[New] In 2024, Mastering Subscription The Art of Positive Engagement</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/op-11-strategies-for-boosting-your-youtube-videos-seo-for-2024/"><u>[New] Top 11 Strategies for Boosting Your YouTube Videos' SEO for 2024</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-2024-approved-elevate-your-visual-storytelling-with-top-montage-mobile-aids/"><u>[Updated] 2024 Approved Elevate Your Visual Storytelling with Top Montage Mobile Aids</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-mobile-mastery-youtube-video-thumbnails-made-easy/"><u>[Updated] Mobile Mastery YouTube Video Thumbnails Made Easy</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-per-view-payment-potential-for-online-content-creators/"><u>[Updated] Per-View Payment Potential for Online Content Creators</u></a></li>
+<li><a href="https://fox-info.techidaily.com/2024-approved-delighted-user-registration-walkthrough/"><u>2024 Approved Delighted User Registration Walkthrough</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/best-free-video-calls-featuring-screen-sharing-roundup-for-2024/"><u>Best Free Video Calls Featuring Screen Sharing Roundup for 2024</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/guide-to-minimizing-the-impact-of-desktop-window-manager-on-gpu-resources-in-windows-operating-systems/"><u>Guide to Minimizing the Impact of Desktop Window Manager on GPU Resources in Windows Operating Systems</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/how-do-you-get-sun-stone-evolutions-in-pokemon-for-honor-magic-v2-drfone-by-drfone-virtual-android/"><u>How Do You Get Sun Stone Evolutions in Pokémon For Honor Magic V2? | Dr.fone</u></a></li>
+<li><a href="https://fox-links.techidaily.com/in-2024-in-depth-studio-examination-xstudio-unveiled/"><u>In 2024, In-Depth Studio Examination XStudio Unveiled</u></a></li>
+<li><a href="https://extra-information.techidaily.com/key-sites-the-6-most-vital-platforms-for-b2b-relationships/"><u>Key Sites The 6 Most Vital Platforms for B2B Relationships</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/the-battle-of-word-wizards-exploring-the-unique-features-of-gpt-vs-googles-bert/"><u>The Battle of Word Wizards: Exploring the Unique Features of GPT Vs. Google's BERT</u></a></li>
+</ul></div>
 

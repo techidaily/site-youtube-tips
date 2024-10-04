@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Apex Creators  Video Giants in the Making for 2024\""
-date: 2024-09-23T16:15:22.127Z
-updated: 2024-09-28T20:44:28.797Z
+date: 2024-09-27T10:32:38.765Z
+updated: 2024-10-04T04:42:38.784Z
 tags:
   - ai video
   - ai youtube
@@ -71,33 +71,20 @@ At the age of 27, Germán Alejandro Garmendia Aranis is the owner of the second 
 
 The Chilean YouTube superstar uploaded his first YouTube video in 2011 and by October 2012 his channel has reached 1 million subscribers. Recently, German has lent his voice to a character in the Spanish version of Ice Age: Collision Course. He finds inspiration for his comic YouTube videos in everyday life and topics like ex-girlfriends, school, and phobias are frequently covered in videos published on the HolaSoyGerman channel. In 2014 and 2015 German won the 'Icon of the Year' prize from MTV Millennial Awards.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115932/19272" target="_top" id="2115932">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115932" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115932/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ###  3\.  ElrubiusOMG
 
 ![ElrubiusOMG](https://images.wondershare.com/filmora/article-images/elrubius-omg.jpg)
 
-<!-- affiliate ads begin -->
-<span id="1770526">
-					<video width="240" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1770526.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/20702-1770526">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1770526.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftokenmetrics.sjv.io%2Fc%2F5597632%2F1770526%2F20702'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1770526/20702" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 More than 25 million subscribers who follow this gaming commentator. The El Rubius OMG channel was created by Rubén Doblas Gundersen in December 2011 and by February 2013 it reached 1 million subscribers. However, Rubén has been producing videos for his Elrubius channel since 2006\. He simply became more dedicated to the frequent production of YouTube videos in 2011\. Even though the videos featured on the El Rubius OMG channel mostly cover video games, Rubén also produces comedy videos, vlogs, and other interesting and amusing content.
 
 Based in Madrid, El Rubius OMG first became popular in Spanish-speaking countries, and as his fame increased he gained recognition throughout the world. During 2012 his channel became the most subscribed Spanish speaking channel, and on April 21, 2016, El Rubius received the 'YouTuber of the Year' award during the 1st Play Awards celebration in Palma De Mallorca. In addition to being one of the most popular YouTubers of all time, Rubén is also a published author whose first book 'The Troll Book' was the bestselling book in Spain for 8 weeks.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151865/7443" target="_top" id="2151865">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151865" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151865/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ###  4\.  Smosh
 
@@ -109,9 +96,23 @@ Most channels that have one viral video do not go on to have sustained success o
 
 In 2017, Anthony Padilla chose to leave Smosh to focus on his own solo YouTube channel.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151883/7443" target="_top" id="2151883">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151883" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151883/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 5\.  Fernanfloo
 
 ![Fernanfloo](https://images.wondershare.com/filmora/article-images/fernan-floo.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2105864/7443" target="_top" id="2105864">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105864" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105864/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Yet another enormously popular YouTuber that comes from a Spanish speaking country whose channel attracted millions of subscribers. A 24-year-old Salvadoran named Luis Fernando Flores Alvarado is the man behind one of the most subscribed YouTube channels of all time. The Fernanfloo channel was created in 2011, and in February 2014 it had only 100,000 subscribers. By August 2014, Alvarado's channel reached 1 million subscribers, making him one of YouTube's biggest success stories. The videos featured on Feranfloo channel mostly cover gaming topics, but with a touch of comedy which makes Alvarado's videos unique.
 
@@ -121,22 +122,15 @@ At the end of 2015, Alvarado launched the Fenanfloo mobile app that had 2.3 mill
 
 Looking for a live [YouTube subscriber chart](https://tools.techidaily.com/wondershare/filmora/download/)?
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135364/19272" target="_top" id="2135364">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135364" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135364/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Edit YouTube Videos with Full-Featured Video Editing Software
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139113/17108" target="_top" id="2139113">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139113" border="0" alt="https://techidaily.com" width="320" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2123736/7443" target="_top" id="2123736">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123736" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139113/17108" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123736/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
@@ -162,21 +156,22 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-tips.techidaily.com/024-approved-comprerant-and-reviewed-the-ultimate-list-of-ios-video-edits/"><u>[New] 2024 Approved Compreran't & Reviewed The Ultimate List of iOS Video Edits</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/024-approved-deciphers-for-digital-content-creators-youtubes-keyword-techniques/"><u>[New] 2024 Approved Deciphers for Digital Content Creators YouTube's Keyword Techniques</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/024-approved-get-going-on-youtube-video-upload-tutorial-in-premiere/"><u>[New] 2024 Approved Get Going on YouTube Video Upload Tutorial in Premiere</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/024-approved-hitting-high-notes-enhance-your-youtube-content-with-music-edits/"><u>[New] 2024 Approved Hitting High Notes Enhance Your YouTube Content with Music Edits</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/024-approved-maximizing-revenue-average-income-from-youtubes-adsense-per-thousand-watchers/"><u>[New] 2024 Approved Maximizing Revenue Average Income From YouTube's AdSense Per Thousand Watchers</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/024-approved-navigating-adsense-income-on-youtube-per-1000-viewer-earning/"><u>[New] 2024 Approved Navigating AdSense Income on YouTube Per 1,000 Viewer Earning</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/new-2024-approved-uncovering-average-earnings-podcaster-edition/"><u>[New] 2024 Approved Uncovering Average Earnings Podcaster Edition</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/updated-in-2024-sync-facebook-media-for-larger-display-views/"><u>[Updated] In 2024, Sync Facebook Media for Larger Display Views</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/updated-journey-to-freedom-with-free-movie-player-os-x-and-windows/"><u>[Updated] Journey to Freedom with FREE MOVIE PLAYER (OS X & Windows)</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/10-innovative-companions-to-replace-gpt-on-your-phone/"><u>10 Innovative Companions to Replace GPT on Your Phone</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/global-gratitude-beyond-the-united-states/"><u>Global Gratitude: Beyond the United States</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/in-2024-a-perfect-guide-to-remove-or-disable-google-smart-lock-on-vivo-s17t-by-drfone-android/"><u>In 2024, A Perfect Guide To Remove or Disable Google Smart Lock On Vivo S17t</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/is-it-possible-to-copy-dvds-safely-learn-the-right-methods-for-dvd-ripping/"><u>Is It Possible to Copy DVDs Safely? Learn the Right Methods for DVD Ripping</u></a></li>
-<li><a href="https://fox-that.techidaily.com/stuck-on-ios-update-here-are-9-solutions-to-get-you-up-to-date/"><u>Stuck on iOS Update? Here Are 9 Solutions to Get You Up-to-Date!</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/-integration-youtube-images-in-slide-decks-for-2024/"><u>Video Integration YouTube Images in Slide Decks for 2024</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/-marketing-mastery-for-affiliate-success-for-2024/"><u>Video Marketing Mastery for Affiliate Success for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-avoiding-common-pitfalls-in-your-search-for-spectacular-pexels-photos-for-2024/"><u>[New] Avoiding Common Pitfalls in Your Search for Spectacular Pexels Photos for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ngaging-local-audiences-with-social-media-videos-for-2024/"><u>[New] Engaging Local Audiences with Social Media Videos for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-channel-prominence-mastery-a-comprehensive-youtube-guide/"><u>[New] In 2024, Channel Prominence Mastery A Comprehensive YouTube Guide</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-in-2024-streamline-your-instagram-top-8-planning-apps-for-iosandroid-devices/"><u>[New] In 2024, Streamline Your Instagram Top 8 Planning Apps for iOS/Android Devices</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-tips-on-how-to-edit-youtube-channel-description/"><u>[New] In 2024, Tips on How to Edit YouTube Channel Description</u></a></li>
+<li><a href="https://fox-access.techidaily.com/updated-2024-approved-dissecting-video-production-mastery-with-xmedia-studio-suite/"><u>[Updated] 2024 Approved Dissecting Video Production Mastery with XMedia Studio Suite</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-2024-approved-unleash-potential-access-premium-sound-effects/"><u>[Updated] 2024 Approved Unleash Potential Access Premium Sound Effects</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-from-fan-to-earner-understanding-view-requirements-for-2024/"><u>[Updated] From Fan to Earner Understanding View Requirements for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-in-2024-choosing-superior-tools-for-vocal-change-in-content-making/"><u>[Updated] In 2024, Choosing Superior Tools for Vocal Change in Content Making</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-the-art-and-science-of-striking-youtube-live-images/"><u>[Updated] The Art and Science of Striking YouTube Live Images</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/2024-approved-optimal-viewing-times-on-instagram-videos/"><u>2024 Approved Optimal Viewing Times on Instagram Videos</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/discover-next-gen-devices-to-enhance-your-sleep-experience-and-achieve-deep-rest/"><u>Discover Next-Gen Devices to Enhance Your Sleep Experience and Achieve Deep Rest</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/24-elevating-live-play-with-professional-gear-lists/"><u>In 2024, Elevating Live Play with Professional Gear Lists</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/language-landscapes-evolved-mondlylanguages-bold-journey/"><u>Language Landscapes Evolved: MondlyLanguages' Bold Journey</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/leading-10-in-ultra-hd-top-4k-mirrorless-photo-journals/"><u>Leading 10 in Ultra-HD Top 4K Mirrorless Photo Journals</u></a></li>
+<li><a href="https://win11.techidaily.com/master-the-art-of-gpu-assessment-the-best-6-apps-in-windows/"><u>Master the Art of GPU Assessment: The Best 6 Apps in Windows</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/step-by-step-process-relocating-google-photos-to-apples-secure-icloud-platform/"><u>Step-by-Step Process: Relocating Google Photos to Apple's Secure iCloud Platform</u></a></li>
 </ul></div>
 

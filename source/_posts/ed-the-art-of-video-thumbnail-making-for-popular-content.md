@@ -1,7 +1,7 @@
 ---
 title: "[Updated] The Art of Video Thumbnail Making for Popular Content"
-date: 2024-09-26T01:54:37.549Z
-updated: 2024-09-28T22:35:58.637Z
+date: 2024-10-02T18:12:35.954Z
+updated: 2024-10-03T23:02:23.040Z
 tags:
   - ai video
   - ai youtube
@@ -48,10 +48,10 @@ Here are 5 easy tips for creating thumbnails that get views.
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151893/7443" target="_top" id="2151893">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151893" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2080333/19272" target="_top" id="2080333">
+  <img src="//a.impactradius-go.com/display-ad/19272-2080333" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151893/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2080333/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## 1\. Have a Consistent Layout
@@ -63,23 +63,10 @@ An example of a standard layout could be you in the middle of the screen wearing
 ![Consistent Layout](https://images.wondershare.com/filmora/article-images/consistent-layout.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2006960/19272" target="_top" id="2006960">
-  <img src="//a.impactradius-go.com/display-ad/19272-2006960" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2105877/7443" target="_top" id="2105877">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105877" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006960/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<span id="1983552">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983552.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983552">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983552.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983552%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983552/22993" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105877/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **2\. Use Your Face**
@@ -87,6 +74,13 @@ An example of a standard layout could be you in the middle of the screen wearing
 People feel automatically connected and drawn into images that make eye contact. This makes thumbnails which feature faces more click-able than thumbnails which don’t, in most genres (i.e. if you make food videos then this may not apply – featuring the food might be more important than featuring your face). [Check out more tips like this here](https://tools.techidaily.com/wondershare/filmora/download/).
 
 Also, if somebody recognizes you in your thumbnail from a previous video of yours, that will go a long way towards making them click.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2044582/7443" target="_top" id="2044582">
+  <img src="//a.impactradius-go.com/display-ad/7443-2044582" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2044582/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## 3\. Use Graphics/Emojis that are On Topic
 
@@ -113,10 +107,10 @@ Use these tips to make video thumbnails for YouTube, and tell us what kind of re
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1886073/19272" target="_top" id="1886073">
-  <img src="//a.impactradius-go.com/display-ad/19272-1886073" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2080342/19272" target="_top" id="2080342">
+  <img src="//a.impactradius-go.com/display-ad/19272-2080342" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886073/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2080342/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -140,20 +134,24 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-videos.techidaily.com/new-2024-approved-spotlight-the-25-influencers-redefining-engagement/"><u>[New] 2024 Approved Spotlight The 25 Influencers Redefining Engagement</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/emystifying-youtube-shorts-template-design-principles/"><u>[New] Demystifying YouTube Shorts Template Design Principles</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/igital-footprint-and-interactive-iconography-honors-for-2024/"><u>[New] Digital Footprint and Interactive Iconography Honors for 2024</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/lawless-free-download-of-youtube-video-covers-no-hurdles-in-2024/"><u>[New] Flawless Free Download of YouTube Video Covers - No Hurdles, In 2024</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/n-2024-trailblazers-creating-engaging-marvellous-universe/"><u>[New] In 2024, Trailblazers Creating Engaging Marvellous Universe</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/new-the-art-of-crafting-a-youtube-video-with-100kplus-reach-for-2024/"><u>[New] The Art of Crafting a YouTube Video with 100K+ Reach for 2024</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-2024-approved-10-best-mobile-edits-youtube-shorts-clips-on-iosandroid/"><u>[Updated] 2024 Approved 10 Best Mobile Edits YouTube Shorts Clips on iOS/Android</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-2024-approved-linking-youtubes-harmony-to-imovie-clips-effortlessly/"><u>[Updated] 2024 Approved Linking Youtube's Harmony to iMovie Clips Effortlessly</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/updated-recording-wonders-lightweight-win-11-edition/"><u>[Updated] Recording Wonders Lightweight Win 11 Edition</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-up-to-date-strategies-for-youtube-earnings-for-2024/"><u>[Updated] Up-to-Date Strategies for YouTube Earnings for 2024</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/best-motorola-moto-g-stylus-2023-pattern-lock-removal-tools-remove-android-pattern-lock-without-losing-data-by-drfone-android/"><u>Best Motorola Moto G Stylus (2023) Pattern Lock Removal Tools Remove Android Pattern Lock Without Losing Data</u></a></li>
-<li><a href="https://techidaily.com/how-to-downgrade-apple-iphone-13-pro-without-data-loss-drfone-by-drfone-ios-system-repair-ios-system-repair/"><u>How to Downgrade Apple iPhone 13 Pro without Data Loss? | Dr.fone</u></a></li>
-<li><a href="https://extra-support.techidaily.com/in-2024-smoothshot-stabilizing-technology-on-the-move/"><u>In 2024, SmoothShot Stabilizing Technology on the Move</u></a></li>
-<li><a href="https://ios-location-track.techidaily.com/in-2024-top-6-appsservices-to-trace-any-apple-iphone-11-pro-location-by-mobile-number-drfone-by-drfone-virtual-ios/"><u>In 2024, Top 6 Apps/Services to Trace Any Apple iPhone 11 Pro Location By Mobile Number | Dr.fone</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/unlocking-affordability-in-tech-with-alcatel-joy-tab-2-your-essential-lte-tablet-review/"><u>Unlocking Affordability in Tech with Alcatel Joy Tab 2: Your Essential LTE Tablet Review</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ommanding-youtube-realm-through-strategic-creator-studio-utilization/"><u>[New] Commanding YouTube Realm Through Strategic Creator Studio Utilization</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-speed-focused-chroma-keying-101/"><u>[New] In 2024, Speed-Focused Chroma Keying 101</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/nstant-techniques-to-shuffle-youtube-song-sequences/"><u>[New] Instant Techniques to Shuffle YouTube Song Sequences</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/astering-youtube-stat-tracking-essentials-for-2024/"><u>[New] Mastering YouTube Stat Tracking Essentials for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-cutting-edge-techniques-for-aspiring-youtube-game-streamers-for-2024/"><u>[Updated] Cutting-Edge Techniques for Aspiring YouTube Game Streamers for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-in-2024-learn-how-to-create-compelling-youtube-closures-economically/"><u>[Updated] In 2024, Learn How To Create Compelling YouTube Closures Economically</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-the-ultimate-guide-to-converting-youtube-to-avi-videos-for-2024/"><u>[Updated] The Ultimate Guide to Converting YouTube to AVI Videos for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-the-ultimate-guide-to-finding-a-quality-microphone-for-every-yt-style-for-2024/"><u>[Updated] The Ultimate Guide to Finding a Quality Microphone for Every YT Style for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/approved-revolutionary-techniques-mastering-visual-arts-with-the-top-10-free-youtube-tutorials/"><u>2024 Approved Revolutionary Techniques Mastering Visual Arts with the Top 10 Free YouTube Tutorials</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/2024-approved-unlocking-the-power-of-google-meet-with-your-tech/"><u>2024 Approved Unlocking the Power of Google Meet with Your Tech</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/4-things-you-must-know-about-iphone-15-plus-activation-lock-by-drfone-ios/"><u>4 Things You Must Know About iPhone 15 Plus Activation Lock</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/affordable-and-fun-dive-into-the-world-of-syma-s111g-rc-helicopters-ideal-indoors/"><u>Affordable and Fun: Dive Into the World of Syma S111G RC Helicopters, Ideal Indoors</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/crackling-noise-woes-heres-how-to-fix-them-asap-with-headphones/"><u>Crackling Noise Woes? Here's How to Fix Them ASAP with Headphones</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719576799927-expand-your-reach-mondly-support-on-oculus-quest-now/"><u>Expand Your Reach: Mondly Support on Oculus Quest Now!</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/get-your-hands-on-the-best-9-online-shops-featuring-futuristic-graffiti-fonts/"><u>Get Your Hands on the Best 9 Online Shops Featuring Futuristic Graffiti Fonts</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/in-2024-precision-perfection-techniques-for-using-the-eraser-in-psx/"><u>In 2024, Precision Perfection Techniques for Using the Eraser in PSX</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-two-ways-to-track-my-boyfriends-oppo-k11-5g-without-him-knowing-drfone-by-drfone-virtual-android/"><u>In 2024, Two Ways to Track My Boyfriends Oppo K11 5G without Him Knowing | Dr.fone</u></a></li>
+<li><a href="https://video-creation-software.techidaily.com/new-2024-approved-the-ultimate-fcpx-skin-smoother-a-comprehensive-guide/"><u>New 2024 Approved The Ultimate FCPX Skin Smoother A Comprehensive Guide</u></a></li>
+<li><a href="https://discover-awesome.techidaily.com/stop-premiere-pro-2022-from-freezing-easy-solutions-and-tips-applied/"><u>Stop Premiere Pro 2022 From Freezing – Easy Solutions & Tips Applied</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Mastering Shots  A Vlogger’s Lens Compendium\""
-date: 2024-09-26T19:35:50.451Z
-updated: 2024-09-29T01:47:59.322Z
+date: 2024-10-03T02:44:49.377Z
+updated: 2024-10-04T04:34:33.988Z
 tags:
   - ai video
   - ai youtube
@@ -61,19 +61,6 @@ With standard lenses or normal lenses, you won’t get the stretched out objects
 
 Out of all the other ranges in focal lengths, telephoto lenses will appear the most zoomed in. This can be beneficial for the shooter who wants to get a closer shot of a scene without having to physically be in close proximity to the scene. Objects that are further away in the background also appear larger and closer than they would appear on wide-angle or standard lenses.
 
-<!-- affiliate ads begin -->
-<span id="1484963">
-					<video width="864" height="864" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1484963.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1484963">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1484963.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1484963%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1484963/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Vlogging With Each Focal Length Group
 
 You can get your talking head footage using lenses from any of the three focal length groups. Depending on how you plan to vlog most of the time, though, one of the three focal lengths might be more suitable for you.
@@ -96,6 +83,13 @@ As telephoto lenses are even more zoomed in, you’ll need to be even further aw
 
   In the above video, Marcos Rocha compares different focal lengths for talking head videos. Which focal length range do you like the look of?
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144274/7443" target="_top" id="2144274">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144274" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144274/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Crop Factor
 
 Focal lengths in camera lenses are measured in millimeters. You can vlog yourself handheld with a 24mm lens on a camera with a full-frame sensor (the sensor is the piece of hardware inside your camera that turns the light it receives into a digital image). But if you use a 24mm lens on a camera with a smaller sensor, like an APS-C sensor or even smaller Micro 4/3 sensor, more of you will get cropped out (see below).
@@ -103,6 +97,13 @@ Focal lengths in camera lenses are measured in millimeters. You can vlog yoursel
  ![Crop Factor](https://images.wondershare.com/filmora/article-images/camera-lenses-crop-factor.jpg)
 
  In order to make up for the cropping that occurs, you will need to use a wider lens on cameras with smaller sensors to get the same shot you’d get with a full-frame camera.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1972679/19272" target="_top" id="1972679">
+  <img src="//a.impactradius-go.com/display-ad/19272-1972679" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1972679/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Focal Length Equivalency Table
 
@@ -120,10 +121,16 @@ This table shows you the focal lengths needed to achieve the same shot between c
 | Telephoto                   | 200mm      | 125mm | 100mm     |
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136612/26400" target="_top" id="2136612">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136612" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136612/26400" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1983471">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983471.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983471">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983471.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983471%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983471/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Aperture
@@ -134,18 +141,18 @@ This table shows you the focal lengths needed to achieve the same shot between c
 
  ![Camera lenses Aperture Range](https://images.wondershare.com/filmora/article-images/camera-lenses-aperture-range.png)
 
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1484940/16446" target="_top" id="1484940">
-  <img src="//a.impactradius-go.com/display-ad/16446-1484940" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484940/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Because larger aperture lenses let more light in, they need a shorter time for cameras to compose an image. This is why larger aperture lenses are also called “fast” lenses.
 
 Fast lenses are more expensive because they cost more to produce. There’s a lot more that goes into them, including larger and higher quality glass elements.
 
 But do you even need a fast lens?
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1868586/19272" target="_top" id="1868586">
+  <img src="//a.impactradius-go.com/display-ad/19272-1868586" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1868586/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Vlogging With a Fast Lens
 
@@ -160,13 +167,6 @@ But do you even need a fast lens?
 * More expensive
 * Moving subjects more likely to get out of focus when shooting with a large aperture
 * Better continuous autofocus performance needed when shooting moving subjects with a large aperture
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137218/26400" target="_top" id="2137218">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137218" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137218/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Optical Image Stabilization
 
@@ -203,22 +203,21 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-tips.techidaily.com/024-approved-from-basics-to-blockbusters-building-an-audience-on-gaming-channels/"><u>[New] 2024 Approved From Basics to Blockbusters Building an Audience on Gaming Channels</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/new-all-encompassing-kinetic-review-2023/"><u>[New] All-Encompassing Kinetic Review 2023</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/est-practices-for-youtube-video-brightness-and-contrast/"><u>[New] Best Practices for YouTube Video Brightness and Contrast</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-2024-approved-elevate-your-viewing-game-with-concurrent-channel-watches/"><u>[Updated] 2024 Approved Elevate Your Viewing Game with Concurrent Channel Watches</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/updated-2024-approved-pioneering-play-integrating-vr-in-recreation/"><u>[Updated] 2024 Approved Pioneering Play Integrating VR in Recreation</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-designing-the-ideal-youtube-playlist-for-you/"><u>[Updated] Designing the Ideal YouTube Playlist for You</u></a></li>
-<li><a href="https://facebook-video-files.techidaily.com/updated-in-2024-teamwork-made-simple-the-ultimate-guide-to-8-schedulers/"><u>[Updated] In 2024, Teamwork Made Simple The Ultimate Guide to 8 Schedulers</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-mastering-zero-cost-online-seminars-youtube-edition/"><u>[Updated] Mastering Zero-Cost Online Seminars YouTube Edition</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-skyrocket-views-essential-youtube-seo-enhancements-uncovered/"><u>[Updated] Skyrocket Views Essential YouTube SEO Enhancements Uncovered</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-your-step-by-step-guide-to-purchasing-youtube-royalties/"><u>[Updated] Your Step-by-Step Guide to Purchasing YouTube Royalties</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/2024-approved-easy-peasy-ffvegior-grab-facebook-video-mp4-files/"><u>2024 Approved Easy Peasy FFVEGIOR Grab Facebook Video MP4 Files</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/2024-approved-mastering-close-up-shots-with-videoleaps-zoom-feature/"><u>2024 Approved Mastering Close-Up Shots with VideoLeap's Zoom Feature</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/approved-rank-higher-on-youtube-essential-seo-tips-unveiled/"><u>2024 Approved Rank Higher on YouTube Essential SEO Tips Unveiled</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/2024-approved-verifying-realness-in-instagrams-visual-identity-expressions/"><u>2024 Approved Verifying Realness in Instagram's Visual Identity Expressions</u></a></li>
-<li><a href="https://iphone-unlock.techidaily.com/complete-guide-on-unlocking-apple-iphone-12-with-a-broken-screen-drfone-by-drfone-ios/"><u>Complete Guide on Unlocking Apple iPhone 12 with a Broken Screen? | Dr.fone</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/hacks-to-do-pokemon-go-trainer-battles-for-google-pixel-7a-drfone-by-drfone-virtual-android/"><u>Hacks to do pokemon go trainer battles For Google Pixel 7a | Dr.fone</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/top-5-high-res-screens-for-playstation-5/"><u>Top 5 High-Res Screens for PlayStation 5</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-2024-approved-oscillation-engineer-kit/"><u>[New] 2024 Approved Oscillation Engineer Kit</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/new-2024-approved-step-by-step-selection-of-top-10-no-cost-conference-software/"><u>[New] 2024 Approved Step-By-Step Selection of Top 10 No-Cost Conference Software</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-profit-peaks-techniques-to-maximize-revenue-from-mobile-youtube-content/"><u>[New] In 2024, Profit Peaks Techniques to Maximize Revenue From Mobile YouTube Content</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-swiftly-craft-custom-thumbnails-for-youtube-shorts-with-these-hacks/"><u>[New] In 2024, Swiftly Craft Custom Thumbnails for YouTube Shorts with These Hacks</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/new-in-2024-tech-savvy-mastering-mac-video-capture-skills/"><u>[New] In 2024, Tech Savvy Mastering MAC Video Capture Skills</u></a></li>
+<li><a href="https://extra-support.techidaily.com/new-standard-rgb-versus-srgb-standards/"><u>[New] Standard Rgb Versus Srgb Standards</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-explaining-watermarks-securing-online-media-for-2024/"><u>[Updated] Explaining Watermarks Securing Online Media for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-taking-flight-on-youtube-strategies-to-skyrocket-your-video-rankings-for-2024/"><u>[Updated] Taking Flight on YouTube Strategies to Skyrocket Your Video Rankings for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-the-power-of-persuasion-hire-success-stories-1-10/"><u>[Updated] The Power of Persuasion Hire Success Stories #1-10</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/approved-chart-success-the-top-online-stock-portals/"><u>2024 Approved Chart Success The Top Online Stock Portals</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/approved-high-revenue-streaming-star-across-the-globe/"><u>2024 Approved High Revenue Streaming Star Across the Globe</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/approved-optimizing-video-clarity-with-youtube-tools/"><u>2024 Approved Optimizing Video Clarity with YouTube Tools</u></a></li>
+<li><a href="https://some-skills.techidaily.com/step-by-step-guide-launching-admin-command-prompt-on-windows-10/"><u>Step-by-Step Guide: Launching Admin Command Prompt on Windows 10</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/troubleshooting-and-solving-no-sound-problems-in-laptop-built-in-speakers/"><u>Troubleshooting and Solving No-Sound Problems in Laptop Built-In Speakers</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/two-ways-to-track-my-boyfriends-tecno-pop-8-without-him-knowing-drfone-by-drfone-virtual-android/"><u>Two Ways to Track My Boyfriends Tecno Pop 8 without Him Knowing | Dr.fone</u></a></li>
+<li><a href="https://data-safeguard.techidaily.com/unleash-powerful-photo-repair-on-windows-get-your-stellar-pixelpilot-software-now/"><u>Unleash Powerful Photo Repair on Windows: Get Your Stellar PixelPilot Software Now</u></a></li>
 </ul></div>
 

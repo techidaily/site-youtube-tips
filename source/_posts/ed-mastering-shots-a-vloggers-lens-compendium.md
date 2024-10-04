@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Mastering Shots  A Vlogger’s Lens Compendium\""
-date: 2024-09-17T18:35:34.091Z
-updated: 2024-09-22T05:03:41.613Z
+date: 2024-09-29T08:35:06.968Z
+updated: 2024-10-04T06:41:05.906Z
 tags:
   - ai video
   - ai youtube
@@ -89,14 +89,14 @@ Focal lengths in camera lenses are measured in millimeters. You can vlog yoursel
 
  ![Crop Factor](https://images.wondershare.com/filmora/article-images/camera-lenses-crop-factor.jpg)
 
- In order to make up for the cropping that occurs, you will need to use a wider lens on cameras with smaller sensors to get the same shot you’d get with a full-frame camera.
-
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123748/7443" target="_top" id="2123748">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123748" border="0" alt="https://techidaily.com" width="600" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137216/26400" target="_top" id="2137216">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137216" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123748/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137216/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+ In order to make up for the cropping that occurs, you will need to use a wider lens on cameras with smaller sensors to get the same shot you’d get with a full-frame camera.
 
 ### Focal Length Equivalency Table
 
@@ -113,20 +113,27 @@ This table shows you the focal lengths needed to achieve the same shot between c
 | Telephoto                   | 100mm      | 63mm  | 50mm      |
 | Telephoto                   | 200mm      | 125mm | 100mm     |
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2037358/7443" target="_top" id="2037358">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037358" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037358/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Aperture
 
  ![Camera lenses Aperture](https://images.wondershare.com/filmora/article-images/camera-lenses-aperture.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148648/16836" target="_top" id="2148648">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148648" border="0" alt="https://techidaily.com" width="468" height="60"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148648/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  The next thing to consider when you’re looking for a lens is the aperture, the hole (often adjustable) within the lens that lets light in. Aperture for camera lenses is measured in f-stops (f/1.4, f/1.8, f/2.0) - the smaller the f-stop number, the larger the aperture (bigger hole letting even more light in).
 
  ![Camera lenses Aperture Range](https://images.wondershare.com/filmora/article-images/camera-lenses-aperture-range.png)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2080312/19272" target="_top" id="2080312">
+  <img src="//a.impactradius-go.com/display-ad/19272-2080312" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2080312/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  Because larger aperture lenses let more light in, they need a shorter time for cameras to compose an image. This is why larger aperture lenses are also called “fast” lenses.
 
@@ -148,6 +155,13 @@ But do you even need a fast lens?
 * Moving subjects more likely to get out of focus when shooting with a large aperture
 * Better continuous autofocus performance needed when shooting moving subjects with a large aperture
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135357/19272" target="_top" id="2135357">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135357" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135357/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Optical Image Stabilization
 
 Finally, you’ll have to decide whether or not you want your lens to have built-in optical image stabilization (OIS).
@@ -161,13 +175,6 @@ If, however, you are shooting most of your vlogs on a tripod, you won’t need a
  Looking for ways to set up your talking-head shot for YouTube with any of these lenses? Check out our post on [4 Ways To Set Up Your Talking-Head Shots For YouTube](https://tools.techidaily.com/wondershare/filmora/download/).
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135416/19272" target="_top" id="2135416">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135416" border="0" alt="https://techidaily.com" width="336" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135416/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -188,5 +195,21 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-webster.techidaily.com/024-approved-efficient-content-curation-steps-towards-a-well-organized-watch-later-playlist/"><u>[New] 2024 Approved Efficient Content Curation Steps Towards a Well-Organized 'Watch Later' Playlist</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-2024-approved-explore-free-youtube-channel-imagery-tools/"><u>[Updated] 2024 Approved Explore Free YouTube Channel Imagery Tools</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-2024-approved-leading-sites-that-outshine-traditional-twitter-usage/"><u>[Updated] 2024 Approved Leading Sites That Outshine Traditional Twitter Usage</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-innovating-your-videos-first-impression-on-youtube-for-2024/"><u>[Updated] Innovating Your Video's First Impression on YouTube for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-navigating-day-to-day-streams-key-dos-and-donts/"><u>[Updated] Navigating Day-to-Day Streams Key Do's & Don'ts</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/updated-uniting-obs-and-zoom-for-professional-streams/"><u>[Updated] Uniting OBS & Zoom for Professional Streams</u></a></li>
+<li><a href="https://driver-error.techidaily.com/device-revived-status-update-code-unlocked/"><u>Device Revived: Status Update - Code Unlocked</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/te-your-content-game-tactics-for-optimal-youtube-featured-channels/"><u>Elevate Your Content Game Tactics for Optimal YouTube Featured Channels</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/in-2024-a-beginners-guide-to-zoom-room-preparation/"><u>In 2024, A Beginner's Guide to Zoom Room Preparation</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/in-2024-from-cloudy-to-crisp-how-to-remove-background-in-picsart/"><u>In 2024, From Cloudy to Crisp How to Remove Background in Picsart</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/livestream-leap-backwards-twenty-efficient-ways-for-twitch-enthusiasts-for-2024/"><u>Livestream Leap Backwards Twenty Efficient Ways for Twitch Enthusiasts for 2024</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/resolving-logitech-microphone-problems-on-your-pc-or-laptop-easily/"><u>Resolving Logitech Microphone Problems on Your PC or Laptop Easily</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/l-narratives-at-your-fingertips-explore-the-10-best-banner-designers-for-2024/"><u>Visual Narratives at Your Fingertips Explore the 10 Best Banner Designers for 2024</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/ways-to-stop-parent-tracking-your-vivo-t2-pro-5g-drfone-by-drfone-virtual-android/"><u>Ways to stop parent tracking your Vivo T2 Pro 5G | Dr.fone</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Optimizing YouTube Thumbnails for Better Clickthrough Rates"
-date: 2024-09-25T02:32:15.335Z
-updated: 2024-09-28T16:51:44.090Z
+date: 2024-10-01T19:08:02.226Z
+updated: 2024-10-04T06:25:08.090Z
 tags:
   - ai video
   - ai youtube
@@ -55,23 +55,9 @@ Step1 Open an image you want to set as a thumbnail. Then, **Right-click> Resize.
 
 ![select image for youtube thumbnail resize](https://images.wondershare.com/filmora/article-images/photo-for-youtube-thumbnail-resize.JPG)
 
-<!-- affiliate ads begin -->
-<a href="https://aidotcom.pxf.io/c/5597632/2134499/19576" target="_top" id="2134499">
-  <img src="//a.impactradius-go.com/display-ad/19576-2134499" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134499/19576" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Step2 Select "Define custom dimensions."
 
 ![youtube thumbnail custom dimensions](https://images.wondershare.com/filmora/article-images/youtube-thumbnail-resize-dimensions.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087484/7443" target="_top" id="2087484">
-  <img src="//a.impactradius-go.com/display-ad/7443-2087484" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087484/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Step3 Set the width to **1280** and the height to **720**. Then **tick** the box for "**Maintain Aspect Ratio** "and **click "Save Resized Copy."**
 
@@ -80,13 +66,6 @@ Step3 Set the width to **1280** and the height to **720**. Then **tick** the box
 Step4 Click the upload thumbnail button on YouTube and **import** your resized image.
 
 ![upload resized thumbnail in youtube](https://images.wondershare.com/filmora/article-images/youtube-thumbnail-resize-finished.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135413/19272" target="_top" id="2135413">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135413" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135413/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Method 2\. Online YouTube Thumbnail Size Converter
 
@@ -98,13 +77,6 @@ Promo is a free online software you can use to convert an image to a YouTube thu
 
 ![promo YouTube thumbnail size maker](https://images.wondershare.com/filmora/article-images/youtube-thumbnail-size-converter-promo.JPG)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2037351/7443" target="_top" id="2037351">
-  <img src="//a.impactradius-go.com/display-ad/7443-2037351" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037351/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Here are the steps on how to use the Promo YouTube thumbnail size converter:
 
 Step1 Go to Promo's [official website](https://promo.com/tools/image-resizer/) and **import** your image
@@ -114,13 +86,6 @@ Step1 Go to Promo's [official website](https://promo.com/tools/image-resizer/) a
 Step2 Scroll down and find the YouTube thumbnail size where your resized image is displayed. Then, **click "Download."**
 
 ![promo download YouTube thumbnail](https://images.wondershare.com/filmora/article-images/promo-download-youtube-thumbnail.JPG)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2094421/7443" target="_top" id="2094421">
-  <img src="//a.impactradius-go.com/display-ad/7443-2094421" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094421/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Method 3: Convert the Image to YouTube Thumbnail Using Wondershare Filmora
 
@@ -139,13 +104,6 @@ Here is the step-by-step tutorial on how to use Filmora in resizing your YouTube
 Step1 Open the video in the timeline, **click** the play icon in the player window, and **pause** when you reach the desired frame for the YouTube thumbnail. **Click** the camera icon to take a snapshot.
 
 ![filmora open video](https://images.wondershare.com/filmora/article-images/filmora-open-video.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2047361/19272" target="_top" id="2047361">
-  <img src="//a.impactradius-go.com/display-ad/19272-2047361" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2047361/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Step2 In the snapshot window, **choose** to **save** the snapshot as a PNG or JPG file.
 
@@ -183,9 +141,23 @@ Step2 Click on "**File**" > "**Open**," then search for the file you want to res
 
 ![gimp open thumbnail](https://images.wondershare.com/filmora/article-images/gimp-open-thumbnail.JPG)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1896560/19272" target="_top" id="1896560">
+  <img src="//a.impactradius-go.com/display-ad/19272-1896560" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896560/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Step3 Click on "**Image**" > "**Scale Image**" and make sure that the resolution is 1920 by 1080.
 
 ![gimp edit resolution](https://images.wondershare.com/filmora/article-images/gimp-edit-resolution.JPG)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135370/19272" target="_top" id="2135370">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135370" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135370/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Step4 Click on "**File**" > "**Export As**" and **toggle** the "**Select File Type (By Extension)**" option. **Choose** JPG/JPEG format because it can compress the thumbnail enough to stay within the limit of 2 megabytes.
 
@@ -235,6 +207,13 @@ Step1 Open the video in the timeline, **click** the play icon in the player wind
 
 ![filmora open video](https://images.wondershare.com/filmora/article-images/filmora-open-video.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144299/7443" target="_top" id="2144299">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144299" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144299/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Step2 In the snapshot window, **choose** to **save** the snapshot as a PNG or JPG file.
 
 Step3 Select the output storage location and **click OK**.
@@ -251,16 +230,16 @@ Step2 Drag and drop the image into the timeline and **click** the green "**Expor
 
 ![adjust filmora export settings](https://images.wondershare.com/filmora/article-images/filmora-adjust-gif-settings.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://coinrule.sjv.io/c/5597632/1610918/18409" target="_top" id="1610918">
+  <img src="//a.impactradius-go.com/display-ad/18409-1610918" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://coinrule.sjv.io/i/5597632/1610918/18409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Step3 As the recommended size of a YouTube Thumbnail is 1280 \* 720 pixels, you can set the resolution to 1280 \* 720\. Then click **Apply** and **Export** the GIF. You can now upload the GIF thumbnail to your YouTube account.
 
 ![filmora adjust resolution](https://images.wondershare.com/filmora/article-images/filmora-adjust-resolution.JPG)
-
-<!-- affiliate ads begin -->
-<a href="https://arkmc.pxf.io/c/5597632/352557/5172" target="_top" id="352557">
-  <img src="//a.impactradius-go.com/display-ad/5172-352557" border="0" alt="https://techidaily.com" width="720" height="90"/>
-</a>
-<img height="0" width="0" src="https://arkmc.pxf.io/i/5597632/352557/5172" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Method 4\. Convert Images to YouTube Thumbnail Using Third-Party Software
 
@@ -275,10 +254,10 @@ Step1 Install and **launch** GIMP on your computer.
 ![gimp install](https://images.wondershare.com/filmora/article-images/gimp-install.JPG)
 
 <!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2014854/22899" target="_top" id="2014854">
-  <img src="//a.impactradius-go.com/display-ad/22899-2014854" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://wigfever.sjv.io/c/5597632/2014853/22899" target="_top" id="2014853">
+  <img src="//a.impactradius-go.com/display-ad/22899-2014853" border="0" alt="https://techidaily.com" width="320" height="90"/>
 </a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014854/22899" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014853/22899" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Step2 Click on "**File**" > "**Open**," then search for the file you want to resize.
@@ -289,6 +268,13 @@ Step3 Click on "**Image**" > "**Scale Image**" and make sure that the resolution
 
 ![gimp edit resolution](https://images.wondershare.com/filmora/article-images/gimp-edit-resolution.JPG)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2100534/7443" target="_top" id="2100534">
+  <img src="//a.impactradius-go.com/display-ad/7443-2100534" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100534/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Step4 Click on "**File**" > "**Export As**" and **toggle** the "**Select File Type (By Extension)**" option. **Choose** JPG/JPEG format because it can compress the thumbnail enough to stay within the limit of 2 megabytes.
 
 ![gimp export format](https://images.wondershare.com/filmora/article-images/gimp-export-format.JPG)
@@ -296,6 +282,26 @@ Step4 Click on "**File**" > "**Export As**" and **toggle** the "**Select File Ty
 Step5 You can change the quality of the image and **click** the "**Export**" button to save the thumbnail.
 
 ![gimp export thumbnail](https://images.wondershare.com/filmora/article-images/gimp-export-thumbnail.JPG)
+
+<!-- affiliate ads begin -->
+<span id="1983584">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983584.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983584">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983584.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983584%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983584/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1484950/16446" target="_top" id="1484950">
+  <img src="//a.impactradius-go.com/display-ad/16446-1484950" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484950/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Comparison of These 4 YouTube Thumbnail Resizing Methods
 
@@ -348,22 +354,22 @@ This article explored four methods for resizing YouTube thumbnails: using the Wi
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-tips.techidaily.com/024-approved-economical-audio-devices-for-vloggers-on-a-budget/"><u>[New] 2024 Approved Economical Audio Devices for Vloggers on a Budget</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/024-approved-elevate-your-content-top-8-no-cost-video-editing-software/"><u>[New] 2024 Approved Elevate Your Content Top 8 No-Cost Video Editing Software</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/024-approved-harnessing-online-platforms-beyond-youtube-to-30plus-communities/"><u>[New] 2024 Approved Harnessing Online Platforms Beyond YouTube to 30+ Communities</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/024-approved-maximizing-your-channels-earning-potential-through-trailers/"><u>[New] 2024 Approved Maximizing Your Channel's Earning Potential Through Trailers</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/024-approved-safeguarding-your-listening-pleasure-with-3-steps/"><u>[New] 2024 Approved Safeguarding Your Listening Pleasure with 3 Steps</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/024-approved-strategies-to-prevent-account-suspension-on-youtube/"><u>[New] 2024 Approved Strategies to Prevent Account Suspension on YouTube</u></a></li>
-<li><a href="https://article-helps.techidaily.com/new-immersive-worlds-shaping-future-cinematic-experiences/"><u>[New] Immersive Worlds Shaping Future Cinematic Experiences</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/new-in-2024-efficiently-documenting-your-fb-chats-and-meets/"><u>[New] In 2024, Efficiently Documenting Your FB Chats & Meets</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-charisma-in-characters-two-ways-to-enliven-text-for-2024/"><u>[Updated] Charisma in Characters Two Ways to Enliven Text for 2024</u></a></li>
-<li><a href="https://article-tips.techidaily.com/2024-approved-starting-point-decoding-display-resolution-basics/"><u>2024 Approved Starting Point Decoding Display Resolution Basics</u></a></li>
-<li><a href="https://bypass-frp.techidaily.com/a-quick-guide-to-tecno-spark-20-pro-frp-bypass-instantly-by-drfone-android/"><u>A Quick Guide to Tecno Spark 20 Pro FRP Bypass Instantly</u></a></li>
-<li><a href="https://win-answers.techidaily.com/addressing-the-launch-malfunction-of-nier-replicant-remaster-a-users-guide/"><u>Addressing the Launch Malfunction of NieR Replicant Remaster - A User's Guide</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/-engagement-and-growth-unlocking-youtube-analytics-via-social-blade/"><u>Boost Engagement and Growth - Unlocking YouTube Analytics via Social Blade</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-restore-missing-music-files-from-samsung-galaxy-f34-5g-by-fonelab-android-recover-music/"><u>How To Restore Missing Music Files from Samsung Galaxy F34 5G</u></a></li>
-<li><a href="https://change-location.techidaily.com/how-to-use-snapchat-location-spoofer-to-protect-your-privacy-on-poco-c55-drfone-by-drfone-virtual-android/"><u>How to use Snapchat Location Spoofer to Protect Your Privacy On Poco C55? | Dr.fone</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/in-2024-achieving-teleportation-magic-illusions/"><u>In 2024, Achieving Teleportation Magic Illusions</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/-for-livelihood-mastering-youtubes-true-numbers-for-2024/"><u>Views for Livelihood Mastering YouTube's True Numbers for 2024</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/new-2024-approved-brain-busting-the-premier-room-challenge-list/"><u>[New] 2024 Approved Brain-Busting The Premier Room Challenge List</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-snappy-and-simple-steps-for-posting-short-videos-online/"><u>[New] In 2024, Snappy and Simple Steps for Posting Short Videos Online</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-things-that-you-should-know-about-youtube-keyword-research/"><u>[New] In 2024, Things That You Should Know About YouTube Keyword Research</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/new-stabilized-gimbal-selection-iphoneandroiddslr-experts-choice-1-10/"><u>[New] Stabilized Gimbal Selection IPhone/Android/DSLR Experts Choice #1-#10</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/tarting-up-the-guide-to-youtube-fame-in-gaming/"><u>[New] Starting Up The Guide to YouTube Fame in Gaming</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-2024-approved-spark-inspiration-free-soundtracks-to-enhance-projects/"><u>[Updated] 2024 Approved Spark Inspiration - Free Soundtracks to Enhance Projects</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/updated-logitech-4k-pro-webcam-a-comprehensive-overview-for-2024/"><u>[Updated] Logitech 4K Pro Webcam - A Comprehensive Overview for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-mastering-the-visual-storyteller-youtube-cinematic-training-for-2024/"><u>[Updated] Mastering the Visual Storyteller YouTube Cinematic Training for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-the-privacy-filter-concealing-visual-details-in-media-for-2024/"><u>[Updated] The Privacy Filter Concealing Visual Details in Media for 2024</u></a></li>
+<li><a href="https://extra-information.techidaily.com/cinema-kings-and-queens-iphones-leading-8-freepluspaid-watching-options-for-2024/"><u>Cinema Kings & Queens IPhone's Leading 8 FREE+Paid Watching Options for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ing-the-perfect-binge-worthy-mukbang-experience/"><u>Crafting the Perfect Binge-Worthy Mukbang Experience</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ing-channel-names-that-capture-attention-for-2024/"><u>Creating Channel Names That Capture Attention for 2024</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-change-location-on-yik-yak-for-your-poco-f5-5g-to-enjoy-more-fun-drfone-by-drfone-virtual-android/"><u>In 2024, Change Location on Yik Yak For your Poco F5 5G to Enjoy More Fun | Dr.fone</u></a></li>
+<li><a href="https://some-skills.techidaily.com/in-2024-pioneering-visual-storytelling-uploading-to-youtube/"><u>In 2024, Pioneering Visual Storytelling Uploading to YouTube</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/in-depth-review-the-linksys-ea9500-a-potent-device-with-cutting-edge-intelligence/"><u>In-Depth Review: The Linksys EA9500 – A Potent Device With Cutting-Edge Intelligence</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/snapshot-savvy-exploring-the-depths-of-snapchat-filters/"><u>Snapshot Savvy Exploring the Depths of Snapchat Filters</u></a></li>
+<li><a href="https://video-ai-editor.techidaily.com/watch-complete-peppa-pig-series-and-secrets-to-quick-safe-downloads/"><u>Watch Complete Peppa Pig Series & Secrets to Quick, Safe Downloads</u></a></li>
 </ul></div>
 

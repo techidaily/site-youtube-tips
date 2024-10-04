@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Step-by-Step Guide to Background Dimming in Videos\""
-date: 2024-09-25T16:12:23.936Z
-updated: 2024-09-29T03:10:38.823Z
+date: 2024-10-02T19:30:43.603Z
+updated: 2024-10-04T09:14:31.517Z
 tags:
   - ai video
   - ai youtube
@@ -66,10 +66,16 @@ To get a shallow depth of field, make sure your aperture is wide. Do this by set
 Creating a bokeh effect is mostly the same, except that it works best when your subject/depth of field is very close to the camera, and you have a light source off in the background. Zoom Lenses do not usually have wide enough apertures to create bokeh backgrounds.
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137213/26400" target="_top" id="2137213">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137213" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137213/26400" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1993652">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1993652.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1993652">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993652.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993652%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993652/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Blur Video Background in Post-Production with [Wondershare Filmora Video Editor](https://tools.techidaily.com/wondershare/filmora/download/)
@@ -77,6 +83,13 @@ Creating a bokeh effect is mostly the same, except that it works best when your 
 If you need to blur the video background after shooting, you can use some video editing software to add the bokeh effect or the tilt-off effect in post-production. Here, I will show you how to do that in Filmora.
 
 Filmora is one of the most widely used video editing software among YouTubers. Its user-friendly interface and tutorial guide enables green-hands to start video editing quickly. Besides, you can find many free filters, effects, and elements pre-programmed, so you can use them directly without looking for presets and templates somewhere else.
+
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1657386/16446" target="_top" id="1657386">
+  <img src="//a.impactradius-go.com/display-ad/16446-1657386" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1657386/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 1\. Add Bokeh Filter to Video in Filmora
 
@@ -97,22 +110,21 @@ Go to the **Effects** tab and then switch to the **Utility** menu under **Includ
 ![ Filmora Tilt-Shift effects ](https://images.wondershare.com/filmora/article-images/tilt-shift-effects.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1975807/19272" target="_top" id="1975807">
-  <img src="//a.impactradius-go.com/display-ad/19272-1975807" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1975807/19272" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1983549">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983549.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983549">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983549.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983549%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983549/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Here, I will select the **Tilt-Shift Circle** effect and drop it to the track above the video. Now, you can adjust the size, position, and intensity of the tilt-shift circle effect
 
 ![ Filmora Tilt-Shift Circle effect](https://images.wondershare.com/filmora/article-images/apply-tilt-shift-circle-effect.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1934288/19272" target="_top" id="1934288">
-  <img src="//a.impactradius-go.com/display-ad/19272-1934288" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934288/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 You see, the video background is blurred, and the people are highlighted. Now it's your turn to download the Filmora video editor and try it yourself.
 
@@ -121,16 +133,10 @@ You see, the video background is blurred, and the people are highlighted. Now it
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<span id="1983471">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983471.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983471">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983471.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983471%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983471/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136616/26400" target="_top" id="2136616">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136616" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136616/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -154,22 +160,16 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-tips.techidaily.com/024-approved-best-starting-points-on-youtube-top-16-opener-list-for-growth/"><u>[New] 2024 Approved Best Starting Points on YouTube Top 16 Opener List for Growth</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/024-approved-craft-your-story-aspect-ratios-for-powerful-yt-thumbnails/"><u>[New] 2024 Approved Craft Your Story Aspect Ratios for Powerful YT Thumbnails</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/024-approved-defining-your-visual-and-stylistic-identity-high-relevance/"><u>[New] 2024 Approved Defining Your Visual and Stylistic Identity [High Relevance]</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/024-approved-does-youtube-offer-frequent-payments-to-you/"><u>[New] 2024 Approved Does YouTube Offer Frequent Payments to You?</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/024-approved-elevate-your-freefire-presence-with-top-tips-and-tricks/"><u>[New] 2024 Approved Elevate Your FreeFire Presence with Top Tips and Tricks</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/024-approved-essential-tools-for-youtube-live-broadcasting-reveal-the-7-key-apps/"><u>[New] 2024 Approved Essential Tools for YouTube LIVE Broadcasting Reveal the 7 Key Apps</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/024-approved-guidelines-for-optimal-youtube-video-brightness/"><u>[New] 2024 Approved Guidelines for Optimal YouTube Video Brightness</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/024-approved-professional-video-editing-simplified-with-mac-mp4-cutters/"><u>[New] 2024 Approved Professional Video Editing Simplified with Mac MP4 Cutters</u></a></li>
-<li><a href="https://vimeo-videos.techidaily.com/new-unleash-the-power-of-live-captures-an-introduction-to-vimeo-record-for-2024/"><u>[New] Unleash the Power of Live Captures An Introduction to Vimeo Record for 2024</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/updated-in-2024-quick-fix-for-background-removal-in-figma-projects/"><u>[Updated] In 2024, Quick Fix for Background Removal in Figma Projects</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/updated-recording-your-display-essential-tips-for-effective-screen-capture-for-2024/"><u>[Updated] Recording Your Display Essential Tips for Effective Screen Capture for 2024</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/mkamp4-movavi/"><u>無限制地瀏覽：將MKA格式自動化變更成MP4 - 使用 Movavi 編解碼工具</u></a></li>
-<li><a href="https://techidaily.com/how-to-soft-reset-xiaomi-redmi-12-phone-drfone-by-drfone-reset-android-reset-android/"><u>How to Soft Reset Xiaomi Redmi 12 phone? | Dr.fone</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/in-2024-2023s-top-pick-of-affordable-live-stream-tech-for-every-platform-user/"><u>In 2024, 2023'S Top Pick of Affordable Live Stream Tech for Every Platform User</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/in-2024-premier-online-calling-apps-all-free-and-user-friendly/"><u>In 2024, Premier Online Calling Apps - All Free & User-Friendly</u></a></li>
-<li><a href="https://techidaily.com/repair-video-tool-repair-all-your-damaged-video-files-of-vivo-y200-by-stellar-video-repair-mobile-video-repair/"><u>Repair Video Tool - Repair all your damaged video files of Vivo Y200</u></a></li>
-<li><a href="https://techidaily.com/unlock-locked-iphone-12-mini-without-passcode-or-face-id-by-drfone-ios-unlock-ios-unlock/"><u>Unlock locked iPhone 12 mini without Passcode or Face ID</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-from-clicks-to-cash-elevating-exposure-economics/"><u>[New] In 2024, From Clicks to Cash Elevating Exposure Economics</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-2024-approved-powerful-strategies-for-optimizing-gratuitous-timer-use/"><u>[Updated] 2024 Approved Powerful Strategies for Optimizing Gratuitous Timer Use</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-in-2024-step-by-step-guide-to-protected-youtube-to-mp3-conversions/"><u>[Updated] In 2024, Step-by-Step Guide to Protected YouTube-to-MP3 Conversions</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-next-level-content-workshop-for-2024/"><u>[Updated] Next Level Content Workshop for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-perfecting-vlog-shots-how-to-use-a-tripod-like-a-pro/"><u>[Updated] Perfecting Vlog Shots How to Use a Tripod Like a Pro</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/approved-fostering-engagement-creating-budget-friendly-youtube-intros/"><u>2024 Approved Fostering Engagement Creating Budget-Friendly YouTube Intros</u></a></li>
+<li><a href="https://extra-support.techidaily.com/in-2024-reducing-jitter-in-visual-content-creation/"><u>In 2024, Reducing Jitter in Visual Content Creation</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/in-the-ring-with-video-recording-who-will-triumph-obs-or-bandicam-in-2024/"><u>In the Ring with Video Recording Who Will Triumph, OBS or Bandicam, In 2024</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/os-melhores-softwares-para-aprimorar-seu-portfolio-foto-em-2024-selecao-final-dos-melhores-da-industria/"><u>Os Melhores Softwares Para Aprimorar Seu Portfólio Foto Em 2024 - Seleção Final Dos Melhores Da Indústria</u></a></li>
+<li><a href="https://printer-issues.techidaily.com/quick-restoration-of-active-print-queue/"><u>Quick Restoration of Active Print Queue</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-life-and-legacy-of-johannes-honterus/"><u>The Life and Legacy of Johannes Honterus</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Switching On/Off Comment Functionality on YouTube for 2024"
-date: 2024-09-23T16:29:46.685Z
-updated: 2024-09-28T17:57:04.599Z
+date: 2024-09-29T10:01:24.694Z
+updated: 2024-10-03T19:28:20.903Z
 tags:
   - ai video
   - ai youtube
@@ -95,13 +95,6 @@ Selecting this option holds all the comments from all the users, and waits for y
 
 When this option is selected, no one can post a comment to the video(s) whatsoever.
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136624/26400" target="_top" id="2136624">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136624" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136624/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Part 2: Turn on or Turn off Comments for Specific Videos
 
 As you might have noticed, any video that is marked as ‘Made for kids’ doesn’t allow users to post comments. You can exploit this feature to enable or disable commenting on specific YouTube videos as well.
@@ -123,19 +116,19 @@ From under the **Audience** section in the right window of the **Video details**
 ![ Turn on or turn off comments for specific youtube video](https://images.wondershare.com/filmora/article-images/turn-on-off-comments-for-specific-youtube-video.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2036496/19272" target="_top" id="2036496">
-  <img src="//a.impactradius-go.com/display-ad/19272-2036496" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2052059/7443" target="_top" id="2052059">
+  <img src="//a.impactradius-go.com/display-ad/7443-2052059" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2036496/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2052059/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 **Note:** To learn **how to disable comments on YouTube** for specific video, you can repeat the above steps, and choose the **Yes, it’s made for kids** radio button from the **Audience** section when you are on the **Video details** page.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1997662/19272" target="_top" id="1997662">
-  <img src="//a.impactradius-go.com/display-ad/19272-1997662" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2100542/7443" target="_top" id="2100542">
+  <img src="//a.impactradius-go.com/display-ad/7443-2100542" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997662/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100542/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## FAQs About YouTube Comments
@@ -155,10 +148,10 @@ You can go to **YouTube Studio** \> **Settings** \> **Community**, and on the **
 ![ Block YouTube   commnets ](https://images.wondershare.com/filmora/article-images/block-users-youtube-comment.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2137413/7443" target="_top" id="2137413">
-  <img src="//a.impactradius-go.com/display-ad/7443-2137413" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2105882/7443" target="_top" id="2105882">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105882" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137413/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105882/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 #### 4\. If I turn comments off and back on again, will the old comments come back?
@@ -174,6 +167,13 @@ That depends on the nature of the comments. For instance, if you modify the sett
 It is easy to understand **how to turn on comments on YouTube**. The best thing is, the comments are enabled by default, and if you don’t need them, you can simply disable them by configuring the videos or the entire channel as ‘Made for kids’. If the comments on any video were enabled previously, and are disabled later on, the existing comments automatically disappear. They reappear when the comments on the video are reenabled.
 
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1934258/19272" target="_top" id="1934258">
+  <img src="//a.impactradius-go.com/display-ad/19272-1934258" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934258/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Liza Brown
 
@@ -196,24 +196,18 @@ Follow @Liza Brown
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-tips.techidaily.com/024-approved-pro-level-mobile-media-capture-iphone-and-androids-top-5-apps/"><u>[New] 2024 Approved Pro-Level Mobile Media Capture IPhone and Android's Top 5 Apps</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/024-approved-revolutionary-tools-for-next-gen-streaming-experience/"><u>[New] 2024 Approved Revolutionary Tools for Next-Gen Streaming Experience</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/024-approved-the-ultimate-guide-to-inserting-timestamps-in-youtube-urls/"><u>[New] 2024 Approved The Ultimate Guide to Inserting Timestamps in YouTube URLs</u></a></li>
-<li><a href="https://fox-links.techidaily.com/new-complete-dynamics-review-2023-for-2024/"><u>[New] Complete Dynamics Review 2023 for 2024</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/new-elevate-your-mac-experience-with-these-5-snippers-for-2024/"><u>[New] Elevate Your Mac Experience with These 5 Snippers for 2024</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/new-innovating-podcast-branding-a-comprehensive-logo-guidebook/"><u>[New] Innovating Podcast Branding A Comprehensive Logo Guidebook</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/new-masterclass-on-innovative-cover-art-techniques/"><u>[New] Masterclass on Innovative Cover Art Techniques</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/o-software-required-youtube-file-retrieval-for-2024/"><u>[New] No Software Required YouTube File Retrieval for 2024</u></a></li>
-<li><a href="https://article-files.techidaily.com/new-top-6-economical-action-cams-available-for-99-or-below-for-2024/"><u>[New] Top 6 Economical Action Cams Available for $99 or Below for 2024</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-charting-a-course-through-youtubes-maker-domain-for-2024/"><u>[Updated] Charting a Course Through YouTube's Maker Domain for 2024</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-in-2024-seamless-replay-on-iphone-a-how-to-guide/"><u>[Updated] In 2024, Seamless Replay on iPhone A How-To Guide</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-in-2024-video-production-evolution-prime-lenses-for-youtube-enthusiasts/"><u>[Updated] In 2024, Video Production Evolution Prime Lenses for YouTube Enthusiasts</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-master-the-art-of-youtube-video-sizing-shape-and-clarity-for-2024/"><u>[Updated] Master the Art of YouTube Video Sizing, Shape & Clarity for 2024</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-the-next-generation-of-video-communities-post-youtube/"><u>[Updated] The Next Generation of Video Communities Post-YouTube</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/2024-approved-superior-plot-strategies-across-diverse-cinematic-fields/"><u>2024 Approved Superior Plot Strategies Across Diverse Cinematic Fields</u></a></li>
-<li><a href="https://android-location.techidaily.com/9-best-free-android-monitoring-apps-to-monitor-phone-remotely-for-your-tecno-pova-6-pro-5g-drfone-by-drfone-virtual/"><u>9 Best Free Android Monitoring Apps to Monitor Phone Remotely For your Tecno Pova 6 Pro 5G | Dr.fone</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/novice-to-vlogger-the-top-10-editing-techniques-for-2024/"><u>From Novice to Vlogger The Top 10 Editing Techniques for 2024</u></a></li>
-<li><a href="https://howto.techidaily.com/strategies-for-apps-that-wont-download-from-play-store-on-tecno-camon-20-pro-5g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Strategies for Apps That Wont Download From Play Store On Tecno Camon 20 Pro 5G | Dr.fone</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/the-asus-x441ba-compact-powerhouse-reviewed-understanding-its-trade-offs-for-a-large-screen-experience/"><u>The Asus X441BA Compact Powerhouse Reviewed: Understanding Its Trade-Offs for a Large Screen Experience</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ateways-to-googles-advertising-on-youtube-platforms/"><u>[New] Gateways to Google's Advertising on YouTube Platforms</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-escalate-your-channels-popularity-to-1kplus/"><u>[New] In 2024, Escalate Your Channel's Popularity to 1K+</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/outubing-green-magic-ideas-that-come-to-life-in-2024/"><u>[New] Youtubing Green Magic – Ideas That Come to Life, In 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-2024-approved-enhance-your-asmr-experience-with-top-tier-mics/"><u>[Updated] 2024 Approved Enhance Your ASMR Experience with Top-Tier Mics</u></a></li>
+<li><a href="https://techidaily.com/how-do-i-reset-my-itel-p55t-phone-without-technical-knowledge-drfone-by-drfone-reset-android-reset-android/"><u>How do I reset my Itel P55T Phone without technical knowledge? | Dr.fone</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/in-2024-8-safe-and-effective-methods-to-unlock-your-apple-iphone-6s-without-a-passcode-drfone-by-drfone-ios/"><u>In 2024, 8 Safe and Effective Methods to Unlock Your Apple iPhone 6s Without a Passcode | Dr.fone</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-how-to-unlock-vivo-y100-5g-pattern-lock-if-forgotten-6-ways-by-drfone-android/"><u>In 2024, How to Unlock Vivo Y100 5G Pattern Lock if Forgotten? 6 Ways</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/outstanding-book-trailer-samples-for-2024/"><u>Outstanding Book Trailer Samples for 2024</u></a></li>
+<li><a href="https://games-able.techidaily.com/the-secret-to-every-steam-award-unlock/"><u>The Secret to Every Steam Award Unlock</u></a></li>
+<li><a href="https://program-issues.techidaily.com/1723003177246-the-ultimate-guide-to-fixing-checking-for-updates-in-microsoft-flight-simulator-2020-troubleshooting-tips/"><u>The Ultimate Guide to Fixing 'Checking For Updates' In Microsoft Flight Simulator 2020 - Troubleshooting Tips!</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/tips-of-transferring-messages-from-tecno-pop-7-pro-to-iphone-1415-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>Tips of Transferring Messages from Tecno Pop 7 Pro to iPhone 14/15 | Dr.fone</u></a></li>
+<li><a href="https://some-skills.techidaily.com/unfreezing-photo-booth-recordings-a-guide-to-smoother-playback-for-2024/"><u>Unfreezing Photo Booth Recordings A Guide to Smoother Playback for 2024</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/utilizing-chatgpt-for-crafting-literary-works/"><u>Utilizing ChatGPT for Crafting Literary Works</u></a></li>
 </ul></div>
 

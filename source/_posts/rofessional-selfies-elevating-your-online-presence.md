@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Professional Selfies  Elevating Your Online Presence\""
-date: 2024-09-23T22:06:55.002Z
-updated: 2024-09-28T23:32:57.885Z
+date: 2024-09-29T05:44:56.779Z
+updated: 2024-10-03T19:58:24.350Z
 tags:
   - ai video
   - ai youtube
@@ -42,14 +42,14 @@ We’ve summarized the key points about setting up talking head style video shot
 
 ![ Setting up Talking Heads Video Shots for YouTube](https://images.wondershare.com/filmora/article-images/talking-heads-youtube-video-shots-set-up.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2014854/22899" target="_top" id="2014854">
-  <img src="//a.impactradius-go.com/display-ad/22899-2014854" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014854/22899" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## How to Set Up Your Talking-Head Shots for YouTube \[4 Ways\]
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136621/26400" target="_top" id="2136621">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136621" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136621/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 1.  Close Quarters Wide-Angle Vlog Set-Up
 
@@ -66,10 +66,10 @@ Objects and people that just make it into the sides of the frame will appear mor
 If you look closely into Sean’s eyes, you can also see a specular highlight in the shape of a circle. Many people like the way eyes look against a ring light.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118320/7443" target="_top" id="2118320">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118320" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2052063/7443" target="_top" id="2052063">
+  <img src="//a.impactradius-go.com/display-ad/7443-2052063" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118320/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2052063/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 2.  Medium Vlog Set-Up
@@ -86,6 +86,13 @@ You can see from how even the background and couch looks across the entire camer
 
 It appears that, to the right of deadmau5 (camera left), there is a key light and to his left (camera right) there may be a fill light for additional lighting. Behind the couch, there’s also a background uplight to create depth between the subject and the background. At the 1:30 mark of this trailer video, you can briefly see how the Masterclass camera crew set up their shot.
 
+<!-- affiliate ads begin -->
+<a href="https://wigfever.sjv.io/c/5597632/2005184/22899" target="_top" id="2005184">
+  <img src="//a.impactradius-go.com/display-ad/22899-2005184" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2005184/22899" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 3.  Two Person Vlog Set-Up
 
 If your talking-head shot has got to include two people, you can use a similar set-up as the medium vlog set-up detailed above.
@@ -93,13 +100,6 @@ If your talking-head shot has got to include two people, you can use a similar s
 If you look back at the 39-second mark of deadmau5’s Masterclass trailer, you can see that there’s a lot of space to the left and right of deadmau5\. Now imagine the same shot but with two people.
 
 With two people, though, you’ll want to set up your mic slightly differently. Rather than using a directional shotgun mic with a narrow area of sensitivity, you’ll want to use a directional mic with a wider area of sensitivity.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151868/7443" target="_top" id="2151868">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151868" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151868/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 4.  Long Teleprompter Vlog Set-Up
 
@@ -123,14 +123,20 @@ To make a talking-head video more interesting, you can add some background music
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
-![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
-
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134244/18498" target="_top" id="2134244">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134244" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134244/18498" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1975562">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1975562.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1975562">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975562.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975562%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975562/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 Richard Bennett
 
@@ -153,22 +159,16 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-tips.techidaily.com/024-approved-beginners-guide-capturing-youtube-videos-as-screencasts-without-payment/"><u>[New] 2024 Approved Beginner's Guide Capturing YouTube Videos as Screencasts Without Payment</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/024-approved-diversify-earnings-multiplying-revenue-with-mobile-video-content/"><u>[New] 2024 Approved Diversify Earnings Multiplying Revenue with Mobile Video Content</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/024-approved-mastering-youtube-monetization-minimum-required-views-to-profit/"><u>[New] 2024 Approved Mastering YouTube Monetization Minimum Required Views to Profit</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/024-approved-navigating-the-intricacies-of-transferring-videos-to-youtube/"><u>[New] 2024 Approved Navigating the Intricacies of Transferring Videos to YouTube</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/024-approved-seamless-transformation-top-tools-for-youtube-videos/"><u>[New] 2024 Approved Seamless Transformation Top Tools for YouTube Videos</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/new-laying-down-an-elegant-tiktok-credits-panel/"><u>[New] Laying Down an Elegant TikTok Credits Panel</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/new-navigating-the-world-of-vivacut-video-editing-insights/"><u>[New] Navigating the World of VivaCut Video Editing - Insights</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/updated-capturing-eats-a-chefs-handbook-to-food-photography/"><u>[Updated] Capturing Eats A Chef's Handbook to Food Photography</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/updated-pairing-powerhouses-easy-steps-to-join-obs-zoom/"><u>[Updated] Pairing Powerhouses Easy Steps to Join OBS, Zoom</u></a></li>
-<li><a href="https://location-social.techidaily.com/4-feasible-ways-to-fake-location-on-facebook-for-your-samsung-galaxy-s23-drfone-by-drfone-virtual-android/"><u>4 Feasible Ways to Fake Location on Facebook For your Samsung Galaxy S23 | Dr.fone</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/in-2024-how-to-show-wi-fi-password-on-lava-blaze-2-pro-by-drfone-android/"><u>In 2024, How to Show Wi-Fi Password on Lava Blaze 2 Pro</u></a></li>
-<li><a href="https://program-issues.techidaily.com/now-smooth-sailing-with-subnautica-below-zero-on-your-windows-pc/"><u>Now Smooth Sailing with Subnautica: Below Zero on Your Windows PC</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/prime-time-the-top-10-windows-webcam-recorders-for-2024/"><u>Prime Time The Top 10 Windows Webcam Recorders for 2024</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/-strategies-to-enhance-your-video-with-customized-end-screen-cards-for-2024/"><u>Smart Strategies to Enhance Your Video with Customized End Screen Cards for 2024</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/0-asmr-apps-on-smart-devices-for-2024/"><u>Top 10 ASMR Apps on Smart Devices for 2024</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/-voyage-to-victory-secrets-from-youtube-stars-for-2024/"><u>Video Voyage to Victory Secrets From YouTube Stars for 2024</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/what-is-a-sim-network-unlock-pin-get-your-samsung-galaxy-s24plus-phone-network-ready-by-drfone-android/"><u>What Is a SIM Network Unlock PIN? Get Your Samsung Galaxy S24+ Phone Network-Ready</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-2024-approved-stream-youtube-in-the-background-using-iphone-and-android/"><u>[Updated] 2024 Approved Stream YouTube in the Background Using iPhone & Android</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/updated-effective-methods-to-document-facetime-calls-for-2024/"><u>[Updated] Effective Methods to Document FaceTime Calls for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-in-2024-youtubers-ultimate-guide-10-keys-to-unique-short-form-videos/"><u>[Updated] In 2024, Youtubers' Ultimate Guide 10 Keys to Unique Short-Form Videos</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-leverage-tubebuddy-for-top-tier-youtube-management/"><u>[Updated] Leverage TubeBuddy for Top-Tier YouTube Management</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/2024-approved-master-your-remote-work-with-these-5-video-conference-recorders/"><u>2024 Approved Master Your Remote Work with These 5 Video Conference Recorders</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ing-continuous-viewing-pleasure-on-television-for-2024/"><u>Creating Continuous Viewing Pleasure on Television for 2024</u></a></li>
+<li><a href="https://techidaily.com/how-to-perform-hard-reset-on-honor-magic-5-lite-drfone-by-drfone-reset-android-reset-android/"><u>How to Perform Hard Reset on Honor Magic 5 Lite? | Dr.fone</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-methods-to-change-gps-location-on-honor-x8b-drfone-by-drfone-virtual-android/"><u>In 2024, Methods to Change GPS Location On Honor X8b | Dr.fone</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/g-dollars-from-skincare-videos/"><u>Making Dollars From Skincare Videos</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/top-android-photo-tech-tips-and-apps-guide/"><u>Top Android Photo-Tech Tips & Apps Guide</u></a></li>
+<li><a href="https://howto.techidaily.com/why-does-my-oppo-a18-keep-turning-off-by-itself-6-fixes-are-here-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Why Does My Oppo A18 Keep Turning Off By Itself? 6 Fixes Are Here | Dr.fone</u></a></li>
 </ul></div>
 

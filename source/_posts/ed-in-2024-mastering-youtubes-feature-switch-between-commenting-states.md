@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] In 2024, Mastering YouTube's Feature  Switch Between Commenting States\""
-date: 2024-09-18T01:37:41.163Z
-updated: 2024-09-21T19:13:14.733Z
+date: 2024-09-29T19:12:18.505Z
+updated: 2024-10-03T23:44:42.474Z
 tags:
   - ai video
   - ai youtube
@@ -95,6 +95,13 @@ Selecting this option holds all the comments from all the users, and waits for y
 
 When this option is selected, no one can post a comment to the video(s) whatsoever.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2049370/7443" target="_top" id="2049370">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049370" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049370/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 2: Turn on or Turn off Comments for Specific Videos
 
 As you might have noticed, any video that is marked as ‘Made for kids’ doesn’t allow users to post comments. You can exploit this feature to enable or disable commenting on specific YouTube videos as well.
@@ -117,6 +124,19 @@ From under the **Audience** section in the right window of the **Video details**
 
 **Note:** To learn **how to disable comments on YouTube** for specific video, you can repeat the above steps, and choose the **Yes, it’s made for kids** radio button from the **Audience** section when you are on the **Video details** page.
 
+<!-- affiliate ads begin -->
+<span id="1977006">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1977006.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1977006">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977006.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977006%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977006/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## FAQs About YouTube Comments
 
 #### 1\. Why can’t I comment on the YouTube video?
@@ -133,6 +153,13 @@ You can go to **YouTube Studio** \> **Settings** \> **Community**, and on the **
 
 ![ Block YouTube   commnets ](https://images.wondershare.com/filmora/article-images/block-users-youtube-comment.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136617/26400" target="_top" id="2136617">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136617" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136617/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 #### 4\. If I turn comments off and back on again, will the old comments come back?
 
 Yes. When you turn off the comments, the existing comments disappear. When you turn them back on, all the previous comments reappear, and become visible to the audience.
@@ -146,6 +173,13 @@ That depends on the nature of the comments. For instance, if you modify the sett
 It is easy to understand **how to turn on comments on YouTube**. The best thing is, the comments are enabled by default, and if you don’t need them, you can simply disable them by configuring the videos or the entire channel as ‘Made for kids’. If the comments on any video were enabled previously, and are disabled later on, the existing comments automatically disappear. They reappear when the comments on the video are reenabled.
 
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2148648/16836" target="_top" id="2148648">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148648" border="0" alt="https://techidaily.com" width="468" height="60"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148648/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Liza Brown
 
@@ -166,12 +200,26 @@ Follow @Liza Brown
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1880927/19272" target="_top" id="1880927">
-  <img src="//a.impactradius-go.com/display-ad/19272-1880927" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880927/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://tiktok-video-recordings.techidaily.com/new-30-hot-tiktok-amazon-finds-you-must-know/"><u>[New] 30 Hot TikTok Amazon Finds You Must Know</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/uide-to-getting-1000-subscribers-for-your-youtube-channel-for-2024/"><u>[New] Guide to Getting 1000 Subscribers for Your YouTube Channel for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-the-ultimate-guide-to-designing-powerful-youtube-logos/"><u>[New] In 2024, The Ultimate Guide to Designing Powerful YouTube Logos</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/uick-tips-for-continuous-playback-on-iphone-for-2024/"><u>[New] Quick Tips for Continuous Playback on iPhone for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-audience-market-leaders-in-youtubes-short-clips-downloads-for-2024/"><u>[Updated] Audience’ Market Leaders in YouTube's Short Clips Downloads for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-earnings-enlightenment-joshi-and-youtube-success-stories/"><u>[Updated] Earnings Enlightenment Joshi and YouTube Success Stories</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-in-2024-expert-advice-at-your-screen-the-finest-15-stock-channels/"><u>[Updated] In 2024, Expert Advice at Your Screen The Finest 15 Stock Channels</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-in-2024-thriving-in-the-instagram-economy-a-guide-to-financially-sustaining-content-creation/"><u>[Updated] In 2024, Thriving in the Instagram Economy A Guide to Financially Sustaining Content Creation</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-techniques-for-safe-youtube-audio-extraction-at-no-cost-for-2024/"><u>[Updated] Techniques for Safe YouTube Audio Extraction at No Cost for 2024</u></a></li>
+<li><a href="https://fox-that.techidaily.com/experiencing-a-dead-pixel-nightmare-here-are-8-fixes-for-common-tablet-touchscreen-issues/"><u>Experiencing a Dead Pixel Nightmare? Here Are 8 Fixes for Common Tablet Touchscreen Issues</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/e-fables-enthralling-channel-names-for-epicureans/"><u>Foodie Fables Enthralling Channel Names for Epicureans</u></a></li>
+<li><a href="https://location-social.techidaily.com/how-to-send-and-fake-live-location-on-facebook-messenger-of-your-realme-gt-5-drfone-by-drfone-virtual-android/"><u>How to Send and Fake Live Location on Facebook Messenger Of your Realme GT 5 | Dr.fone</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-5-hassle-free-solutions-to-fake-location-on-find-my-friends-of-tecno-pop-7-pro-drfone-by-drfone-virtual-android/"><u>In 2024, 5 Hassle-Free Solutions to Fake Location on Find My Friends Of Tecno Pop 7 Pro | Dr.fone</u></a></li>
+<li><a href="https://fake-location.techidaily.com/in-2024-best-10-mock-location-apps-worth-trying-on-oppo-a2-drfone-by-drfone-virtual-android/"><u>In 2024, Best 10 Mock Location Apps Worth Trying On Oppo A2 | Dr.fone</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-how-to-track-a-lost-realme-gt-5-pro-for-free-drfone-by-drfone-virtual-android/"><u>In 2024, How to Track a Lost Realme GT 5 Pro for Free? | Dr.fone</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/in-2024-radiance-in-android-video-editing/"><u>In 2024, Radiance in Android Video Editing</u></a></li>
+<li><a href="https://techtrends.techidaily.com/step-by-step-solutions-for-bootmgr-is-absent-errors-in-windows-operating-systems/"><u>Step-by-Step Solutions for 'BOOTMGR Is Absent' Errors in Windows Operating Systems ✅</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/visual-fidelity-at-its-peak-the-merits-of-high-dynamic-range-over-sdr/"><u>Visual Fidelity at Its Peak The Merits of High Dynamic Range Over SDR</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/bes-best-font-choices-for-striking-thumbnails/"><u>YouTube's Best Font Choices for Striking Thumbnails</u></a></li>
+</ul></div>
 

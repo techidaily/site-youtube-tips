@@ -1,7 +1,7 @@
 ---
 title: "[New] In 2024, Mastering the Art of Audio Capture Sans Microphone"
-date: 2024-09-22T22:12:08.242Z
-updated: 2024-09-29T00:07:29.289Z
+date: 2024-10-01T08:28:30.971Z
+updated: 2024-10-03T19:26:47.483Z
 tags:
   - ai video
   - ai youtube
@@ -52,13 +52,6 @@ For example, your camera’s mic might be just as good as a clip-on LAV, but tha
 
 Moving your camera/smartphone physically closer to you will make it hard to include anything besides your head and shoulders in your shot, but it will get you significantly better audio.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130875/7443" target="_top" id="2130875">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130875" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130875/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## 2.Shoot Somewhere Quiet
 
 The best way to limit the amount of background noise you pick up in your sound recording is to shoot somewhere where there’s no background noise. That probably seems really basic, but it’s something a lot of people just don’t do. It’s easy to default to recording in your home office, even though it’s right next to the kitchen where your family is bustling around, or in your bedroom even though there’s a busy street right outside your window.
@@ -72,6 +65,13 @@ There’s more that goes into picking a good room than how quiet it is. If you t
 You should also pay attention to what’s in the room you’re recording in. Avoid hard, reflective, surfaces like appliances and mirrors which your voice will bounce off of. The same conditions that make you sound great when you sing in the shower will – like recording in a small space -make your voiceover unpleasantly echo-y.
 
 Look for a room that has a lot of soft things in it, like beds and sofas.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2043856/7443" target="_top" id="2043856">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043856" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043856/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## 4\. Protect your Built-In Mic from Wind
 
@@ -87,23 +87,9 @@ If your built-in mic is on top of your camera you can get something called a ‘
 
 ![Record better audio from wind with micromuff](https://images.wondershare.com/filmora/article-images/record-better-audio-from-wind.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115916/19272" target="_top" id="2115916">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115916" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115916/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 _You use the adhesive backing to attach the base velcro to your camera. The other side of the velcro has your fluff attached to the back._
 
 The only thing about a micromuff is that it costs about $30, and if you’re going to spend $30 on audio equipment then you could just buy yourself an inexpensive LAV mic. I only bring up the micromuff because it’s a very simple design you can probably DIY – you just need velcro with adhesive backing and any of the fluff-sources we just discussed.
-
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1484944/16446" target="_top" id="1484944">
-  <img src="//a.impactradius-go.com/display-ad/16446-1484944" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484944/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## 5\. Use a Free Audio App
 
@@ -121,6 +107,19 @@ Do you have any of your own audio tips to pass on? Leave them in the comments!
 
 _This topic was suggested by RS Beauty over in the forums. Thanks for the idea!_
 
+<!-- affiliate ads begin -->
+<span id="1424531">
+					<video width="864" height="NaN" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1424531.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1424531">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424531.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424531%2F16446'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424531/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Polish Your YouTube Videos with Filmora
 
 As one of the most widely used video editing software in YouTube video editing, [Filmora](https://tools.techidaily.com/wondershare/filmora/download/) allows you to [record voiceover](https://tools.techidaily.com/wondershare/filmora/download/) and edit the recorded audio with mixer, equalizer and provides lots of templates and effects with an intuitive interface, which saves much time. Download the free trial version and get started now.
@@ -128,13 +127,20 @@ As one of the most widely used video editing software in YouTube video editing, 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<a href="https://aidotcom.pxf.io/c/5597632/2134499/19576" target="_top" id="2134499">
-  <img src="//a.impactradius-go.com/display-ad/19576-2134499" border="0" alt="https://techidaily.com" width="600" height="90"/>
+<a href="https://dhgate.sjv.io/c/5597632/2106658/12108" target="_top" id="2106658">
+  <img src="//a.impactradius-go.com/display-ad/12108-2106658" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134499/19576" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://dhgate.sjv.io/i/5597632/2106658/12108" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134239/18498" target="_top" id="2134239">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134239" border="0" alt="https://techidaily.com" width="721" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134239/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -157,16 +163,19 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-friendly.techidaily.com/new-the-ultimate-iphone-and-ipad-podcast-recording-manual-for-interviews/"><u>[New] The Ultimate iPhone & iPad Podcast Recording Manual For Interviews</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/updated-2024-approved-top-hdd-picks-for-expanding-your-xbox/"><u>[Updated] 2024 Approved Top HDD Picks for Expanding Your Xbox</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-assessing-mr-beasts-monetary-trajectory-for-2024/"><u>[Updated] Assessing Mr. Beast’s Monetary Trajectory for 2024</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-digital-footprint-and-interactive-iconography-honors-for-2024/"><u>[Updated] Digital Footprint and Interactive Iconography Honors for 2024</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-taking-your-videos-to-the-next-level-expert-pc-methods-for-youtubers-for-2024/"><u>[Updated] Taking Your Videos to the Next Level Expert PC Methods for YouTubers for 2024</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-unlocking-green-screen-magic-video-production-tips/"><u>[Updated] Unlocking Green Screen Magic Video Production Tips</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/2024-approved-innovating-messaging-sounds-a-guide-to-downloading-and-personalizing-whatsapp-ringtones/"><u>2024 Approved Innovating Messaging Sounds A Guide to Downloading & Personalizing WhatsApp Ringtones</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/how-to-cast-oppo-a1x-5g-screen-to-pc-using-wifi-drfone-by-drfone-android/"><u>How to Cast Oppo A1x 5G Screen to PC Using WiFi | Dr.fone</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/in-2024-methods-to-change-gps-location-on-lava-yuva-3-pro-drfone-by-drfone-virtual-android/"><u>In 2024, Methods to Change GPS Location On Lava Yuva 3 Pro | Dr.fone</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ize-and-share-music-how-to-make-youtube-playlists-easier-for-2024/"><u>Organize and Share Music How to Make YouTube Playlists Easier for 2024</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/stream-your-favorite-shows-anywhere-with-apples-new-podcasts-web-application/"><u>Stream Your Favorite Shows Anywhere with Apple's New Podcasts Web Application</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/new-freezing-gameplay-essential-pc-screen-snaps-for-2024/"><u>[New] Freezing Gameplay Essential PC Screen Snaps for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-top-10-tunes-turned-into-wit-wonders/"><u>[New] In 2024, Top 10 Tunes Turned Into Wit Wonders</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-seamless-streaming-tackle-instagram-video-woes-for-2024/"><u>[New] Seamless Streaming Tackle Instagram Video Woes for 2024</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/updated-rapid-snapshot-sound-infused-display/"><u>[Updated] Rapid Snapshot Sound-Infused Display</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-the-essential-blueprint-to-compiling-youtube-soundscape/"><u>[Updated] The Essential Blueprint to Compiling YouTube Soundscape</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-the-essential-list-of-8-authentic-youtube-boosters/"><u>[Updated] The Essential List of 8 Authentic YouTube Boosters</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-video-platform-review-is-vimeo-best-over-youtubes-and-dailymotions/"><u>[Updated] Video Platform Review Is Vimeo Best Over YouTubes and DailyMotions?</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/2024-approved-mario-vs-donkey-kong-the-ultimate-switch-fighting-series/"><u>2024 Approved Mario Vs. Donkey Kong The Ultimate Switch Fighting Series</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/8-things-to-consider-before-buying-next-lens-for-4k-camera/"><u>8 Things to Consider Before Buying Next Lens for 4K Camera</u></a></li>
+<li><a href="https://games-able.techidaily.com/dissecting-how-xbox-handles-game-rule-violations/"><u>Dissecting How Xbox Handles Game Rule Violations</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/24-tagging-techniques-to-skyrocket-your-game-vids/"><u>In 2024, Tagging Techniques to Skyrocket Your Game Vids</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/24-top-9-free-video-channel-logomakers-showcase-reviewed/"><u>In 2024, Top 9 Free Video Channel Logomakers Showcase Reviewed</u></a></li>
+<li><a href="https://win-blog.techidaily.com/step-by-step-solution-to-resolve-black-screen-on-launch-in-helldiver-ii-game/"><u>Step-by-Step Solution to Resolve Black Screen on Launch in Helldiver II Game</u></a></li>
+<li><a href="https://driver-download.techidaily.com/windows-users-guide-downloading-and-setting-up-asus-mousepad-driver/"><u>Windows Users Guide: Downloading and Setting Up ASUS Mousepad Driver</u></a></li>
 </ul></div>
 

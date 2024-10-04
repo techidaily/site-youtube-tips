@@ -1,7 +1,7 @@
 ---
 title: "\"In 2024, The Animator's Odyssey  Crafting Your Own FX Realm\""
-date: 2024-09-24T23:46:15.803Z
-updated: 2024-09-28T17:23:03.662Z
+date: 2024-10-02T17:36:00.616Z
+updated: 2024-10-04T00:27:15.260Z
 tags:
   - ai video
   - ai youtube
@@ -56,10 +56,10 @@ In this post, we’re going to kick things up a bit. Here is a list of places wh
 On this YouTube channel, motion graphics specialist Matt offers free animation tutorials using a variety of programs including Adobe After Effects and Cinema 4D. His lessons are for a range of skill levels, from beginner to advanced. If you are just starting out then Mt.Mograph is a great resource.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118323/7443" target="_top" id="2118323">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118323" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://laganoo.pxf.io/c/5597632/1528700/16446" target="_top" id="1528700">
+  <img src="//a.impactradius-go.com/display-ad/16446-1528700" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118323/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528700/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **[Richard Harrington on Lynda](https://www.lynda.com/Rich-Harrington/120-1.html)**
@@ -69,10 +69,16 @@ Lynda isn’t free, but the 10-day free trial period is definitely long enough f
 What’s great about this course is that it assumes you have no animation experience, and it walks you through the main thing a lot of YouTubers want to learn animation for – creating an animated logo.
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2123511/26400" target="_top" id="2123511">
-  <img src="//a.impactradius-go.com/display-ad/26400-2123511" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2123511/26400" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1531879">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1531879.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1531879">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1531879.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1531879%2F16446'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1531879/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **[Bloop Animation](https://www.bloopanimation.com/)**
@@ -80,10 +86,10 @@ What’s great about this course is that it assumes you have no animation experi
  Most of the video animation courses on this site are paid, but they have a lot of cool free tutorials as well. The focus is more on animating figures/cartoons than video effects, but if you have any interest in animation more generally then this is a great place to start learning. They even have a free ebook you can download which is targeted at beginners.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135367/19272" target="_top" id="2135367">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135367" border="0" alt="https://techidaily.com" width="180" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2082526/7443" target="_top" id="2082526">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082526" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135367/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082526/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **[Video Copilot](http://www.videocopilot.net/)**
@@ -93,10 +99,10 @@ This site has a huge number of free After Effects tutorials. There are basic int
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1880976/19272" target="_top" id="1880976">
-  <img src="//a.impactradius-go.com/display-ad/19272-1880976" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2043638/7443" target="_top" id="2043638">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043638" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880976/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043638/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -120,22 +126,22 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-tips.techidaily.com/ain-traction-on-youtube-deciphering-ranking-principles-for-2024/"><u>[New] Gain Traction on YouTube Deciphering Ranking Principles for 2024</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/n-2024-filmmakers-lounge-app/"><u>[New] In 2024, Filmmaker's Lounge App</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/new-in-2024-screen-saver-saviors-how-to-download-and-save-your-favorite-tweets/"><u>[New] In 2024, Screen Saver Saviors How to Download and Save Your Favorite Tweets</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/n-2024-strategies-to-remove-youtube-trailers-and-clips/"><u>[New] In 2024, Strategies to Remove YouTube Trailers and Clips</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/avigating-through-paid-product-evaluations-online/"><u>[New] Navigating Through Paid Product Evaluations Online</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-snap-in-hours-stars-quick-hit-video-winners/"><u>[Updated] 2024 Approved Snap-in-Hours Stars Quick Hit Video Winners</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-culinary-connoisseurs-must-watch-food-content/"><u>[Updated] In 2024, Culinary Connoisseurs Must-Watch Food Content</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-in-2024-laughters-legacy-the-process-of-parody-film-making/"><u>[Updated] In 2024, Laughter's Legacy The Process of Parody Film-Making</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-mapping-memorable-media-metaphors/"><u>[Updated] Mapping Memorable Media Metaphors</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/updated-why-the-future-of-videography-is-in-hdrs-arms-for-2024/"><u>[Updated] Why the Future of Videography Is in HDR's Arms for 2024</u></a></li>
-<li><a href="https://blog-min.techidaily.com/5-ways-to-teach-you-to-transfer-files-from-tecno-phantom-v-fold-to-other-android-devices-easily-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>5 Ways To Teach You To Transfer Files from Tecno Phantom V Fold to Other Android Devices Easily | Dr.fone</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/te-your-short-form-content-top-10-edits-for-iosandroid-for-2024/"><u>Elevate Your Short-Form Content Top 10 Edits for iOS/Android for 2024</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/in-2024-top-4-ways-to-trace-samsung-galaxy-a25-5g-location-drfone-by-drfone-virtual-android/"><u>In 2024, Top 4 Ways to Trace Samsung Galaxy A25 5G Location | Dr.fone</u></a></li>
-<li><a href="https://voice-adjusting.techidaily.com/new-in-2024-top-5-linux-audio-gadgets-and-expert-advice-on-achieving-professional-sound-quality/"><u>New In 2024, Top 5 Linux Audio Gadgets and Expert Advice on Achieving Professional Sound Quality</u></a></li>
-<li><a href="https://article-posts.techidaily.com/the-ultimate-10-step-plan-thriving-in-social-media-management-for-2024/"><u>The Ultimate 10-Step Plan Thriving in Social Media Management for 2024</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ltimate-youtube-broadcast-handbook-for-2024/"><u>The Ultimate YouTube Broadcast Handbook for 2024</u></a></li>
-<li><a href="https://facebook.techidaily.com/whats-new-with-facebook-a-look-at-navigation-and-layout/"><u>What’s New with Facebook: A Look at Navigation & Layout</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/eciphering-content-control-youtube-vs-creative-commons-license-for-2024/"><u>[New] Deciphering Content Control YouTube Vs. Creative Commons License for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-discovering-8-honestly-endorsed-promotional-strategies/"><u>[New] In 2024, Discovering 8 Honestly-Endorsed Promotional Strategies</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/aximize-your-mobile-experience-with-these-7-blockers/"><u>[New] Maximize Your Mobile Experience with These 7 Blockers</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/new-premium-podcast-picks-googlouds-best-series-selection/"><u>[New] Premium Podcast Picks GooGloud’s Best Series Selection</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/nlock-your-content-potential-best-ideas-for-youtube-themes-for-2024/"><u>[New] Unlock Your Content Potential Best Ideas for YouTube Themes for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-2024-approved-mastering-youtube-video-extraction-a-step-by-step-guide/"><u>[Updated] 2024 Approved Mastering YouTube Video Extraction A Step-by-Step Guide</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-in-2024-youtubes-copyright-rules-simplified-a-non-legal-guide/"><u>[Updated] In 2024, YouTube's Copyright Rules Simplified A Non-Legal Guide</u></a></li>
+<li><a href="https://discord-videos.techidaily.com/updated-leading-discord-automated-friends-for-2024/"><u>[Updated] Leading Discord Automated Friends for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-the-top-8-choices-mirrorless-cameras-for-excellent-vlogs/"><u>[Updated] The Top 8 Choices Mirrorless Cameras for Excellent Vlogs</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-ultimate-guide-igniting-video-visionaries-in-your-channel/"><u>[Updated] Ultimate Guide Igniting Video Visionaries in Your Channel</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/3-best-tools-to-hard-reset-samsung-galaxy-a23-5g-drfone-by-drfone-reset-android-reset-android/"><u>3 Best Tools to Hard Reset Samsung Galaxy A23 5G | Dr.fone</u></a></li>
+<li><a href="https://techidaily.com/how-to-factory-reset-xiaomi-redmi-note-12-proplus-5g-if-i-forgot-security-code-or-password-drfone-by-drfone-reset-android-reset-android/"><u>How to Factory Reset Xiaomi Redmi Note 12 Pro+ 5G If I Forgot Security Code or Password? | Dr.fone</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-can-you-transfer-files-from-itel-a05s-to-iphone-151413-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How Can You Transfer Files From Itel A05s To iPhone 15/14/13? | Dr.fone</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/in-2024-navigating-the-clouds-and-crowds-stream-from-dji-to-facebook/"><u>In 2024, Navigating the Clouds and Crowds Stream From DJI to Facebook</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/24-revolutionize-your-youtube-presence-with-personalized-thumbnails/"><u>In 2024, Revolutionize Your YouTube Presence with Personalized Thumbnails</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/leading-cordless-telephones-to-buy-a-comprehensive-guide/"><u>Leading Cordless Telephones to Buy : A Comprehensive Guide</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/understanding-aim-a-deep-dive-into-the-history-of-aol-instant-messenger/"><u>Understanding AIM: A Deep Dive Into the History of AOL Instant Messenger</u></a></li>
 </ul></div>
 

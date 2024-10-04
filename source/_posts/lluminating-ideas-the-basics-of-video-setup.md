@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Illuminating Ideas  The Basics of Video Setup\""
-date: 2024-09-14T18:59:51.641Z
-updated: 2024-09-21T17:43:53.688Z
+date: 2024-09-26T20:32:06.143Z
+updated: 2024-10-03T17:26:09.917Z
 tags:
   - ai video
   - ai youtube
@@ -49,7 +49,21 @@ The **fill light** is less bright than the primary source of light and it is pla
 
 The final step to creating three point lighting is to set up another light behind you. This is your 'Backlight', and it will help you stand out from your background. **Backlight or Hair light** is always placed behind and above the subject to create separation between the subject in the shot and the background. This basic lighting technique can be applied in almost every scene you shoot, which is why it is important to keep an open mind and to continue experimenting with possible light setups.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2080342/19272" target="_top" id="2080342">
+  <img src="//a.impactradius-go.com/display-ad/19272-2080342" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2080342/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Watch Video! Top Lighting Tips for Vlogging
+
+<!-- affiliate ads begin -->
+<a href="https://aidotcom.pxf.io/c/5597632/2134501/19576" target="_top" id="2134501">
+  <img src="//a.impactradius-go.com/display-ad/19576-2134501" border="0" alt="https://techidaily.com" width="640" height="90"/>
+</a>
+<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134501/19576" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Lightning Tips for Aspiring YouTube Videographers
 
@@ -83,11 +97,25 @@ If you are hosting a **beauty vlog** then you might consider a slightly differen
 
 ![lighting tips](https://images.wondershare.com/filmora/article-images/lighting-tips02.JPG)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2006933/19272" target="_top" id="2006933">
+  <img src="//a.impactradius-go.com/display-ad/19272-2006933" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006933/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 If you are using all of the lighting options available to you and your video still looks too dark then you can try brightening it by **opening up the aperture of your camera** lens/setting a lower f-stop. Letting more light into your camera can help your footage look brighter, although you also run the risk of making things look overexposed/ washed out if you are not careful.
 
 If you are stuck shooting in **low light conditions** it is best to use a lens with a wider aperture/lower f-stop. This will make the best of the light you do have.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2049383/7443" target="_top" id="2049383">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049383" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049383/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -108,12 +136,20 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2027195/19272" target="_top" id="2027195">
-  <img src="//a.impactradius-go.com/display-ad/19272-2027195" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2027195/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-sure.techidaily.com/024-approved-a-beginners-guide-to-elevating-auditory-experiences-on-youtube/"><u>[New] 2024 Approved A Beginner's Guide to Elevating Auditory Experiences on YouTube</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/chieve-sharpness-camera-tips-without-a-tripod/"><u>[New] Achieve Sharpness Camera Tips Without a Tripod</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-copycat-cinema-steps-for-satirical-video-making/"><u>[New] In 2024, Copycat Cinema Steps for Satirical Video Making</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-boost-your-like-ratio-tips-for-squaring-up-videos-for-2024/"><u>[Updated] Boost Your Like Ratio Tips for Squaring Up Videos for 2024</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-dive-into-the-world-of-customized-ringtones-with-tiktok-beats-for-2024/"><u>[Updated] Dive Into the World of Customized Ringtones with TikTok Beats for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-seamless-screen-stretch-cycle-youtube-on-television-display/"><u>[Updated] Seamless Screen Stretch Cycle YouTube on Television Display</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/approved-ignite-your-channels-engagement-with-targeted-youtube-links/"><u>2024 Approved Ignite Your Channel's Engagement with Targeted YouTube Links</u></a></li>
+<li><a href="https://fake-location.techidaily.com/best-10-mock-location-apps-worth-trying-on-lava-blaze-2-pro-drfone-by-drfone-virtual-android/"><u>Best 10 Mock Location Apps Worth Trying On Lava Blaze 2 Pro | Dr.fone</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/in-2024-adjusting-sound-settings-gently-in-windowsmacos/"><u>In 2024, Adjusting Sound Settings Gently in Windows/macOS</u></a></li>
+<li><a href="https://android-frp.techidaily.com/in-2024-how-to-bypass-frp-on-samsung-galaxy-f54-5g-by-drfone-android/"><u>In 2024, How to Bypass FRP on Samsung Galaxy F54 5G?</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/in-2024-innovative-editions-filmmaker-writers-on-windows/"><u>In 2024, Innovative Editions Filmmaker' Writers on WIndows</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/24-mastering-the-art-of-embedding-youtube-playlist-content/"><u>In 2024, Mastering the Art of Embedding YouTube Playlist Content</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/er-kit-the-essential-youtube-setup-for-2024/"><u>Starter Kit The Essential YouTube Setup for 2024</u></a></li>
+</ul></div>
 

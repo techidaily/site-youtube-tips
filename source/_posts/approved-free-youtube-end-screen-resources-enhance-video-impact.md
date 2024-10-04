@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Free YouTube End Screen Resources - Enhance Video Impact\""
-date: 2024-09-25T03:46:29.039Z
-updated: 2024-09-28T23:05:11.112Z
+date: 2024-09-29T02:08:11.972Z
+updated: 2024-10-04T08:03:28.593Z
 tags:
   - ai video
   - ai youtube
@@ -96,16 +96,16 @@ Another way to get your YouTube end screens for free, of course, is to make them
 
 ![create-outro-end-screen-with-canva-1](https://images.wondershare.com/filmora/article-images/create-outro-end-screen-with-canva-1.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151858/7443" target="_top" id="2151858">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151858" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151858/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 2\. Once logged in, select “use custom dimensions” and plug in “1920” pixels as your width and “1080” pixels as your height (this, of course, may vary depending on the resolution of your video project).
 
 ![create-outro-end-screen-with-canva  ](https://images.wondershare.com/filmora/article-images/create-outro-end-screen-with-canva-2.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2006914/19272" target="_top" id="2006914">
+  <img src="//a.impactradius-go.com/display-ad/19272-2006914" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006914/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 3\. After clicking “Design!,” a new browser will open with a blank canvas.
 
@@ -117,42 +117,42 @@ Another way to get your YouTube end screens for free, of course, is to make them
 
 ![upload-downloaded-youtube-end-screen-canva ](https://images.wondershare.com/filmora/article-images/upload-downloaded-youtube-end-screen-canva.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2087409/7443" target="_top" id="2087409">
+  <img src="//a.impactradius-go.com/display-ad/7443-2087409" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087409/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 6\. Stretch your image to the ends of your canvas.
 
 ![stretch-end-screen-templates-canva ](https://images.wondershare.com/filmora/article-images/stretch-end-screen-templates-canva.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2002019/7443" target="_top" id="2002019">
-  <img src="//a.impactradius-go.com/display-ad/7443-2002019" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2151868/7443" target="_top" id="2151868">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151868" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2002019/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151868/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 7\. Insert your own shapes, lines, colours, images, and text over the image.
 
 ![adjust-end-screen-templates-in-canva](https://images.wondershare.com/filmora/article-images/adjust-end-screen-templates-in-canva.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1959707/19272" target="_top" id="1959707">
-  <img src="//a.impactradius-go.com/display-ad/19272-1959707" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1959707/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 8\. When you’re done, delete the original image so that you’re left with just your own design. Go ahead and click “download.”
 
 ![youtube-end-screen-made-with-canva](https://images.wondershare.com/filmora/article-images/youtube-end-screen-made-with-canva.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2148644/16836" target="_top" id="2148644">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148644" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148644/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 If you're looking for other options to design your end screen, make sure to also check out our article on [The YouTube Outro Guide](https://tools.techidaily.com/wondershare/filmora/download/). To edit the YouTube video with more effects and templates, you can try [Wondershare Filmora video editor.](https://tools.techidaily.com/wondershare/filmora/download/)
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2006933/19272" target="_top" id="2006933">
-  <img src="//a.impactradius-go.com/display-ad/19272-2006933" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006933/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
@@ -177,22 +177,20 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-video-capture.techidaily.com/new-2024-approved-achieving-seamless-group-discussions-in-google-chat/"><u>[New] 2024 Approved Achieving Seamless Group Discussions in Google Chat</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/024-approved-audiovisual-harmony-merging-audio-and-visual-elements-on-youtube/"><u>[New] 2024 Approved Audiovisual Harmony Merging Audio and Visual Elements on YouTube</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/024-approved-best-practices-in-youtube-keyword-selection/"><u>[New] 2024 Approved Best Practices in YouTube Keyword Selection</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/024-approved-effortlessly-add-youtube-videos-to-google-slate-decks/"><u>[New] 2024 Approved Effortlessly Add YouTube Videos to Google Slate Decks</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/024-approved-enhancing-viewer-experience-with-immersive-360-video-content-for-youtube/"><u>[New] 2024 Approved Enhancing Viewer Experience with Immersive 360 Video Content for YouTube</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/024-approved-how-to-download-youtube-playlist-step-by-step/"><u>[New] 2024 Approved How to Download YouTube Playlist-Step by Step</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/024-approved-income-levels-of-mr-beast/"><u>[New] 2024 Approved Income Levels of Mr. Beast</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/024-approved-overcoming-non-displayed-thumbnails-youtube-shorts-guide/"><u>[New] 2024 Approved Overcoming Non-Displayed Thumbnails YouTube Shorts Guide</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/024-approved-the-ultimate-checklist-of-essential-equipment/"><u>[New] 2024 Approved The Ultimate Checklist of Essential Equipment</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/new-in-2024-facebook-decoding-the-new-era-of-bite-sized-videos/"><u>[New] In 2024, Facebook Decoding the New Era of Bite-Sized Videos</u></a></li>
-<li><a href="https://driver-download.techidaily.com/brother-hl-3170cdw-driver-installation-fast-and-simple-guide/"><u>Brother HL-3170CDW Driver Installation: Fast and Simple Guide</u></a></li>
-<li><a href="https://techtrends.techidaily.com/detailed-instructions-to-erase-all-data-from-your-dell-machine/"><u>Detailed Instructions to Erase All Data From Your Dell Machine</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/expert-analysis-of-the-samsung-galaxy-tab-s7plus-the-ultimate-high-end-tablet-experience/"><u>Expert Analysis of the Samsung Galaxy Tab S7+: The Ultimate High-End Tablet Experience</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/how-to-remove-a-previously-synced-google-account-from-your-infinix-note-30i-by-drfone-android/"><u>How to Remove a Previously Synced Google Account from Your Infinix Note 30i</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/in-2024-inception-filming-review-examination/"><u>In 2024, Inception Filming Review Examination</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/in-2024-the-best-android-sim-unlock-code-generators-unlock-your-vivo-y100i-phone-hassle-free-by-drfone-android/"><u>In 2024, The Best Android SIM Unlock Code Generators Unlock Your Vivo Y100i Phone Hassle-Free</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/method-to-resolve-plugin-service-link-failures-in-chatgpt/"><u>Method to Resolve Plugin-Service Link Failures in ChatGPT</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/024-approved-the-ultimate-tripod-techniques-for-video-creators/"><u>[New] 2024 Approved The Ultimate Tripod Techniques for Video Creators</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/rime-audio-alteration-tech-for-influencer-marketers/"><u>[New] Prime Audio Alteration Tech for Influencer Marketers</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-top-20-inspiring-ideas-for-instagram-photos/"><u>[New] Top 20 Inspiring Ideas for Instagram Photos</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/new-vr-sickness-10-prevention-strategies-for-2024/"><u>[New] VR Sickness 10 Prevention Strategies for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-essential-film-techniques-on-youtube-by-future-visionaries/"><u>[Updated] Essential Film Techniques on YouTube by Future Visionaries</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-in-2024-youtube-editing-made-easy-shortening-video-lengths/"><u>[Updated] In 2024, YouTube Editing Made Easy Shortening Video Lengths</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/approved-the-infographic-lens-on-2017s-youtube-numerical-truths/"><u>2024 Approved The Infographic Lens on 2017'S Youtube Numerical Truths</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/endings-that-wow-ranked-for-you-top-6-for-2024/"><u>Free Endings That Wow - Ranked for You (Top 6) for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/24-easy-youtube-file-transfer-techniques/"><u>In 2024, Easy YouTube File Transfer Techniques</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ring-playlist-conversion-5-preferred-tools-for-youtube-streams/"><u>Mastering Playlist Conversion 5 Preferred Tools for YouTube Streams</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/neueste-erweiterung-fur-die-3m-360-encompass-software-abbyy-text-recognition-von-kunftig-ausgerustet/"><u>Neueste Erweiterung Für Die 3M 360 Encompass Software - ABBYY Text Recognition Von Künftig Ausgerüstet</u></a></li>
+<li><a href="https://location-social.techidaily.com/simple-and-effective-ways-to-change-your-country-on-youtube-app-of-your-asus-rog-phone-7-ultimate-drfone-by-drfone-virtual-android/"><u>Simple and Effective Ways to Change Your Country on YouTube App Of your Asus ROG Phone 7 Ultimate | Dr.fone</u></a></li>
+<li><a href="https://graphic-issues.techidaily.com/successful-harmony-geforce-nforce-and-windows-10-together/"><u>Successful Harmony: GeForce, nForce, and Windows 10 Together</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/top-4-benefits-of-using-chatgpt-for-web-development/"><u>Top 4 Benefits of Using ChatGPT for Web Development</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/underwater-cinematography-made-simple-top-7-tips-for-2024/"><u>Underwater Cinematography Made Simple Top 7 Tips for 2024</u></a></li>
 </ul></div>
 
