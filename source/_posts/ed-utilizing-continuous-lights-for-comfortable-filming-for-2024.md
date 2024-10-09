@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Utilizing Continuous Lights for Comfortable Filming for 2024"
-date: 2024-09-27T10:46:42.303Z
-updated: 2024-10-04T07:44:54.381Z
+date: 2024-10-02T16:41:35.827Z
+updated: 2024-10-09T17:35:32.194Z
 tags:
   - ai video
   - ai youtube
@@ -50,20 +50,13 @@ The **fill light** is less bright than the primary source of light and it is pla
 The final step to creating three point lighting is to set up another light behind you. This is your 'Backlight', and it will help you stand out from your background. **Backlight or Hair light** is always placed behind and above the subject to create separation between the subject in the shot and the background. This basic lighting technique can be applied in almost every scene you shoot, which is why it is important to keep an open mind and to continue experimenting with possible light setups.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135416/19272" target="_top" id="2135416">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135416" border="0" alt="https://techidaily.com" width="336" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2144276/7443" target="_top" id="2144276">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144276" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135416/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144276/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Watch Video! Top Lighting Tips for Vlogging
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2100541/7443" target="_top" id="2100541">
-  <img src="//a.impactradius-go.com/display-ad/7443-2100541" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100541/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Lightning Tips for Aspiring YouTube Videographers
 
@@ -92,10 +85,10 @@ Sets of reflectors are often under $50, so they are fairly affordable. However, 
 ![lighting tips](https://images.wondershare.com/filmora/article-images/lighting-tips01.JPG)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2137395/7443" target="_top" id="2137395">
-  <img src="//a.impactradius-go.com/display-ad/7443-2137395" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2027162/19272" target="_top" id="2027162">
+  <img src="//a.impactradius-go.com/display-ad/19272-2027162" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137395/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2027162/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 If your strong main light is too hard on your eyes then you can use a translucent 'reflector' to soften it. Set your translucent reflector, or other screen, up in front of your main light to diffuse it.
@@ -105,10 +98,10 @@ If you are hosting a **beauty vlog** then you might consider a slightly differen
 ![lighting tips](https://images.wondershare.com/filmora/article-images/lighting-tips02.JPG)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2100538/7443" target="_top" id="2100538">
-  <img src="//a.impactradius-go.com/display-ad/7443-2100538" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://versadesk.pxf.io/c/5597632/1828647/21290" target="_top" id="1828647">
+  <img src="//a.impactradius-go.com/display-ad/21290-1828647" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100538/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://versadesk.pxf.io/i/5597632/1828647/21290" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 If you are using all of the lighting options available to you and your video still looks too dark then you can try brightening it by **opening up the aperture of your camera** lens/setting a lower f-stop. Letting more light into your camera can help your footage look brighter, although you also run the risk of making things look overexposed/ washed out if you are not careful.
@@ -116,6 +109,13 @@ If you are using all of the lighting options available to you and your video sti
 If you are stuck shooting in **low light conditions** it is best to use a lens with a wider aperture/lower f-stop. This will make the best of the light you do have.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2036486/19272" target="_top" id="2036486">
+  <img src="//a.impactradius-go.com/display-ad/19272-2036486" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2036486/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -138,14 +138,22 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-tips.techidaily.com/024-approved-accelerate-keyword-acquisition-the-finest-7-free-taggification-apps-for-youtube-videos/"><u>[New] 2024 Approved Accelerate Keyword Acquisition The Finest 7 Free Taggification Apps for YouTube Videos</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/new-crafting-engaging-narration-for-your-video-projects/"><u>[New] Crafting Engaging Narration for Your Video Projects</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-5-pro-tips-to-perfectly-tag-videos-and-maximize-views/"><u>[Updated] 5 Pro Tips to Perfectly Tag Videos and Maximize Views</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/updated-from-flat-to-360-comparing-googles-cardboard-and-samsungs-gear/"><u>[Updated] From Flat to 360 Comparing Google's Cardboard & Samsung's Gear</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/cross-platform-access-to-your-icloud-images-for-apple-windows-and-android-users/"><u>Cross-Platform Access to Your iCloud Images for Apple, Windows & Android Users</u></a></li>
-<li><a href="https://extra-information.techidaily.com/expert-tips-for-drone-racing-enthusiasts-and-premium-fpv-units/"><u>Expert Tips for Drone Racing Enthusiasts & Premium FPV Units</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/24-best-budget-cameras-for-creating-quality-vlogs/"><u>In 2024, Best Budget Cameras for Creating Quality Vlogs</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/24-smile-and-watch-your-guide-to-the-top-15-funny-youtubers/"><u>In 2024, Smile and Watch Your Guide to the Top 15 Funny YouTubers</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/revolutionizing-storytelling-free-onlineoffline-animations/"><u>Revolutionizing Storytelling Free Online/Offline Animations</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/024-approved-convincing-audiences-to-join-a-positive-approach/"><u>[New] 2024 Approved Convincing Audiences to Join A Positive Approach</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/024-approved-crafting-classic-cinematography-step-by-step-guide/"><u>[New] 2024 Approved Crafting Classic Cinematography Step-by-Step Guide</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/024-approved-launching-into-creation-equipment-essentials-for-youtubers/"><u>[New] 2024 Approved Launching Into Creation Equipment Essentials for YouTubers</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/024-approved-master-content-analysis-discovering-the-best-7-budget-friendly-youtube-taggification-tools/"><u>[New] 2024 Approved Master Content Analysis Discovering the Best 7 Budget-Friendly YouTube Taggification Tools</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/024-approved-spice-up-viewers-innovative-cooking-channel-naming-tips/"><u>[New] 2024 Approved Spice Up Viewers Innovative Cooking Channel Naming Tips</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/new-assessment-parrot-ar-drone-20-enhanced-edition/"><u>[New] Assessment Parrot AR Drone 2.0 Enhanced Edition</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-in-2024-zoom-video-refinement-best-three-enhancement-steps/"><u>[New] In 2024, Zoom Video Refinement Best Three Enhancement Steps</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-streamlining-the-production-process-of-your-short-videos/"><u>[Updated] Streamlining the Production Process of Your Short Videos</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/2024-approved-navigating-vrs-negative-aspects/"><u>2024 Approved Navigating VR's Negative Aspects</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/-your-vision-online-mobilizing-content-creation-with-ease-and-simplicity/"><u>Bring Your Vision Online Mobilizing Content Creation with Ease and Simplicity</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/-equipment-showcasing-gameplay-innovations-for-2024/"><u>Elite Equipment Showcasing Gameplay Innovations for 2024</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-recover-old-messages-from-your-poco-by-fonelab-android-recover-messages/"><u>How to recover old messages from your Poco</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/in-2024-financial-breakdown-of-music-video-production/"><u>In 2024, Financial Breakdown of Music Video Production</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/navigating-scholarship-savings-your-pathway-to-claiming-the-tidal-university-reduction/"><u>Navigating Scholarship Savings: Your Pathway to Claiming the Tidal University Reduction</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/revolutionizing-professional-recording-the-power-of-the-tascam-cd-200bt-bluetooth-player/"><u>Revolutionizing Professional Recording: The Power of the Tascam CD-200BT Bluetooth Player</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/-a-light-on-your-content-creation-for-2024/"><u>Shine a Light on Your Content Creation for 2024</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/what-everyone-should-consider-before-going-all-in-on-vr-tech/"><u>What Everyone Should Consider Before Going All-In on VR Tech</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "Who's Gaining Thunder in the Video Cosmos?"
-date: 2024-09-16T16:18:09.105Z
-updated: 2024-09-22T07:38:20.655Z
+date: 2024-10-04T17:08:10.443Z
+updated: 2024-10-09T16:46:53.751Z
 tags:
   - ai video
   - ai youtube
@@ -71,6 +71,13 @@ At the age of 27, Germán Alejandro Garmendia Aranis is the owner of the second 
 
 The Chilean YouTube superstar uploaded his first YouTube video in 2011 and by October 2012 his channel has reached 1 million subscribers. Recently, German has lent his voice to a character in the Spanish version of Ice Age: Collision Course. He finds inspiration for his comic YouTube videos in everyday life and topics like ex-girlfriends, school, and phobias are frequently covered in videos published on the HolaSoyGerman channel. In 2014 and 2015 German won the 'Icon of the Year' prize from MTV Millennial Awards.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2036467/19272" target="_top" id="2036467">
+  <img src="//a.impactradius-go.com/display-ad/19272-2036467" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2036467/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ###  3\.  ElrubiusOMG
 
 ![ElrubiusOMG](https://images.wondershare.com/filmora/article-images/elrubius-omg.jpg)
@@ -78,6 +85,13 @@ The Chilean YouTube superstar uploaded his first YouTube video in 2011 and by Oc
 More than 25 million subscribers who follow this gaming commentator. The El Rubius OMG channel was created by Rubén Doblas Gundersen in December 2011 and by February 2013 it reached 1 million subscribers. However, Rubén has been producing videos for his Elrubius channel since 2006\. He simply became more dedicated to the frequent production of YouTube videos in 2011\. Even though the videos featured on the El Rubius OMG channel mostly cover video games, Rubén also produces comedy videos, vlogs, and other interesting and amusing content.
 
 Based in Madrid, El Rubius OMG first became popular in Spanish-speaking countries, and as his fame increased he gained recognition throughout the world. During 2012 his channel became the most subscribed Spanish speaking channel, and on April 21, 2016, El Rubius received the 'YouTuber of the Year' award during the 1st Play Awards celebration in Palma De Mallorca. In addition to being one of the most popular YouTubers of all time, Rubén is also a published author whose first book 'The Troll Book' was the bestselling book in Spain for 8 weeks.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1880960/19272" target="_top" id="1880960">
+  <img src="//a.impactradius-go.com/display-ad/19272-1880960" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880960/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ###  4\.  Smosh
 
@@ -90,10 +104,10 @@ Most channels that have one viral video do not go on to have sustained success o
 In 2017, Anthony Padilla chose to leave Smosh to focus on his own solo YouTube channel.
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2123512/26400" target="_top" id="2123512">
-  <img src="//a.impactradius-go.com/display-ad/26400-2123512" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135349/19272" target="_top" id="2135349">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135349" border="0" alt="https://techidaily.com" width="120" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2123512/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135349/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 5\.  Fernanfloo
@@ -108,22 +122,15 @@ At the end of 2015, Alvarado launched the Fenanfloo mobile app that had 2.3 mill
 
 Looking for a live [YouTube subscriber chart](https://tools.techidaily.com/wondershare/filmora/download/)?
 
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148648/16836" target="_top" id="2148648">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148648" border="0" alt="https://techidaily.com" width="468" height="60"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148648/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Edit YouTube Videos with Full-Featured Video Editing Software
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151892/7443" target="_top" id="2151892">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151892" border="0" alt="https://techidaily.com" width="600" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2049387/7443" target="_top" id="2049387">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049387" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151892/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049387/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
@@ -147,5 +154,26 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-top-10-fearful-video-blogs-overcoming-each-challenge/"><u>[New] In 2024, Top 10 Fearful Video Blogs Overcoming Each Challenge</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/tilizing-youtubes-annotation-feature/"><u>[New] Utilizing YouTube's Annotation Feature</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-2024-approved-secrets-to-successful-hash-tag-application-for-improved-campaigns-on-facebook/"><u>[Updated] 2024 Approved Secrets to Successful Hash Tag Application for Improved Campaigns on Facebook</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-comprehensive-review-of-slomo-video-capture-tool/"><u>[Updated] Comprehensive Review of SloMo Video Capture Tool</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-in-2024-mastering-youtube-sounds-4-top-budget-friendly-apps/"><u>[Updated] In 2024, Mastering YouTube Sounds - 4 Top Budget-Friendly Apps</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-schedule-smarter-the-art-of-youtube-content-timing-for-2024/"><u>[Updated] Schedule Smarter The Art of YouTube Content Timing for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-step-by-step-designing-striking-youtube-thumbnails-with-macos-for-2024/"><u>[Updated] Step-by-Step Designing Striking Youtube Thumbnails with macOS for 2024</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/2024-approved-explore-the-highest-rated-virtual-reality-games/"><u>2024 Approved Explore the Highest-Rated Virtual Reality Games</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/approved-quick-hands-turning-photos-into-compelling-youtube-thumbnails/"><u>2024 Approved Quick Hands Turning Photos Into Compelling YouTube Thumbnails</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/beat-winodws-update-error-0x8024401c-effective-solutions-for-windows-10-and-11-users/"><u>Beat Winodws Update Error 0X8024401c: Effective Solutions for Windows 10 & 11 Users</u></a></li>
+<li><a href="https://ai-vdieo-software.techidaily.com/free-download-splice-video-editor-for-macos-for-2024/"><u>Free Download Splice Video Editor for macOS for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/24-engage-enchant-excel-the-quintessential-5-strategies-for-youtube-marketing/"><u>In 2024, Engage, Enchant, Excel The Quintessential 5 Strategies for YouTube Marketing</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/in-2024-giggle-gang-exploring-the-best-memetic-apps/"><u>In 2024, Giggle Gang Exploring the Best Memetic Apps</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/24-premiere-masterclass-making-your-videos-shine-on-youtube/"><u>In 2024, Premiere Masterclass Making Your Videos Shine on YouTube</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-the-most-useful-tips-for-pokemon-go-ultra-league-on-infinix-gt-10-pro-drfone-by-drfone-virtual-android/"><u>In 2024, The Most Useful Tips for Pokemon Go Ultra League On Infinix GT 10 Pro | Dr.fone</u></a></li>
+<li><a href="https://games-able.techidaily.com/maximizing-xbox-series-x-five-core-mainten-written-by-john-doe/"><u>Maximizing Xbox Series X: Five Core Mainten Written by John Doe</u></a></li>
+<li><a href="https://driver-download.techidaily.com/quick-and-easy-methods-to-obtain-the-latest-asus-vg2-48qe-graphics-card-driver-update-for-windows-pcs/"><u>Quick and Easy Methods to Obtain the Latest Asus VG2 48QE Graphics Card Driver Update for Windows PCs</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ify-crafting-effective-youtube-subscription-buttons-for-2024/"><u>Simplify Crafting Effective YouTube Subscription Buttons for 2024</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/troubleshooting-tips-for-when-wpcapdll-is-nowhere-to-be-found/"><u>Troubleshooting Tips for When Wpcap.dll Is Nowhere to Be Found</u></a></li>
+</ul></div>
 

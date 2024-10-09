@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Guide to Incorited Visuals in Text Without Cost\""
-date: 2024-10-01T21:13:10.010Z
-updated: 2024-10-03T23:01:31.058Z
+date: 2024-10-06T17:59:40.918Z
+updated: 2024-10-09T16:23:23.236Z
 tags:
   - ai video
   - ai youtube
@@ -55,34 +55,28 @@ Click on the Insert tab, and then choose the Video option from the Media menu. Y
 
 You can then fine-tune the video playback settings from the Playback tab. Preview the results before you move on to the next slide in your presentation, and make necessary adjustments if you don’t like how the video merged with the text.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2111968/7443" target="_top" id="2111968">
+  <img src="//a.impactradius-go.com/display-ad/7443-2111968" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111968/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 2: Adding Video to Text in Filmora
 
 Besides presentation software, you can also use video editing software products to add a video to text. Filmora lets you add a video to text in just a few simple steps. You can first make a text video with animation first, and then use the picture in picture feature to add the video to text. Here are the detailed information about how to add a video to text in Filmora.
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<span id="1938141">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1938141.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1938141">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1938141.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1938141%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1938141/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 You should start by creating a new project in Filmora and importing the video you want to add to the text into the project. Click on the Titles tab, and choose the title that matches the visual style of your project.
 
 ![Add video to text - Filmora9](https://images.wondershare.com/filmora/article-images/add-title-effects.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082542/7443" target="_top" id="2082542">
-  <img src="//a.impactradius-go.com/display-ad/7443-2082542" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2037355/7443" target="_top" id="2037355">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037355" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082542/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037355/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Set the preferred duration of the title by dragging one of its ends to the left or right after you place it on the timeline, and then double-click on it to customize it. Click on the Advanced button once the Text tab opens and insert the text into the Input Text box.
@@ -90,10 +84,10 @@ Set the preferred duration of the title by dragging one of its ends to the left 
 ![Add video to text - Filmora9 Advanced Editing](https://images.wondershare.com/filmora/article-images/make-text-video-advanced-text-edit.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068425/7443" target="_top" id="2068425">
-  <img src="//a.impactradius-go.com/display-ad/7443-2068425" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2137395/7443" target="_top" id="2137395">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137395" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068425/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137395/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Proceed to select a font and adjust the text size before deciding if you want to [animate the text](https://tools.techidaily.com/wondershare/filmora/download/). When done, you should export the title as a video file, and then import it back into your project.
@@ -103,10 +97,10 @@ Now it’s time to add the text video and the background video to the project me
 ![Add video to text - Filmora9 Compositing](https://images.wondershare.com/filmora/article-images/compositing-video-9.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2100541/7443" target="_top" id="2100541">
-  <img src="//a.impactradius-go.com/display-ad/7443-2100541" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1934254/19272" target="_top" id="1934254">
+  <img src="//a.impactradius-go.com/display-ad/19272-1934254" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100541/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934254/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Click on the video that contains text to gain access to the Video tab of the Editor panel and then expand the Compositing menu. Change the Blending Mode to Multiply, and the text in the overlaying video should be filled with the parts of the footage from the video below it.
@@ -142,20 +136,20 @@ Follow @Liza Brown
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-tips.techidaily.com/024-approved-the-financial-anatomy-of-youtube-shorts-money-splitting/"><u>[New] 2024 Approved The Financial Anatomy of YouTube Shorts Money Splitting</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/astering-video-trailers-on-youtube-via-filmora-tools/"><u>[New] Mastering Video Trailers on YouTube via Filmora Tools</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/onetizing-youtube-shorts-crucial-requirements-and-potential-income-for-2024/"><u>[New] Monetizing Youtube Shorts Crucial Requirements and Potential Income for 2024</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/he-content-creators-dilemma-choosing-between-igtv-and-youtube-for-2024/"><u>[New] The Content Creator’s Dilemma Choosing Between IGTV and YouTube for 2024</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/new-unveiling-the-mystery-of-free-pictorial-video-downloads/"><u>[New] Unveiling the Mystery of Free Pictorial Video Downloads</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/inning-the-subscriber-race-on-youtube-for-2024/"><u>[New] Winning the Subscriber Race on YouTube for 2024</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-2024-approved-reach-and-recognition-viewership-metrics-for-insta-photos/"><u>[Updated] 2024 Approved Reach and Recognition Viewership Metrics for Insta Photos</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-cognitive-conclaves-educational-yt-powerhouses/"><u>[Updated] Cognitive Conclaves Educational YT Powerhouses</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-navigating-online-marketplaces-for-yt-channel-sales-for-2024/"><u>[Updated] Navigating Online Marketplaces for YT Channel Sales for 2024</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/ai-ocr/"><u>AI OCR自動化で失敗を乗り越える上位３コツ:成功への道筋</u></a></li>
-<li><a href="https://youtube-help.techidaily.com/in-2024-profitable-video-content-starting-and-scaling-up/"><u>In 2024, Profitable Video Content Starting and Scaling Up</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/in-2024-read-this-guide-to-find-a-reliable-alternative-to-fake-gps-on-xiaomi-civi-3-disney-100th-anniversary-edition-drfone-by-drfone-virtual-android/"><u>In 2024, Read This Guide to Find a Reliable Alternative to Fake GPS On Xiaomi Civi 3 Disney 100th Anniversary Edition | Dr.fone</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/mastering-close-up-views-in-roblox-games-for-2024/"><u>Mastering Close-Up Views in Roblox Games for 2024</u></a></li>
-<li><a href="https://extra-support.techidaily.com/premier-online-galleries-of-premium-vectors-for-2024/"><u>Premier Online Galleries of Premium Vectors for 2024</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/unlimited-streaming-how-to-skip-netflixs-screen-restrictions-with-an-easy-hack/"><u>Unlimited Streaming: How to Skip Netflix's Screen Restrictions with an Easy Hack</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-how-to-enhance-content-discovery-with-instagrams-changes-for-2024/"><u>[New] How to Enhance Content Discovery with Instagram's Changes for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-youtube-shorts-money-making-guide-key-requirements-and-potential-income/"><u>[New] In 2024, Youtube Shorts Money-Making Guide Key Requirements & Potential Income</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-the-marketers-mvp-list-top-10-instagram-video-editing-apps/"><u>[New] The Marketer's MVP List Top 10 Instagram Video Editing Apps</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/nveiling-the-secrets-of-successful-youtube-live-games/"><u>[New] Unveiling the Secrets of Successful YouTube Live Games</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-mastering-youtubes-creative-commons-licensing-guide-for-2024/"><u>[Updated] Mastering YouTube’s Creative Commons Licensing Guide for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-tailored-sound-solutions-ideal-mics-for-educational-gaming-and-blogging-channels/"><u>[Updated] Tailored Sound Solutions Ideal Mics For Educational, Gaming & Blogging Channels</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-understanding-instagrams-video-restriction-for-2024/"><u>[Updated] Understanding Instagram's Video Restriction for 2024</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/updated-unlock-the-potential-tutorial-on-enabling-speech-transcription-in-powerpoint/"><u>[Updated] Unlock the Potential Tutorial on Enabling Speech Transcription in PowerPoint</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-unlocking-earning-potential-with-youtube-shorts-crucial-elements-possible-returns-for-2024/"><u>[Updated] Unlocking Earning Potential with Youtube Shorts Crucial Elements, Possible Returns for 2024</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/2024-approved-ultimate-tutorial-mastering-twitter-video-responses/"><u>2024 Approved Ultimate Tutorial Mastering Twitter Video Responses</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/p-by-step-guide-to-youtube-to-igtv-conversion-for-2024/"><u>A Step-by-Step Guide to YouTube to IGTV Conversion for 2024</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-how-to-use-life360-on-windows-pc-for-vivo-t2x-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How to Use Life360 on Windows PC For Vivo T2x 5G? | Dr.fone</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/in-2024-top-5-techniques-for-storing-lol-battles/"><u>In 2024, Top 5 Techniques for Storing LOL Battles</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/naries-of-interactive-marvel-worlds/"><u>Visionaries of Interactive Marvel Worlds</u></a></li>
+<li><a href="https://win-able.techidaily.com/why-cant-i-play-diablo-immortal-on-my-computer-insights-and-expectations/"><u>Why Can't I Play Diablo Immortal on My Computer? Insights & Expectations</u></a></li>
 </ul></div>
 

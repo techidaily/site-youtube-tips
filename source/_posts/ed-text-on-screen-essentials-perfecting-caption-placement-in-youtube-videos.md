@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Text on Screen Essentials  Perfecting Caption Placement in YouTube Videos\""
-date: 2024-10-01T18:14:06.181Z
-updated: 2024-10-03T19:52:11.588Z
+date: 2024-10-05T16:13:22.959Z
+updated: 2024-10-09T16:02:53.961Z
 tags:
   - ai video
   - ai youtube
@@ -92,10 +92,16 @@ For professionals who are looking for a professional way to adding text to video
 * Save the text that you have made by clicking the file menu then choose Save As.
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137215/26400" target="_top" id="2137215">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137215" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137215/26400" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1982485">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982485.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982485">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982485.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982485%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982485/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### How to Add Text to video in YouTube after uploading
@@ -111,10 +117,10 @@ Of course, you can only add and edit texts and captions to the video under your 
 ![ Add Text to Video ](https://images.wondershare.com/filmora/article-images/add-text-youtube-video-editor.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148643/16836" target="_top" id="2148643">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148643" border="0" alt="https://techidaily.com" width="300" height="75"/>
+<a href="https://imp.i110150.net/c/5597632/798165/11305" target="_top" id="798165">
+  <img src="//a.impactradius-go.com/display-ad/11305-798165" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148643/16836" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://imp.i110150.net/i/5597632/798165/11305" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 While YouTube may have already created the subtitles automatically for your video with its speech recognition technology. If it does, you will see something like Published: English (Automatic) to the right of your video. If the automatically generated subtitles is not correct, you can edit it to improve the accuracy. Select the line that needs modification to make the edits.
@@ -124,10 +130,16 @@ If there is no auto-subtitles, you can choose from 3 ways to add subtitles and c
 ![ Add Text to Video ](https://images.wondershare.com/filmora/article-images/3-ways-to-add-youtube-subtitles.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2043617/7443" target="_top" id="2043617">
-  <img src="//a.impactradius-go.com/display-ad/7443-2043617" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043617/7443" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1983573">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983573.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983573">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983573.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983573%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983573/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 **Upload a file:** upload a text transcript or timed subtitles file.
@@ -145,13 +157,6 @@ If you already have a caption file which contains both text and time codes, just
 When you make use of this editor, you cannot shorten the clips for music. Moreover, since it is an online editor, you need to refresh the page in order to do the changes. Aside from YouTube Video Editor, you can use Adobe Premier Pro, MAGIX Vegas Pro, OpenShot and Avidemux.
 
 From 20th September 2017 users will no longer be able to use the complementary editing suite. Check the best [YouTube video editor alternatives](https://tools.techidaily.com/wondershare/filmora/download/) from this complete guide to find out more YouTube video editor alternatives if you want to add text to video with more features and customization.
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2148775/18498" target="_top" id="2148775">
-  <img src="//a.impactradius-go.com/display-ad/18498-2148775" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2148775/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Top 3 Tips for Adding Text to YouTube Videos
 
@@ -174,6 +179,19 @@ Text is a great tool for making something stand out. However, if you try to use 
 Try to use text to emphasize only the most important things you say.
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
+
+<!-- affiliate ads begin -->
+<span id="1993652">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1993652.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1993652">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993652.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993652%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993652/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
@@ -198,22 +216,19 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-tips.techidaily.com/n-2024-the-ultimate-guide-to-profiting-from-youtube-shorts-and-earning-potential/"><u>[New] In 2024, The Ultimate Guide to Profiting From Youtube Shorts & Earning Potential</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/erfect-end-screen-and-cards-strategies-for-yt/"><u>[New] Perfect End Screen & Cards Strategies for YT</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/remier-choices-8-linux-editing-tools-for-2024/"><u>[New] Premier Choices 8 Linux Editing Tools for 2024</u></a></li>
-<li><a href="https://tiktok-videos.techidaily.com/new-the-delicious-spotlight-on-tiktok-farewells/"><u>[New] The Delicious Spotlight on TikTok Farewells</u></a></li>
-<li><a href="https://some-skills.techidaily.com/new-top-16-strategies-for-archiving-online-tunes-and-talks/"><u>[New] Top 16 Strategies for Archiving Online Tunes and Talks</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ransforming-viewership-into-viewer-funds-on-youtube-for-2024/"><u>[New] Transforming Viewership Into Viewer Funds on YouTube for 2024</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/updated-in-2024-twitch-user-introduction-measurements-format-duration/"><u>[Updated] In 2024, Twitch User Introduction Measurements, Format, Duration</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-the-ultimate-guide-for-transforming-youtube-videos-into-animated-gifs-for-2024/"><u>[Updated] The Ultimate Guide for Transforming YouTube Videos Into Animated GIFs for 2024</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/approved-access-royalty-free-beats-for-your-vlog-and-more/"><u>2024 Approved Access Royalty-Free Beats for Your Vlog & More</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/approved-mastering-youtube-studio-ultimate-video-edits-techniques/"><u>2024 Approved Mastering YouTube Studio Ultimate Video Edits Techniques</u></a></li>
-<li><a href="https://howto.techidaily.com/7-solutions-to-fix-error-code-963-on-google-play-of-realme-gt-5-pro-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>7 Solutions to Fix Error Code 963 on Google Play Of Realme GT 5 Pro | Dr.fone</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/conversor-de-video-vob-para-mp3-livre-e-gratuito-no-movavi-guia-passo-a-passo/"><u>Conversor De Vídeo VOB Para MP3 Livre E Gratuito No Movavi - Guia Passo a Passo</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/deconstructing-the-viva-video-experience-for-2024/"><u>Deconstructing the Viva Video Experience for 2024</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-rescue-lost-call-logs-from-honor-magic-6-by-fonelab-android-recover-call-logs/"><u>How to rescue lost call logs from Honor Magic 6</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ntly-professional-masterful-thumbnails-created-fast/"><u>Instantly Professional Masterful Thumbnails Created Fast!</u></a></li>
-<li><a href="https://discord-videos.techidaily.com/step-by-step-guide-converting-wav-files-into-mp3-on-windows-11/"><u>Step-by-Step Guide: Converting WAV Files Into MP3 on Windows 11</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/obile-marketers-blueprint-simple-pathway-to-youtube-success-for-2024/"><u>The Mobile Marketer's Blueprint Simple Pathway to YouTube Success for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ollect-priceless-imagery-from-trusted-4-youtube-directories/"><u>[New] Collect Priceless Imagery From Trusted 4 YouTube Directories</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/he-monetary-scope-of-mr-beasts-ventures/"><u>[New] The Monetary Scope of Mr. Beast’s Ventures</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/he-ultimate-route-from-youtube-to-igtv-adoption-for-2024/"><u>[New] The Ultimate Route From YouTube to IGTV Adoption for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/outubes-landscape-decoded-creating-your-signature-style-and-voice-for-2024/"><u>[New] YouTube's Landscape Decoded Creating Your Signature Style and Voice for 2024</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-in-2024-visual-comedy-make-and-share-via-kapwing/"><u>[Updated] In 2024, Visual Comedy Make and Share via Kapwing</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-leading-5-audio-caps-for-streaming-enthusiasts/"><u>[Updated] Leading 5 Audio Caps for Streaming Enthusiasts</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-strategies-for-full-time-workers-who-create-videos-for-2024/"><u>[Updated] Strategies for Full-Time Workers Who Create Videos for 2024</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/updated-transforming-audio-skills-using-audacity-professionally/"><u>[Updated] Transforming Audio Skills Using Audacity Professionally</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/first-steps-with-langchain-llm-your-ultimate-introductory-manual/"><u>First Steps with LangChain LLM: Your Ultimate Introductory Manual</u></a></li>
+<li><a href="https://video-capture.techidaily.com/get-your-free-avid-dnxhd-encoder-now-supports-windows-11-10-and-mac-computers/"><u>Get Your Free Avid DNxHD Encoder Now! Supports Windows 11, 10, and Mac Computers</u></a></li>
+<li><a href="https://extra-support.techidaily.com/in-2024-revolutionary-approaches-for-rapid-srt-to-text-switch/"><u>In 2024, Revolutionary Approaches for Rapid SRT to Text Switch</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/the-art-of-hidden-conversations-on-chatgpt-no-deletion-required/"><u>The Art of Hidden Conversations on ChatGPT: No Deletion Required</u></a></li>
+<li><a href="https://techtrends.techidaily.com/troubleshooting-the-missing-system-files-fix-procpsdll-errors-today/"><u>Troubleshooting the 'Missing System Files': Fix Procps.dll Errors Today</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ling-the-mysteries-of-video-monetization-for-2024/"><u>Unveiling the Mysteries of Video Monetization for 2024</u></a></li>
 </ul></div>
 

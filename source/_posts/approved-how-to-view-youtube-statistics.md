@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  How to View YouTube Statistics\""
-date: 2024-09-26T23:36:07.047Z
-updated: 2024-10-03T23:09:19.468Z
+date: 2024-10-04T18:03:03.661Z
+updated: 2024-10-09T16:50:32.878Z
 tags:
   - ai video
   - ai youtube
@@ -49,10 +49,10 @@ As one of the best video editing software for YouTube, [Filmora](https://tools.t
 [![Get free YouTube Subscribers Guide Banner](https://images.wondershare.com/filmora/article-images/get-free-youtube-subs-banner.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2123511/26400" target="_top" id="2123511">
-  <img src="//a.impactradius-go.com/display-ad/26400-2123511" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2134227/18498" target="_top" id="2134227">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134227" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2123511/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134227/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## How to View Your YouTube Statistics
@@ -64,10 +64,16 @@ In order to check which of your videos are performing the best, click on **Watch
 The two main types of analytics reports are Watch Time Reports and Interaction Reports.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2044582/7443" target="_top" id="2044582">
-  <img src="//a.impactradius-go.com/display-ad/7443-2044582" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2044582/7443" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1498635">
+					<video width="320" height="320" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1498635.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/17326-1498635">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1498635.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:200px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fancheer.sjv.io%2Fc%2F5597632%2F1498635%2F17326'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1498635/17326" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 1. Interpreting YouTube Watch Time Reports
@@ -85,10 +91,10 @@ In the watch time reports for individual videos, you will be able to see data on
 Click here for more tips on[increasing your views](https://www.filmora.io/community-blog/12-proven-ways-to-increase-youtube-views-315.html).
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1975802/19272" target="_top" id="1975802">
-  <img src="//a.impactradius-go.com/display-ad/19272-1975802" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136614/26400" target="_top" id="2136614">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136614" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1975802/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136614/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 2. Interpreting YouTube Interaction Reports
@@ -115,13 +121,6 @@ Interaction reports can be broken down into several different reports that can h
 
 **7\. 360 heat map reports:** A heat map report works specifically with 360° videos if you are choosing to engage your audience with this type of content. Viewing YouTube video statistics for 360° heat maps will help to show the areas on your video that viewers are most interested in.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151859/7443" target="_top" id="2151859">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151859" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151859/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## How to View Other Peoples YouTube Statistics
 
 If you want to check out the statistics of rival YouTube channels ([including the most subscribed channels on YouTube](https://www.filmora.io/community-blog/youtube-subscriber-chart---the-5-most-subscribed-youtube-channels-320.html)), or channels you’re a fan of, try using [Social Blade](http://www.socialblade.com). Social Blade is one of the most trusted sources of YouTube data, and it may actually be easier to check your own basic stats there than in the Creator Studio sometimes due to their simple layout. To get started all you need to do is type the name of any YouTube channel into the search bar. You’ll be able to see reports on daily views, channel growth, and even estimated ad revenue ([learn more about how to view a channel's ad revenue here](https://www.filmora.io/community-blog/youtube-view-calculators---calculate-youtube-money%21-322.html)).
@@ -129,6 +128,13 @@ If you want to check out the statistics of rival YouTube channels ([including th
 Now that you know how to view YouTube statistics, what will you do with them?
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2075483/7443" target="_top" id="2075483">
+  <img src="//a.impactradius-go.com/display-ad/7443-2075483" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075483/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -151,24 +157,16 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://extra-lessons.techidaily.com/new-concealment-secrets-in-photoshop-master-class/"><u>[New] Concealment Secrets in Photoshop Master Class</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/new-from-concept-to-platform-crafting-engaging-fb-content-for-2024/"><u>[New] From Concept to Platform Crafting Engaging FB Content for 2024</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/n-2024-complete-blueprint-for-tracking-yt-viewsrevenue/"><u>[New] In 2024, Complete Blueprint for Tracking YT Views/Revenue</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/new-in-2024-mastering-googles-podcast-publishing-process/"><u>[New] In 2024, Mastering Google's Podcast Publishing Process</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/n-2024-the-ultimate-checklist-for-confirming-yt-account/"><u>[New] In 2024, The Ultimate Checklist for Confirming YT Account</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-10-leading-flv-to-youtube-video-converters/"><u>[Updated] 10 Leading FLV to YouTube Video Converters</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-2024-approved-toddler-tycoon-ryan-kaji-and-the-wealthy-web-world/"><u>[Updated] 2024 Approved Toddler Tycoon Ryan Kaji and the Wealthy Web World</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-harnessing-success-with-freefire-hashtag-tips/"><u>[Updated] Harnessing Success with FreeFire Hashtag Tips</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/approved-rapidly-enhance-your-content-reach-with-simple-steps/"><u>2024 Approved Rapidly Enhance Your Content Reach with Simple Steps</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/philes-guide-techniques-to-elevate-sound-recording-for-2024/"><u>Audiophile's Guide Techniques to Elevate Sound Recording for 2024</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/discovering-photoscape-software-potential-an-expert-evaluation-of-free-visual-creativity-tools/"><u>Discovering PhotoScape Software Potential: An Expert Evaluation of Free Visual Creativity Tools</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/excel-file-recovery-recover-corrupt-excel-2010-files-easily-by-stellar-guide/"><u>Excel File Recovery – Recover Corrupt Excel 2010 Files Easily</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/templates-for-dynamic-youtube-channel-closures-for-2024/"><u>Free Templates for Dynamic YouTube Channel Closures for 2024</u></a></li>
-<li><a href="https://howto.techidaily.com/full-guide-how-to-fix-connection-is-not-private-on-zte-nubia-flip-5g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Full Guide How To Fix Connection Is Not Private on ZTE Nubia Flip 5G | Dr.fone</u></a></li>
-<li><a href="https://techidaily.com/hard-resetting-an-infinix-hot-30-5g-device-made-easy-drfone-by-drfone-reset-android-reset-android/"><u>Hard Resetting an Infinix Hot 30 5G Device Made Easy | Dr.fone</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/illustration-revolution-adding-depth-to-text-with-3d-for-2024/"><u>Illustration Revolution Adding Depth to Text with 3D for 2024</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/in-2024-versions-of-windows-movie-maker/"><u>In 2024, Versions of Windows Movie Maker</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ating-youtube-skip-the-top-8-novice-missteps-for-2024/"><u>Navigating YouTube Skip the Top 8 Novice Missteps for 2024</u></a></li>
-<li><a href="https://video-content-creator.techidaily.com/powerdirector-alternatives-for-mobile-top-rated-video-editors-for-2024/"><u>PowerDirector Alternatives for Mobile Top-Rated Video Editors for 2024</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/new-in-2024-excellent-low-cost-webcam-snipper-app/"><u>[New] In 2024, Excellent Low-Cost Webcam Snipper App</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-2024-approved-thriving-financially-with-youtube-advertising-techniques/"><u>[Updated] 2024 Approved Thriving Financially with YouTube Advertising Techniques</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-the-ultimate-beginners-guide-to-creating-engaging-short-form-videos-for-2024/"><u>[Updated] The Ultimate Beginner's Guide to Creating Engaging Short-Form Videos for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-the-ultimate-gathering-of-heartfelt-weddings-youtube-and-vimeo-edition-for-2024/"><u>[Updated] The Ultimate Gathering of Heartfelt Weddings - Youtube & Vimeo Edition for 2024</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/2024-approved-choose-your-perfect-wedding-tales-youtubes-finest-8/"><u>2024 Approved Choose Your Perfect Wedding Tales - Youtube's Finest 8</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/2024-approved-youtube-in-the-classroom-best-practices-and-tips-for-educators/"><u>2024 Approved YouTube in the Classroom Best Practices and Tips for Educators</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/1722964573095-get-the-latest-fix-for-wireless-1535-drivers-download-solutions-here/"><u>Get the Latest Fix for Wireless 1535 Drivers – Download Solutions Here</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/how-to-use-pokemon-go-joystick-on-nokia-g310-drfone-by-drfone-virtual-android/"><u>How to use Pokemon Go Joystick on Nokia G310? | Dr.fone</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-how-to-spy-on-text-messages-from-computer-and-realme-narzo-60x-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How to Spy on Text Messages from Computer & Realme Narzo 60x 5G | Dr.fone</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/24-verifying-video-view-profits-for-streamers/"><u>In 2024, Verifying Video View Profits for Streamers</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ey-to-connecting-your-youtube-channel-with-a-facebook-page-for-2024/"><u>The Key to Connecting Your YouTube Channel with a Facebook Page for 2024</u></a></li>
 </ul></div>
 

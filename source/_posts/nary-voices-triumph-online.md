@@ -1,7 +1,7 @@
 ---
 title: "Visionary Voices Triumph Online"
-date: 2024-09-26T16:45:28.868Z
-updated: 2024-10-04T01:39:48.606Z
+date: 2024-10-06T18:10:14.235Z
+updated: 2024-10-09T16:20:50.477Z
 tags:
   - ai video
   - ai youtube
@@ -67,13 +67,6 @@ The most common videos on Felix's channel are gaming videos in which he comments
 
 ![HolaSoyGerman](https://images.wondershare.com/filmora/article-images/hola-soy-german.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137201/26400" target="_top" id="2137201">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137201" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137201/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 At the age of 27, Germán Alejandro Garmendia Aranis is the owner of the second most subscribed channel on YouTube with more than 32 million subscribers. Furthermore, HolaSoyGerman’s channel is the most subscribed Spanish-speaking channel today. Germán's second YouTube channel JuegaGerman has made him the only YouTuber ever to receive two diamond play buttons for having over 40 million subscribers on his two channels.
 
 The Chilean YouTube superstar uploaded his first YouTube video in 2011 and by October 2012 his channel has reached 1 million subscribers. Recently, German has lent his voice to a character in the Spanish version of Ice Age: Collision Course. He finds inspiration for his comic YouTube videos in everyday life and topics like ex-girlfriends, school, and phobias are frequently covered in videos published on the HolaSoyGerman channel. In 2014 and 2015 German won the 'Icon of the Year' prize from MTV Millennial Awards.
@@ -82,26 +75,40 @@ The Chilean YouTube superstar uploaded his first YouTube video in 2011 and by Oc
 
 ![ElrubiusOMG](https://images.wondershare.com/filmora/article-images/elrubius-omg.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144289/7443" target="_top" id="2144289">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144289" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144289/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 More than 25 million subscribers who follow this gaming commentator. The El Rubius OMG channel was created by Rubén Doblas Gundersen in December 2011 and by February 2013 it reached 1 million subscribers. However, Rubén has been producing videos for his Elrubius channel since 2006\. He simply became more dedicated to the frequent production of YouTube videos in 2011\. Even though the videos featured on the El Rubius OMG channel mostly cover video games, Rubén also produces comedy videos, vlogs, and other interesting and amusing content.
 
 Based in Madrid, El Rubius OMG first became popular in Spanish-speaking countries, and as his fame increased he gained recognition throughout the world. During 2012 his channel became the most subscribed Spanish speaking channel, and on April 21, 2016, El Rubius received the 'YouTuber of the Year' award during the 1st Play Awards celebration in Palma De Mallorca. In addition to being one of the most popular YouTubers of all time, Rubén is also a published author whose first book 'The Troll Book' was the bestselling book in Spain for 8 weeks.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1886015/19272" target="_top" id="1886015">
+  <img src="//a.impactradius-go.com/display-ad/19272-1886015" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886015/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ###  4\.  Smosh
 
 ![Smosh](https://images.wondershare.com/filmora/article-images/smosh.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1972670/19272" target="_top" id="1972670">
+  <img src="//a.impactradius-go.com/display-ad/19272-1972670" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1972670/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Originally, Smosh was a channel run by sketch comedy duo Ian Andrew Hecox and Anthony Padilla. They started the Smosh YouTube channel in 2005 and since then they have grown their team to include more creators, and their content to include animation and gaming. Smosh has become much more than two funny guys on YouTube – it is a wildly successful content company.
 
 Most channels that have one viral video do not go on to have sustained success on YouTube, but Smosh is an exception to this rule. Their ‘Pokemon Theme Music Video’, released in 2005, became the most viewed video of all time (as of that year). This video kick-started the growth of their channel.
 
 In 2017, Anthony Padilla chose to leave Smosh to focus on his own solo YouTube channel.
-
-<!-- affiliate ads begin -->
-<a href="https://imp.i110150.net/c/5597632/924297/11305" target="_top" id="924297">
-  <img src="//a.impactradius-go.com/display-ad/11305-924297" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://imp.i110150.net/i/5597632/924297/11305" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 5\.  Fernanfloo
 
@@ -115,22 +122,21 @@ At the end of 2015, Alvarado launched the Fenanfloo mobile app that had 2.3 mill
 
 Looking for a live [YouTube subscriber chart](https://tools.techidaily.com/wondershare/filmora/download/)?
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1902304/19272" target="_top" id="1902304">
-  <img src="//a.impactradius-go.com/display-ad/19272-1902304" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902304/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Edit YouTube Videos with Full-Featured Video Editing Software
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2094477/7443" target="_top" id="2094477">
-  <img src="//a.impactradius-go.com/display-ad/7443-2094477" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094477/7443" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1982570">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982570.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982570">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982570.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982570%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982570/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
@@ -156,20 +162,24 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-tips.techidaily.com/024-approved-picturecut-pro/"><u>[New] 2024 Approved PictureCut Pro</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/obile-mastery-youtube-video-thumbnails-made-easy/"><u>[New] Mobile Mastery YouTube Video Thumbnails Made Easy</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/updated-2024-approved-gold-class-8-unseen-media-extractors/"><u>[Updated] 2024 Approved Gold-Class 8 Unseen Media Extractors</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/updated-androids-finest-screen-capture-software-top-5/"><u>[Updated] Android's Finest Screen Capture Software, Top 5</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-in-2024-mastering-yt-analytics-counting-eyeballs-and-cash/"><u>[Updated] In 2024, Mastering YT Analytics Counting Eyeballs & Cash</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-in-2024-the-ultimate-strategy-for-developing-and-managing-youtube-collaborations/"><u>[Updated] In 2024, The Ultimate Strategy for Developing & Managing YouTube Collaborations</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-streamlining-youtube-videos-adding-subtitles-and-cc-proficiently/"><u>[Updated] Streamlining YouTube Videos Adding Subtitles & CC Proficiently</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/approved-unleash-the-full-potential-of-youtube-with-variable-playback-rates/"><u>2024 Approved Unleash the Full Potential of YouTube With Variable Playback Rates</u></a></li>
-<li><a href="https://bypass-frp.techidaily.com/how-to-bypass-google-frp-lock-on-xiaomi-redmi-note-13-pro-5g-devices-by-drfone-android/"><u>How to Bypass Google FRP Lock on Xiaomi Redmi Note 13 Pro 5G Devices</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/24-from-hidden-channels-to-the-throne-of-1k-subscribers/"><u>In 2024, From Hidden Channels to the Throne of 1K Subscribers</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/intels-latest-stability-updates-released-for-msi-and-asrock-with-asus-rog-motherboards-eligible-for-pre-release-version/"><u>Intel's Latest Stability Updates Released for MSI & ASRock, With Asus ROG Motherboards Eligible for Pre-Release Version</u></a></li>
-<li><a href="https://techtrends.techidaily.com/resolving-elevated-processor-load-by-windows-modules-installation-in-win10/"><u>Resolving Elevated Processor Load by Windows Modules Installation in Win10</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/square-up-your-windows-interface/"><u>Square Up Your Windows Interface</u></a></li>
-<li><a href="https://media-tips.techidaily.com/step-by-step-guide-saving-youtuber-content-for-offline-viewing-on-ios-and-android-devices/"><u>Step-by-Step Guide: Saving YouTuber Content for Offline Viewing on iOS and Android Devices.</u></a></li>
-<li><a href="https://ai-live-streaming.techidaily.com/updated-in-2024-free-tv-streaming-9-sites-you-need-to-know/"><u>Updated In 2024, Free TV Streaming 9 Sites You Need To Know</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/idden-gems-on-youtube-understanding-unlisted-videos/"><u>[New] Hidden Gems on YouTube Understanding 'Unlisted' Videos</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-epic-audio-essentials-top-10-for-trending-yt-shorts/"><u>[New] In 2024, Epic Audio Essentials Top 10 for Trending YT Shorts</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-the-monetary-scope-of-mr-beasts-ventures/"><u>[New] In 2024, The Monetary Scope of Mr. Beast’s Ventures</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/erfect-audio-gear-for-streamers-for-2024/"><u>[New] Perfect Audio Gear for Streamers for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-2024-approved-create-a-standout-presence-with-youtube-custom-imagery/"><u>[Updated] 2024 Approved Create a Standout Presence with YouTube Custom Imagery</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/updated-crafting-captivating-content-with-screencast-tactics-for-2024/"><u>[Updated] Crafting Captivating Content with Screencast Tactics for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-in-2024-unleash-your-brands-potential-with-expert-naming-guide/"><u>[Updated] In 2024, Unleash Your Brand's Potential with Expert Naming Guide</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-quantifiable-quirks-yearly-graphed-tidbits-from-yt-2017-for-2024/"><u>[Updated] Quantifiable Quirks Yearly Graphed Tidbits From YT (2017) for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-social-stream-wars-fb-live-vs-yt-live-and-tweetstreams-for-2024/"><u>[Updated] Social Stream Wars FB LIVE Vs. YT Live & TweetStreams for 2024</u></a></li>
+<li><a href="https://video-capture.techidaily.com/dvd-rompc/"><u>DVD-ROMのコピープロテクトを解除し、PCへ移動するスッキリとした手順</u></a></li>
+<li><a href="https://win-answers.techidaily.com/efficient-and-speedy-techniques-for-cropping-videos/"><u>Efficient & Speedy Techniques for Cropping Videos</u></a></li>
+<li><a href="https://ios-location-track.techidaily.com/how-the-amazon-kindle-paperwhite-2-nd-gen-2018-elevates-your-reading-habit-an-in-depth-review/"><u>How the Amazon Kindle Paperwhite (2 Nd Gen, 2018) Elevates Your Reading Habit: An In-Depth Review</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-repair-corrupt-mp4-and-avi-files-of-redmi-12-5g-with-video-repair-utility-on-mac-by-stellar-video-repair-mobile-video-repair/"><u>How to Repair corrupt MP4 and AVI files of Redmi 12 5G with Video Repair Utility on Mac?</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-3-methods-to-mirror-samsung-galaxy-s24plus-to-roku-drfone-by-drfone-android/"><u>In 2024, 3 Methods to Mirror Samsung Galaxy S24+ to Roku | Dr.fone</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-top-15-augmented-reality-games-like-pokemon-go-to-play-on-xiaomi-redmi-note-12t-pro-drfone-by-drfone-virtual-android/"><u>In 2024, Top 15 Augmented Reality Games Like Pokémon GO To Play On Xiaomi Redmi Note 12T Pro | Dr.fone</u></a></li>
+<li><a href="https://fox-access.techidaily.com/mastering-the-art-of-choosing-and-crafting-whatsapp-alerts-for-2024/"><u>Mastering the Art of Choosing & Crafting WhatsApp Alerts for 2024</u></a></li>
+<li><a href="https://review-topics.techidaily.com/remove-frp-lock-on-infinix-hot-40i-by-drfone-android-unlock-remove-google-frp/"><u>Remove FRP Lock on Infinix Hot 40i</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/king-youtubes-monetization-potential/"><u>Unlocking YouTube's Monetization Potential</u></a></li>
+<li><a href="https://change-location.techidaily.com/why-does-the-pokemon-go-battle-league-not-available-on-samsung-galaxy-a34-5g-drfone-by-drfone-virtual-android/"><u>Why does the pokemon go battle league not available On Samsung Galaxy A34 5G | Dr.fone</u></a></li>
 </ul></div>
 

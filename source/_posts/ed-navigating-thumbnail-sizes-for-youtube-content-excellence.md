@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Navigating Thumbnail Sizes for YouTube Content Excellence"
-date: 2024-09-15T22:56:49.075Z
-updated: 2024-09-21T16:50:55.795Z
+date: 2024-10-06T17:59:46.252Z
+updated: 2024-10-09T16:56:56.024Z
 tags:
   - ai video
   - ai youtube
@@ -57,6 +57,13 @@ The maximum YouTube thumbnail size must be below 2MB. Keeping the limit in mind 
 
 Usually, the 16:9 ratio is deemed an ideal choice for any YouTube video aiming high view volume. As it is most widely used in YouTube players and previews.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2080342/19272" target="_top" id="2080342">
+  <img src="//a.impactradius-go.com/display-ad/19272-2080342" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2080342/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 2: Upload and Change a Custom YouTube Thumbnail
 
 With a verified account, you can upload custom thumbnail on new videos as well as change the thumbnail of uploaded videos.
@@ -78,6 +85,13 @@ YouTube makes it very simple and easy for any content creator to publish custom 
 
 ![custom thumbnail size](https://images.wondershare.com/filmora/article-images/custom-thumbnail3.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2148774/18498" target="_top" id="2148774">
+  <img src="//a.impactradius-go.com/display-ad/18498-2148774" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2148774/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 * If you want to update the image or change it with another one you can just click on the same image in the video thumbnail section and swap it with any other image.
 
 ![youtube thumbnail size](https://images.wondershare.com/filmora/article-images/swap-thumbnail4.jpg)
@@ -91,6 +105,13 @@ To change the thumbnail on an already uploaded video you need to follow these st
 
 ![upload thumbnail image](https://images.wondershare.com/filmora/article-images/change-thumbnail5.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2049383/7443" target="_top" id="2049383">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049383" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049383/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 * Now in the thumbnail section if you already haven’t uploaded a custom thumbnail, click **Custom thumbnail**.
 * Select your intended thumbnail file and click **Save**.
 
@@ -103,13 +124,6 @@ You may want to know:
 * [**Question 1:** **How do I make my youtube thumbnail less than 2mb?**](#question1)
 * [**Question 2:** **How can I create an attractive youtube thumbnail?**](#question2)
 
-<!-- affiliate ads begin -->
-<a href="https://bluettieu.pxf.io/c/5597632/2141676/17091" target="_top" id="2141676">
-  <img src="//a.impactradius-go.com/display-ad/17091-2141676" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettieu.pxf.io/i/5597632/2141676/17091" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 1\. How do I make my youtube thumbnail less than 2mb?
 
 YouTube will not allow you to upload a custom thumbnail image if it is bigger than the 2MB limit. So, you need to make sure the file size is below the limit to be able to successfully upload a custom thumbnail. To reduce the image size you can follow the steps below:
@@ -118,6 +132,13 @@ YouTube will not allow you to upload a custom thumbnail image if it is bigger th
 * 2\. Now go to the File menu and click **Save as** then select JPEG picture
 * 3\. Select the location you want the file to be saved to
 * 4\. The thumbnail picture will be reduced to Kilobytes only while maintaining the image quality
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2043593/7443" target="_top" id="2043593">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043593" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043593/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 2\. How can I create an attractive youtube thumbnail?
 
@@ -143,18 +164,18 @@ With Canva you can make a distinct and stand-out YouTube thumbnail image. Canva 
 
 To download the image without the watermark you’ll need to sign-up for a premium account on the Canva.
 
-<!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2014848/22899" target="_top" id="2014848">
-  <img src="//a.impactradius-go.com/display-ad/22899-2014848" border="0" alt="https://techidaily.com" width="320" height="90"/>
-</a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014848/22899" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **To sum up**
 
 YouTube thumbnail plays an important part for the audience's first impression on your video. And it is of essential essence as it can attract more viewers to your content. So you should get the right **youtube thumbnail size** before you start customing your thumbnail. We’ve gone through all the detailed requirements of **youtube thumbnail size** and how to make the best thumbnail by using the best software solutions. Please leave your comments below if any suggestions. We'd love to hear them!
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082520/7443" target="_top" id="2082520">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082520" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082520/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -175,5 +196,20 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-unveiling-the-art-of-valorant-thumbnail-creation-on-youtube/"><u>[New] In 2024, Unveiling the Art of Valorant Thumbnail Creation on YouTube</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/new-strategies-for-securing-product-sponsors-on-youtube/"><u>[New] Strategies for Securing Product Sponsors on YouTube</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/updated-keeping-memories-above-ground-selecting-the-best-cloud-storage/"><u>[Updated] Keeping Memories Above Ground Selecting the Best Cloud Storage</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/approved-experts-choice-11-premium-video-extractors/"><u>2024 Approved Expert's Choice 11 Premium Video Extractors</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/2024-approved-interactive-media-adding-audio-to-visual-narratives/"><u>2024 Approved Interactive Media Adding Audio to Visual Narratives</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/approved-watch-without-limits-15plus-free-apps-to-save-your-favorite-content/"><u>2024 Approved Watch Without Limits 15+ Free Apps to Save Your Favorite Content</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-how-to-change-sony-xperia-5-v-lock-screen-password-by-drfone-android/"><u>In 2024, How To Change Sony Xperia 5 V Lock Screen Password?</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/in-depth-analysis-of-vyncs-link-a-dependable-counter-with-complex-tiers/"><u>In-Depth Analysis of Vyncs Link: A Dependable Counter with Complex Tiers</u></a></li>
+<li><a href="https://ai-vdieo-software.techidaily.com/new-best-of-the-best-highlight-video-makers-for-every-platform/"><u>New Best of the Best Highlight Video Makers for Every Platform</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/preparation-to-beat-giovani-in-pokemon-go-for-asus-rog-phone-8-pro-drfone-by-drfone-virtual-android/"><u>Preparation to Beat Giovani in Pokemon Go For Asus ROG Phone 8 Pro | Dr.fone</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/understanding-the-prohibition-what-prevents-drones-from-flying-in-americas-natural-reserves/"><u>Understanding the Prohibition: What Prevents Drones From Flying in America's Natural Reserves?</u></a></li>
+<li><a href="https://ai-video-tools.techidaily.com/updated-2024-approved-the-great-video-editing-debate-sony-vegas-vs-adobe-premiere-pro/"><u>Updated 2024 Approved The Great Video Editing Debate Sony Vegas vs Adobe Premiere Pro</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/bes-mini-millionaire-how-a-kid-earned-big-bucks-daily/"><u>YouTube's Mini Millionaire How a Kid Earned Big Bucks Daily</u></a></li>
+</ul></div>
 

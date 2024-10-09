@@ -1,7 +1,7 @@
 ---
 title: "[Updated] The Fundamentals of Crafting YouTube Videos From Scratch for 2024"
-date: 2024-09-19T07:24:55.687Z
-updated: 2024-09-22T07:46:57.677Z
+date: 2024-10-03T17:13:20.341Z
+updated: 2024-10-09T17:51:31.744Z
 tags:
   - ai video
   - ai youtube
@@ -53,15 +53,22 @@ Before you write the script, it’s a good idea to gather ideas. If you think of
 Once you have gathered enough ideas for the YouTube video, the next step is to find a place where you can write in peace and be inspired. Avoid any distractions to ensure that you will be able to put all your thoughts and ideas onto paper.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1948881/19272" target="_top" id="1948881">
-  <img src="//a.impactradius-go.com/display-ad/19272-1948881" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2075482/7443" target="_top" id="2075482">
+  <img src="//a.impactradius-go.com/display-ad/7443-2075482" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948881/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075482/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Writing a Script for a YouTube Video
 
 Now that you're ready to sit down and write, here's what you do:
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1997657/19272" target="_top" id="1997657">
+  <img src="//a.impactradius-go.com/display-ad/19272-1997657" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997657/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 1\. Create an outline for your story
 
@@ -70,6 +77,13 @@ The first step in writing a script is to develop an outline for the story. You m
 ### 2\. Set the tone
 
 The tone you pick for the video will depend on your audience. It’s safe to assume that viewers want something that’s unique, informative, and engaging. In some cases, they look for a video that’s personal, and they can relate to it. Humor is also something that you should consider when writing a script.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2044586/7443" target="_top" id="2044586">
+  <img src="//a.impactradius-go.com/display-ad/7443-2044586" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2044586/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 3\. Just keep writing
 
@@ -103,13 +117,6 @@ After writing the script, the next step is to invite a trusted friend or family 
 
 These are the tips to keep in mind when considering how to write a script for a YouTube video.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1959707/19272" target="_top" id="1959707">
-  <img src="//a.impactradius-go.com/display-ad/19272-1959707" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1959707/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Add Subtitles to Your YouTube Video with Wondershare Filmora
 
 Creating subtitles with Wondershare Filmora is very easy and a newbie can easily add relevant texts to the video they are trying to edit with Filmora. You just simply need to launch Wondershare Filmora and import the video that you want to edit. Now, go to the Titles tab and select the template that you want to pick and drag it on the timeline and click Apply. This way you can easily start adding texts and titles to your videos and let the alphabets narrate your story.
@@ -119,10 +126,16 @@ Creating subtitles with Wondershare Filmora is very easy and a newbie can easily
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1880927/19272" target="_top" id="1880927">
-  <img src="//a.impactradius-go.com/display-ad/19272-1880927" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880927/19272" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1444782">
+					<video width="1024" height="576" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1444782.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/14559-1444782">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1444782.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:640px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fpropmoneyinc.pxf.io%2Fc%2F5597632%2F1444782%2F14559'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1444782/14559" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -144,5 +157,21 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-the-investors-handbook-for-monetized-youtubers/"><u>[New] In 2024, The Investor's Handbook for Monetized Youtubers</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/updated-2024-approved-creating-immersive-video-games-experiences-on-steam/"><u>[Updated] 2024 Approved Creating Immersive Video Games Experiences on Steam</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-2024-approved-prime-opening-strategies-top-16-youtube-vids-that-thrive/"><u>[Updated] 2024 Approved Prime Opening Strategies Top 16 YouTube Vids That Thrive</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/updated-breakthrough-strategies-for-youtube-short-problem-solving/"><u>[Updated] Breakthrough Strategies for YouTube Short Problem-Solving</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-in-2024-the-travelers-guide-transforming-journeys-into-shareable-content/"><u>[Updated] In 2024, The Traveler’s Guide Transforming Journeys Into Shareable Content</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-silencing-distractions-enhancing-youtube-videos/"><u>[Updated] Silencing Distractions Enhancing YouTube Videos</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/approved-harnessing-the-power-of-filmora-for-youtube-video-promotions/"><u>2024 Approved Harnessing the Power of Filmora for YouTube Video Promotions</u></a></li>
+<li><a href="https://some-skills.techidaily.com/2024-approved-unlock-the-potential-of-hd-videos-on-android-devices/"><u>2024 Approved Unlock the Potential of HD Videos on Android Devices</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/comprehensible-guide-quick-fix-for-active-directory-domain-services-printer-errors/"><u>Comprehensible Guide: Quick Fix for Active Directory Domain Services Printer Errors</u></a></li>
+<li><a href="https://win-dash.techidaily.com/free-techkey-bluetooth-dongle-driver-software-for-windows-11-7-and-8/"><u>Free Techkey Bluetooth Dongle Driver Software for Windows 11, 7 & 8</u></a></li>
+<li><a href="https://review-topics.techidaily.com/how-to-unlock-redmi-a2plus-without-password-by-drfone-android-unlock-android-unlock/"><u>How to Unlock Redmi A2+ Without Password?</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/24-the-right-tools-for-your-youtube-journey-camera-lenses-explained/"><u>In 2024, The Right Tools For Your YouTube Journey - Camera Lenses Explained</u></a></li>
+<li><a href="https://win-dash.techidaily.com/step-by-step-guide-set-up-logitech-hd-webcam-c270-with-compatible-drivers-on-windows-1011-systems/"><u>Step-by-Step Guide: Set Up Logitech HD Webcam C270 with Compatible Drivers on Windows 10/11 Systems</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/upgrade-to-the-newest-nvidia-geforce-gtx-980-ti-drivers-download-today/"><u>Upgrade to the Newest Nvidia GEFORCE GTX 980 Ti Drivers - Download Today</u></a></li>
+</ul></div>
 

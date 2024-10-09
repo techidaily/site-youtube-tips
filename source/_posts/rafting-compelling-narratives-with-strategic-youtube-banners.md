@@ -1,7 +1,7 @@
 ---
 title: "[New] Crafting Compelling Narratives with Strategic YouTube Banners"
-date: 2024-09-17T05:48:58.235Z
-updated: 2024-09-22T01:51:19.871Z
+date: 2024-10-06T16:28:33.365Z
+updated: 2024-10-09T16:49:36.219Z
 tags:
   - ai video
   - ai youtube
@@ -63,6 +63,13 @@ Here's a visual guide to channel art dimensions:
 
 Another important detail to consider is the size of your file. YouTube will allow your channel art to have a file size of up to 6MB, but no larger.
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134239/18498" target="_top" id="2134239">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134239" border="0" alt="https://techidaily.com" width="721" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134239/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Free YouTube Banner Templates and Other Resources**
 
 There are a lot of free resources online, which can make the process of designing your channel art simple, including [templates](#templates), [stock images](#photos), [backgrounds](#patterns), and [fonts](#fonts).
@@ -102,6 +109,13 @@ We recommend these two sites for anybody who finds copyright rules confusing bec
 [**Unsplash:**](https://unsplash.com/) This site has a huge selection, and more photos are being added all the time. Finding what you want is as easy as typing a keyword (i.e., 'sunset') into the search bar on the home page.
 
 ![free-youtube-banner-pexels](https://images.wondershare.com/filmora/free-youtube-banner-pexels.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1896532/19272" target="_top" id="1896532">
+  <img src="//a.impactradius-go.com/display-ad/19272-1896532" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896532/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 [**Pexels:**](https://www.pexels.com/) you can find a wide variety of images on Pexels just by using the search bar on the main page, much like Unsplash. There is actually some overlap in the images available on the two sites, but they also each have photos the other doesn't, so it's worth looking at both.
 
@@ -184,16 +198,10 @@ You can upload your own images to use in Fotor as well.
 A major **benefit** of Fotor is that it has a lot of genuinely free channel art templates you can customize, and one **drawback** is that it doesn't have as many stock photos.
 
 <!-- affiliate ads begin -->
-<span id="1983472">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983472.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983472">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983472.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983472%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983472/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/1938750/19272" target="_top" id="1938750">
+  <img src="//a.impactradius-go.com/display-ad/19272-1938750" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938750/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **How to Make Good Channel Art**
@@ -277,10 +285,16 @@ _"Two videos every week! Makeup Mondays and Fashion Fridays"_
 If you can create channel art that has a layout that makes sense and sends a clear message even at a glance, then that will help you look like a more experienced YouTuber.
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2148772/18498" target="_top" id="2148772">
-  <img src="//a.impactradius-go.com/display-ad/18498-2148772" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2148772/18498" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1304647">
+					<video width="240" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1304647.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/15852-1304647">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1304647.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1304647%2F15852'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1304647/15852" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Channel Art Inspiration**
@@ -293,6 +307,13 @@ However, for lots of YouTube niches, the channel art you make will be built arou
 
 ![text-and-logo-minimalism](https://images.wondershare.com/filmora/text-and-logo-minimalism.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2148639/16836" target="_top" id="2148639">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148639" border="0" alt="https://techidaily.com" width="180" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148639/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 This is an example of a minimalist YouTube banner. This style typically uses only 2 or 3 colors and features clean lines, simple backgrounds, and not a lot of noise. If you want to project a calm, tidy, balanced vibe on your channel, then you should consider going in a minimalist direction with your banner.
 
 This example is light and airy, but you can also create a minimalist look using brighter or darker colors. It just depends on your personality.
@@ -302,10 +323,16 @@ This example is light and airy, but you can also create a minimalist look using 
 ![text-and-logo-galaxy-themed](https://images.wondershare.com/filmora/text-and-logo-galaxy-themed.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082536/7443" target="_top" id="2082536">
-  <img src="//a.impactradius-go.com/display-ad/7443-2082536" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082536/7443" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1492813">
+					<video width="1024" height="576" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1492813.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/14559-1492813">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1492813.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:640px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fpropmoneyinc.pxf.io%2Fc%2F5597632%2F1492813%2F14559'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1492813/14559" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Galaxy banners are exactly what they sound like: channel art featuring space scenes or photographs of the night sky. At first glance, you might think they belong with channels that talk about science or sci-fi, and they are great for that, but they're also a fun choice for comedy, vlogging, or gaming.
@@ -315,13 +342,6 @@ The great thing about the galaxy style is that it's cool and different, but it d
 **Funky**
 
 ![text-and-logo-Funky](https://images.wondershare.com/filmora/text-and-logo-Funky.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151869/7443" target="_top" id="2151869">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151869" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151869/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 There isn't really one 'funky' style. A funky banner is anything that's just a little off-beat but still makes sense while you're looking at it. They tend to be bright and cheerful and are perfect for anyone who considers themselves a bit quirky.
 
@@ -360,5 +380,24 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-tips.techidaily.com/hart-your-course-to-partner-status-via-a-rapid-10000-views-journey-for-2024/"><u>[New] Chart Your Course to Partner Status via a Rapid 10,000 Views Journey for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/n-2024-elevate-views-not-video-length-expert-guide-to-yt-desc-templates/"><u>[New] In 2024, Elevate Views, Not Video Length Expert Guide to YT Desc Templates</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-navigating-youtube-skip-the-top-8-novice-missteps/"><u>[New] In 2024, Navigating YouTube Skip the Top 8 Novice Missteps</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/nveiling-how-you-can-profit-from-youtube-content-for-2024/"><u>[New] Unveiling How You Can Profit From YouTube Content for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-2024-approved-economical-camera-options-best-deals-for-diy-vloggers/"><u>[Updated] 2024 Approved Economical Camera Options Best Deals for DIY Vloggers</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-chuckle-inducing-cover-versions/"><u>[Updated] In 2024, Chuckle-Inducing Cover Versions</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-in-2024-monthly-earnings-potential-on-youtube/"><u>[Updated] In 2024, Monthly Earnings Potential on YouTube</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-masterclass-in-time-the-top-10-youtube-channels-for-history-students/"><u>[Updated] Masterclass in Time The Top 10 YouTube Channels For History Students</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-the-ultimate-collection-of-top-asmr-microphones/"><u>[Updated] The Ultimate Collection of Top ASMR Microphones</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/2024-approved-screen-savvy-starting-point-deciphering-display-standards/"><u>2024 Approved Screen-Savvy Starting Point Deciphering Display Standards</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/approved-why-youtubes-viewer-numbers-matter-more-than-you-think/"><u>2024 Approved Why YouTube's Viewer Numbers Matter More Than You Think</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/essential-tips-direct-camera-roll-upload-to-snapchat-for-2024/"><u>Essential Tips Direct Camera Roll Upload to Snapchat for 2024</u></a></li>
+<li><a href="https://solve-latest.techidaily.com/experience-tailored-browsing-sessions-through-cookiebot-integration/"><u>Experience Tailored Browsing Sessions Through Cookiebot Integration</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/filmoras-route-to-convert-avi-to-eye-catching-gifs/"><u>Filmora’s Route to Convert AVI to Eye-Catching GIFs</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/live-streaming-made-easy-discover-manycam-the-ultimate-virtual-camera-software/"><u>Live Streaming Made Easy: Discover ManyCam - The Ultimate Virtual Camera Software</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/plicated-online-music-conversion-top-6-free-ios-apps-for-video-and-audio/"><u>Uncomplicated Online Music Conversion Top 6 Free iOS Apps for Video & Audio</u></a></li>
+<li><a href="https://audio-shaping.techidaily.com/updated-elite-voice-mimicry-suite-windows-and-apple-harmonization/"><u>Updated Elite Voice Mimicry Suite - Windows & Apple Harmonization</u></a></li>
+</ul></div>
 

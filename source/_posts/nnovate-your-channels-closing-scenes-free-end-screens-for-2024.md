@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Innovate Your Channels' Closing Scenes  Free End Screens for 2024\""
-date: 2024-10-02T21:51:22.620Z
-updated: 2024-10-04T09:18:31.152Z
+date: 2024-10-05T16:27:56.547Z
+updated: 2024-10-09T17:17:01.523Z
 tags:
   - ai video
   - ai youtube
@@ -90,29 +90,22 @@ Here’s one for the Minecraft fans:
 
 Another way to get your YouTube end screens for free, of course, is to make them yourself. Canva is a great free online design tool for this.
 
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1484940/16446" target="_top" id="1484940">
-  <img src="//a.impactradius-go.com/display-ad/16446-1484940" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484940/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Part 2: How To Build Your Outro For Free (Step-by-step Canva Tutorial)
 
 1\. First, you have to sign up with an e-mail address
 
 ![create-outro-end-screen-with-canva-1](https://images.wondershare.com/filmora/article-images/create-outro-end-screen-with-canva-1.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135407/19272" target="_top" id="2135407">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135407" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135407/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 2\. Once logged in, select “use custom dimensions” and plug in “1920” pixels as your width and “1080” pixels as your height (this, of course, may vary depending on the resolution of your video project).
 
 ![create-outro-end-screen-with-canva  ](https://images.wondershare.com/filmora/article-images/create-outro-end-screen-with-canva-2.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2014859/22899" target="_top" id="2014859">
-  <img src="//a.impactradius-go.com/display-ad/22899-2014859" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014859/22899" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 3\. After clicking “Design!,” a new browser will open with a blank canvas.
 
@@ -128,6 +121,13 @@ Another way to get your YouTube end screens for free, of course, is to make them
 
 ![stretch-end-screen-templates-canva ](https://images.wondershare.com/filmora/article-images/stretch-end-screen-templates-canva.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134496/18498" target="_top" id="2134496">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134496" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134496/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 7\. Insert your own shapes, lines, colours, images, and text over the image.
 
 ![adjust-end-screen-templates-in-canva](https://images.wondershare.com/filmora/article-images/adjust-end-screen-templates-in-canva.jpg)
@@ -141,19 +141,19 @@ If you're looking for other options to design your end screen, make sure to also
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1959778/19272" target="_top" id="1959778">
-  <img src="//a.impactradius-go.com/display-ad/19272-1959778" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://25home.pxf.io/c/5597632/2148642/16836" target="_top" id="2148642">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148642" border="0" alt="https://techidaily.com" width="300" height="50"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1959778/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148642/16836" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/2137975/21526" target="_top" id="2137975">
-  <img src="//a.impactradius-go.com/display-ad/21526-2137975" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2087394/7443" target="_top" id="2087394">
+  <img src="//a.impactradius-go.com/display-ad/7443-2087394" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://zebaoaffiliateprogram.pxf.io/i/5597632/2137975/21526" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087394/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -177,20 +177,24 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://extra-hints.techidaily.com/new-boosting-your-gameplay-tips-for-increased-zoom-range/"><u>[New] Boosting Your Gameplay Tips for Increased Zoom Range</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/new-in-2024-from-monochrome-moments-to-multicolor-movies/"><u>[New] In 2024, From Monochrome Moments to Multicolor Movies</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/n-2024-swift-transformation-video-aspects-to-mac-standard/"><u>[New] In 2024, Swift Transformation Video Aspects to Mac Standard</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/new-innovative-video-designs-free-premiere-plans/"><u>[New] Innovative Video Designs Free Premiere Plans</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/erfect-your-strategy-top-rated-techniques-for-video-marketing/"><u>[New] Perfect Your Strategy Top-Rated Techniques for Video Marketing</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/reeminent-audience-alteration-tools-for-content-casters/"><u>[New] Preeminent Audience Alteration Tools for Content Casters</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/op-talents-merging-photography-and-sound-in-videos-for-2024/"><u>[New] Top Talents Merging Photography & Sound in Videos for 2024</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-in-2024-your-step-by-step-approach-to-youtube-copyright-mastery/"><u>[Updated] In 2024, Your Step-by-Step Approach to YouTube Copyright Mastery</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/approved-free-end-credits-excellence-top-6-tutorials/"><u>2024 Approved Free End Credits Excellence Top 6 Tutorials</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/get-your-free-focusrite-scarlett-2i2-drivers-for-windows-now/"><u>Get Your Free Focusrite Scarlett 2I2 Drivers for Windows Now!</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-5-ways-to-move-contacts-from-motorola-edge-40-to-iphone-131415-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, 5 Ways to Move Contacts From Motorola Edge 40 to iPhone (13/14/15) | Dr.fone</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/in-2024-can-i-bypass-a-forgotten-phone-password-of-xiaomi-redmi-note-12-proplus-5g-by-drfone-android/"><u>In 2024, Can I Bypass a Forgotten Phone Password Of Xiaomi Redmi Note 12 Pro+ 5G?</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-data-from-tecno-camon-20-pro-5g-to-samsung-phone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Data from Tecno Camon 20 Pro 5G to Samsung Phone | Dr.fone</u></a></li>
-<li><a href="https://techtrends.techidaily.com/optimize-with-cookiebot-boost-conversion-rates-and-analytics/"><u>Optimize with Cookiebot: Boost Conversion Rates & Analytics</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/king-youtubes-monetization-potential-for-2024/"><u>Unlocking YouTube's Monetization Potential for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/024-approved-best-14-youtube-gaming-video-ideas-to-boost-gaming-channels/"><u>[New] 2024 Approved Best 14 YouTube Gaming Video Ideas to Boost Gaming Channels</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/024-approved-first-steps-launching-a-youtube-channel-for-profit/"><u>[New] 2024 Approved First Steps Launching a YouTube Channel for Profit</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/024-approved-fresh-takes-on-favorites-movie-alternate-list/"><u>[New] 2024 Approved Fresh Takes on Favorites - Movie Alternate List</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/024-approved-how-to-turn-a-minute-into-millions-maximizing-viewership-for-youtubers/"><u>[New] 2024 Approved How to Turn a Minute Into Millions Maximizing Viewership for YouTubers</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/024-approved-rapid-process-converting-images-into-engaging-youtube-desktop-pics/"><u>[New] 2024 Approved Rapid Process Converting Images Into Engaging YouTube Desktop Pics</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/024-approved-reclaiming-brightness-in-youtube-videos/"><u>[New] 2024 Approved Reclaiming Brightness in YouTube Videos</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/024-approved-seamlessly-download-youtube-thumbnails-online/"><u>[New] 2024 Approved Seamlessly Download YouTube Thumbnails Online</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/new-androids-elite-10-gb-games-simulators-for-2024/"><u>[New] Android's Elite 10 GB Games Simulators for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-storytelling-steps-for-youtube-ascension/"><u>[Updated] Storytelling Steps for YouTube Ascension</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/updated-syncing-visual-elements-across-platforms/"><u>[Updated] Syncing Visual Elements Across Platforms</u></a></li>
+<li><a href="https://extra-support.techidaily.com/2024-approved-step-by-step-acquiring-top-notch-clip-art-without-a-price-tag/"><u>2024 Approved Step-by-Step Acquiring Top-Notch Clip Art Without a Price Tag</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/-shaky-footage-proper-tripod-usage-techniques-in-vlog-creation-for-2024/"><u>Avoid Shaky Footage Proper Tripod Usage Techniques in Vlog Creation for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/-engagement-with-custom-images-for-your-videos/"><u>Boost Engagement with Custom Images for Your Videos</u></a></li>
+<li><a href="https://techidaily.com/different-methods-for-resetting-infinix-smart-8-hd-phones-with-screen-locked-and-not-drfone-by-drfone-reset-android-reset-android/"><u>Different Methods for Resetting Infinix Smart 8 HD Phones with Screen Locked and Not | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/discovering-the-benefits-of-facebooks-touch-features/"><u>Discovering the Benefits of Facebook's Touch Features</u></a></li>
+<li><a href="https://os-tips.techidaily.com/essential-android-functions-that-apple-needs-to-borrow-for-upcoming-iphones/"><u>Essential Android Functions That Apple Needs to Borrow for Upcoming iPhones</u></a></li>
+<li><a href="https://android-frp.techidaily.com/in-2024-the-updated-method-to-bypass-motorola-g24-power-frp-by-drfone-android/"><u>In 2024, The Updated Method to Bypass Motorola G24 Power FRP</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/smooth-silence-integration-in-audio-post-production-audacity-style-for-2024/"><u>Smooth Silence Integration in Audio Post-Production - Audacity Style for 2024</u></a></li>
+<li><a href="https://ai-video-translation.techidaily.com/updated-in-2024-translate-videos-with-subtitle-cat-your-essential-guide/"><u>Updated In 2024, Translate Videos with Subtitle Cat Your Essential Guide</u></a></li>
 </ul></div>
 

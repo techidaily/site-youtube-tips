@@ -1,7 +1,7 @@
 ---
 title: "\"The No-Tripod Path to Flawless Images\""
-date: 2024-10-02T05:09:45.401Z
-updated: 2024-10-04T02:57:23.815Z
+date: 2024-10-02T16:16:55.267Z
+updated: 2024-10-09T17:46:16.432Z
 tags:
   - ai video
   - ai youtube
@@ -41,6 +41,13 @@ Wondershare Filmora has the best video stabilization tool is your videos have a 
 
 Here are 3 of our favorite DIY tripods.
 
+<!-- affiliate ads begin -->
+<a href="https://imp.i357552.net/c/5597632/1030380/11832" target="_top" id="1030380">
+  <img src="//a.impactradius-go.com/display-ad/11832-1030380" border="0" alt="https://techidaily.com" width="720" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1030380/11832" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### **DIY smartphone tripod using binder clips or hair clips**
 
 You’re a solo operation and your best camera is on your phone. That’s pretty common.
@@ -55,32 +62,26 @@ Here it is with binder clips:
 
 ![binder clips](https://images.wondershare.com/filmora/article-images/binder-clips.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2100533/7443" target="_top" id="2100533">
-  <img src="//a.impactradius-go.com/display-ad/7443-2100533" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100533/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 And here it is with hair clips:
 
 ![hair clips](https://images.wondershare.com/filmora/article-images/hair-clips.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1925565/19272" target="_top" id="1925565">
+  <img src="//a.impactradius-go.com/display-ad/19272-1925565" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925565/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Now you can set your smartphone upon any stable surface, like a table or a stack of books.
 
  _Here are some more cool ideas!_
 
 <!-- affiliate ads begin -->
-<span id="1983549">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983549.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983549">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983549.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983549%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983549/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2043639/7443" target="_top" id="2043639">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043639" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043639/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### **DIY adjustable tripod using books and a towel**
@@ -99,19 +100,6 @@ To get similar functions from the ‘any stable surface’ solution you can use 
 4. Put your camera on top of the books.
 
 Now if your camera isn’t up high enough, or is too high, you can adjust it just by adding or taking away books. If you want to move it closer or farther away from you, just pull the towel forwards or backward.
-
-<!-- affiliate ads begin -->
-<span id="1993645">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993645.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993645">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993645.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993645%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993645/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### **DIY gripping ‘Gorillapod’ using wire and tape**
 
@@ -144,16 +132,10 @@ _Note: make sure the bolt is a fit for your camera before you get too far into t
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<span id="1492813">
-					<video width="1024" height="576" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1492813.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/14559-1492813">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1492813.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:640px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fpropmoneyinc.pxf.io%2Fc%2F5597632%2F1492813%2F14559'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1492813/14559" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/1880960/19272" target="_top" id="1880960">
+  <img src="//a.impactradius-go.com/display-ad/19272-1880960" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880960/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -177,21 +159,24 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-http.techidaily.com/new-2024-approved-optimizing-video-posts-with-flawless-srt-file-integration-tactics/"><u>[New] 2024 Approved Optimizing Video Posts with Flawless SRT File Integration Tactics</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/valuating-rapid-subscriptions-impact-on-video-engagement/"><u>[New] Evaluating Rapid Subscription's Impact on Video Engagement</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/n-2024-premier-content-creators-colloquy/"><u>[New] In 2024, Premier Content Creators Colloquy</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/new-transform-how-you-talk-best-mobile-apps-to-alter-vocal-quality-for-2024/"><u>[New] Transform How You Talk Best Mobile Apps to Alter Vocal Quality for 2024</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ltimate-list-10-premium-history-channels-online-for-2024/"><u>[New] Ultimate List 10 Premium History Channels Online for 2024</u></a></li>
-<li><a href="https://fox-http.techidaily.com/updated-2024-approved-master-the-art-of-audio-alteration-in-sony-games/"><u>[Updated] 2024 Approved Master the Art of Audio Alteration in Sony Games</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-in-2024-youtube-profile-pics-templates-available/"><u>[Updated] In 2024, YouTube Profile Pics Templates Available</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-premium-audio-modification-gadgets-for-youtube-go-getters/"><u>[Updated] Premium Audio Modification Gadgets for YouTube Go-Getters</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/fortnite-cover-art-techniques/"><u>Fast Fortnite Cover Art Techniques</u></a></li>
-<li><a href="https://vimeo-videos.techidaily.com/in-2024-soundscapes-for-vimeo-a-compreayers-manual/"><u>In 2024, Soundscapes for Vimeo A Compreayer's Manual</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/initiating-seamless-zoom-gatherings-for-2024/"><u>Initiating Seamless Zoom Gatherings for 2024</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/innovative-methods-to-archive-lol-dueling-for-2024/"><u>Innovative Methods to Archive LOL Dueling for 2024</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/top-10-gratis-video-call-tools-for-virtual-gatherings/"><u>Top 10 Gratis Video Call Tools for Virtual Gatherings</u></a></li>
-<li><a href="https://some-skills.techidaily.com/unleashing-time-management-mastery-with-zero-cost-clocks-for-2024/"><u>Unleashing Time Management Mastery with Zero Cost Clocks for 2024</u></a></li>
-<li><a href="https://fox-that.techidaily.com/unlocking-messages-and-calls-while-using-iphonet-do-not-disturb-feature-a-guide-to-eight-key-solutions/"><u>Unlocking Messages & Calls While Using iPhone't Do Not Disturb Feature: A Guide to Eight Key Solutions</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/price-super-quality-youtube-thumbnails-extractor-guide-for-2024/"><u>Zero Price, Super Quality YouTube Thumbnails Extractor Guide for 2024</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/new-connoisseurs-compendium-budget-friendly-photography-havens/"><u>[New] Connoisseur's Compendium Budget-Friendly Photography Havens</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ynamic-slideshows-embedding-youtube-content/"><u>[New] Dynamic Slideshows Embedding YouTube Content</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-alternative-classics-new-filmmaking-titles-to-love/"><u>[New] In 2024, Alternative Classics New Filmmaking Titles to Love</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-in-2024-friendly-facebook-files-top-eight-free-extractors/"><u>[New] In 2024, Friendly Facebook Files - Top Eight Free Extractors</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-mastering-reach-without-money-youtube-video-advancement-strategies/"><u>[New] In 2024, Mastering Reach Without Money YouTube Video Advancement Strategies</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-tagging-magic-elevating-game-based-youtubes/"><u>[New] In 2024, Tagging Magic Elevating Game-Based YouTubes</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/s-hasty-subscription-a-gateway-to-better-viewing-habits-in-2024/"><u>[New] Is Hasty Subscription a Gateway to Better Viewing Habits, In 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-2024-approved-video-excellence-started-with-quality-cameras-and-lenses/"><u>[Updated] 2024 Approved Video Excellence Started with Quality Cameras and Lenses</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-examining-youtubes-mobile-app-for-iosandroid-devices/"><u>[Updated] Examining YouTube's Mobile App for iOS/Android Devices</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-unleashing-revenue-with-review-videos-of-household-items-for-2024/"><u>[Updated] Unleashing Revenue with Review Videos of Household Items for 2024</u></a></li>
+<li><a href="https://win-remarkable.techidaily.com/wmamkv-movavi/"><u>在線無價解碼WMA成MKV，如何使用 Movavi 導遊方法</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/apple-macosdvdmaciphoneipod/"><u>Apple macOS用無料アプリ：DVD映像をMacからiPhone/iPodに移動</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/comprehensive-analysis-and-insights-on-lgs-latest-model-the-unparalleled-classic-in-the-evolution-of-wearos-20-timepieces/"><u>Comprehensive Analysis and Insights on LG's Latest Model - The Unparalleled Classic in the Evolution of WearOS 2.0 Timepieces</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-recover-deleted-photos-from-android-gallery-app-on-samsung-galaxy-xcover-7-by-stellar-photo-recovery-android-mobile-photo-recover/"><u>How to Recover Deleted Photos from Android Gallery App on Samsung Galaxy XCover 7</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/ideal-shops-for-unique-crafted-gift-enclosures/"><u>Ideal Shops for Unique, Crafted Gift Enclosures</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/innovative-template-packs-for-effective-business-communications/"><u>Innovative Template Packs for Effective Business Communications</u></a></li>
+<li><a href="https://common-error.techidaily.com/internet-explorer-wont-open-solved/"><u>Internet Explorer Won’t Open [SOLVED]</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ring-youtube-standard-studio-or-beta-progress-for-2024/"><u>Mastering YouTube Standard Studio or Beta Progress for 2024</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/the-top-5-android-apps-that-use-fingerprint-sensor-to-lock-your-apps-on-vivo-x100-pro-by-drfone-android/"><u>The Top 5 Android Apps That Use Fingerprint Sensor to Lock Your Apps On Vivo X100 Pro</u></a></li>
 </ul></div>
 

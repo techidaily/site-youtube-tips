@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Crafting the Perfect Pitch  Inviting Listeners to Join Us\""
-date: 2024-10-01T20:47:21.652Z
-updated: 2024-10-04T05:17:53.305Z
+date: 2024-10-07T16:56:36.701Z
+updated: 2024-10-09T17:58:57.675Z
 tags:
   - ai video
   - ai youtube
@@ -50,10 +50,10 @@ It has become the norm for YouTubers to ask viewers to subscribe in their sign-o
 That’s great. At the end of a video is a good place to ask people to subscribe, but is it the best and only place you should be reminding them? If you take a peek at your analytics and you might find that most of your viewers aren’t watching to the ends of your videos (people have short attention spans).
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118319/7443" target="_top" id="2118319">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118319" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://25home.pxf.io/c/5597632/2148639/16836" target="_top" id="2148639">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148639" border="0" alt="https://techidaily.com" width="180" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118319/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148639/16836" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## A More Effective Way of Asking For Subscribers
@@ -66,6 +66,13 @@ As you can see, the video starts with a ‘flash forward’ to one of the twins 
 
 ![ how to ask people to subscribe](https://images.wondershare.com/filmora/article-images/ask-people-to-subscribe-by-hook.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2111967/7443" target="_top" id="2111967">
+  <img src="//a.impactradius-go.com/display-ad/7443-2111967" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111967/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 #### Step 2: Get to The Point Quickly
 
 Shortly after, while still in the first 30 seconds of the video, Collins gets right to the point and introduces the Twin Telepathy Challenge promised in the title of the video. The hook with the heater catching fire is effective, but it’s not essential. It happens to suit Collins’ style, and it happens to have happened. Getting to the main point of the video quickly – usually in the first 15 seconds, not the first 30 (it’s in the first 15 seconds that most viewers click away) – is vital. People click on videos for a reason, and if they don’t see a sign of that payoff quickly they’ll leave.
@@ -77,20 +84,19 @@ It’s only after hooking the viewer in and reiterating the promise of the title
 ![ how to ask people to subscribe](https://images.wondershare.com/filmora/article-images/ask-people-to-subscribe-in-perfect-moment.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1972684/19272" target="_top" id="1972684">
-  <img src="//a.impactradius-go.com/display-ad/19272-1972684" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1972684/19272" style="position:absolute;visibility:hidden;" border="0" />
+<span id="2127886">
+					<video width="576" height="1024" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/2127886.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/18498-2127886">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/2127886.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Funicoeye.pxf.io%2Fc%2F5597632%2F2127886%2F18498'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/2127886/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Collins Key has been one of the fastest-growing channels on YouTube. He does not implement this strategy in every video, but it’s not a stretch to think it’s had something to do with his success. Instead of simply asking you to subscribe at the end of the video, he creates a part of the video early on – before people who don’t watch until the end will have clicked away – where you feel as if you’re ‘supposed to’ subscribe.
-
-<!-- affiliate ads begin -->
-<a href="https://bluetties.sjv.io/c/5597632/2141688/17094" target="_top" id="2141688">
-  <img src="//a.impactradius-go.com/display-ad/17094-2141688" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluetties.sjv.io/i/5597632/2141688/17094" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Polish Your YouTube Videos with Filmora
 
@@ -107,16 +113,10 @@ That's how you can get more YouTube subscribers by asking the right way. You may
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<span id="1983471">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983471.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983471">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983471.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983471%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983471/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2123730/7443" target="_top" id="2123730">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123730" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123730/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -140,24 +140,20 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://network-issues.techidaily.com/fixed-windows-blurry-screen-quickly-and-easily/"><u>[Fixed] Windows Blurry Screen | Quickly & Easily</u></a></li>
-<li><a href="https://facebook-video-files.techidaily.com/new-2024-approved-2023-guide-to-discovering-facebook-hosted-films-and-shows/"><u>[New] 2024 Approved 2023 Guide to Discovering Facebook-Hosted Films & Shows</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/024-approved-secrets-to-maximizing-youtube-traffic-with-optimized-metadata/"><u>[New] 2024 Approved Secrets to Maximizing YouTube Traffic with Optimized Metadata</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/n-2024-youtube-versus-dailymention-identifying-key-gaps/"><u>[New] In 2024, YouTube Versus DailyMention Identifying Key Gaps</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/nveiling-mr-beasts-cash-flow-for-2024/"><u>[New] Unveiling Mr. Beast's Cash Flow for 2024</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-2024-approved-preventing-total-loss-of-image-in-streaming-videos-on-youtube/"><u>[Updated] 2024 Approved Preventing Total Loss of Image in Streaming Videos on YouTube</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-2024-approved-the-ultimate-guide-to-free-online-short-video-downloading/"><u>[Updated] 2024 Approved The Ultimate Guide to Free, Online Short Video Downloading</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-seamless-google-meet-integration-for-youtube-enthusiasts-for-2024/"><u>[Updated] Seamless Google Meet Integration for YouTube Enthusiasts for 2024</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-the-growth-odyssey-of-ajey-nagar-on-youtube-for-2024/"><u>[Updated] The Growth Odyssey of Ajey Nagar on YouTube for 2024</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/approved-mastering-youtubes-short-form-content-key-tips-revealed/"><u>2024 Approved Mastering YouTube's Short-Form Content Key Tips Revealed</u></a></li>
-<li><a href="https://games-able.techidaily.com/elevate-your-playtime-steam-decks-memory-boost/"><u>Elevate Your Playtime: Steam Deck's Memory Boost</u></a></li>
-<li><a href="https://win-manuals.techidaily.com/enabling-seamless-page-printing-from-your-flipbooks-a-guide-with-flipbuilder/"><u>Enabling Seamless Page Printing From Your Flipbooks: A Guide with FlipBuilder</u></a></li>
-<li><a href="https://hardware-reviews.techidaily.com/implement-a-take-back-program-to-encourage-recycling-or-repurposing-of-used-products/"><u>Implement a Take-Back Program to Encourage Recycling or Repurposing of Used Products</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/in-2024-find-the-best-value-top-6-budget-friendly-camera-options/"><u>In 2024, Find the Best Value Top 6 Budget-Friendly Camera Options</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/in-2024-how-screen-mirroring-apple-iphone-12-to-tv-or-pc-drfone-by-drfone-ios/"><u>In 2024, How Screen Mirroring Apple iPhone 12 to TV or PC? | Dr.fone</u></a></li>
-<li><a href="https://win-online.techidaily.com/movavis-wav-3g2/"><u>Movavi's 우정의 단계 : 인터넷을 통해 순수한 WAV 파일을 3G2로 전환하는 방법</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/synchronizing-creatives-videos-to-amplify-your-presence/"><u>Synchronizing Creatives Videos to Amplify Your Presence</u></a></li>
-<li><a href="https://ai-video-apps.techidaily.com/updated-beyond-gopro-studio-top-picks-for-editing-your-adventure-videos-for-2024/"><u>Updated Beyond GoPro Studio Top Picks for Editing Your Adventure Videos for 2024</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/be-streaming-made-simple-with-obs-guidebook-for-2024/"><u>Youtube Streaming Made Simple with OBS Guidebook for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/024-approved-enhancing-clicks-youtube-thumbnail-sizes-explored/"><u>[New] 2024 Approved Enhancing Clicks YouTube Thumbnail Sizes Explored</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/024-approved-excellent-7-dslrs-elevating-live-stream-cinematic-style/"><u>[New] 2024 Approved Excellent 7 DSLRs Elevating Live-Stream Cinematic Style</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/024-approved-navigating-the-world-of-sound-effects-in-youtube-videos/"><u>[New] 2024 Approved Navigating the World of Sound Effects in YouTube Videos</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/new-in-2024-capture-the-essence-your-free-screen-recording-solution-on-mac-and-pc/"><u>[New] In 2024, Capture the Essence - Your FREE Screen Recording Solution on Mac & PC</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/new-in-2024-essential-techniques-in-youtube-movie-production/"><u>[New] In 2024, Essential Techniques in YouTube Movie Production</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/1725289308842-winx-dvd-ripper-platinum/"><u>無料 WinX DVD Ripper Platinum 使い方ガイドとダウンロード</u></a></li>
+<li><a href="https://apple-account.techidaily.com/how-to-fix-when-apple-account-locked-on-iphone-11-by-drfone-ios/"><u>How to Fix when Apple Account Locked On iPhone 11?</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/in-2024-hours-to-gigabytes-a-guide-for-filmmakers/"><u>In 2024, Hours to Gigabytes A Guide for Filmmakers</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-how-do-i-stop-someone-from-tracking-my-honor-90-drfone-by-drfone-virtual-android/"><u>In 2024, How Do I Stop Someone From Tracking My Honor 90? | Dr.fone</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/maximizing-your-sound-the-best-microphones-for-podcasting-for-2024/"><u>Maximizing Your Sound The Best Microphones for Podcasting for 2024</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/pdm-pulse-density-modulation/"><u>PDM (Pulse Density Modulation)</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/-your-youtube-content-with-these-free-sounds/"><u>Score Your YouTube Content With These Free Sounds</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/-to-prevent-thumbnail-absence-on-shorts-videos/"><u>Steps to Prevent Thumbnail Absence on Shorts Videos</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/-sketching-for-fortnite-game-titles-for-2024/"><u>Swift Sketching for Fortnite Game Titles for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/-zenith-the-quickest-youtube-playlist-share-for-2024/"><u>Zippy Zenith The Quickest Youtube Playlist Share for 2024</u></a></li>
 </ul></div>
 

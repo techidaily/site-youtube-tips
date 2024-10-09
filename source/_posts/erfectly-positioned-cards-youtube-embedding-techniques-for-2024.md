@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Perfectly Positioned Cards  YouTube Embedding Techniques for 2024\""
-date: 2024-09-14T18:16:02.733Z
-updated: 2024-09-21T20:47:08.271Z
+date: 2024-10-07T16:44:35.746Z
+updated: 2024-10-09T16:50:03.551Z
 tags:
   - ai video
   - ai youtube
@@ -72,6 +72,13 @@ YouTube **Cards** are similar to annotations but more interactive. They allow th
 
 * Apply changes and exit
 
+<!-- affiliate ads begin -->
+<a href="https://homestyler.sjv.io/c/5597632/1943750/22993" target="_top" id="1943750">
+  <img src="//a.impactradius-go.com/display-ad/22993-1943750" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://homestyler.sjv.io/i/5597632/1943750/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## How to add YouTube annotations
 
 YouTube Annotation is addition of a text layer, link or hotspots over your video. They add interactive boxes which link to other websites or videos (any link you want).
@@ -82,10 +89,30 @@ YouTube Annotation is addition of a text layer, link or hotspots over your video
 
 ![](https://images.wondershare.com/filmora/article-images/add-annotations-to-youtube-video.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1899850">
+					<video width="486" height="864" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1899850.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/14483-1899850">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1899850.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:304px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Felectronicx.pxf.io%2Fc%2F5597632%2F1899850%2F14483'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1899850/14483" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 * On the right panel click on "+ Add Element" and select the kind of annotation you want to add
 * Adjust the position of Annotation, you can drag the rectangle to locate it at any position of the video, move the slide to set the start and end time of the annotation
 
 ![](https://images.wondershare.com/filmora/article-images/add-annotation-to-youtube-1.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/1062447/7443" target="_top" id="1062447">
+  <img src="//a.impactradius-go.com/display-ad/7443-1062447" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/1062447/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 * Apply changes
 
@@ -125,6 +152,13 @@ No matter what kind of annotations you are using, you should never use more than
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2036486/19272" target="_top" id="2036486">
+  <img src="//a.impactradius-go.com/display-ad/19272-2036486" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2036486/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
@@ -144,12 +178,20 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151854/7443" target="_top" id="2151854">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151854" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151854/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-tips.techidaily.com/hannel-buying-made-simple-a-beginners-toolkit/"><u>[New] Channel Buying Made Simple A Beginner’s Toolkit</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-optimizing-lifes-dual-roles-job-and-youtubing/"><u>[New] In 2024, Optimizing Life's Dual Roles Job & YouTubing</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-2024-approved-thumbnail-artistry-for-valorant-game-imagery-swiftly-executed/"><u>[Updated] 2024 Approved Thumbnail Artistry for Valorant Game Imagery, Swiftly Executed</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-online-marketplaces-for-partnering-with-youtube-content-makers/"><u>[Updated] Online Marketplaces for Partnering With YouTube Content Makers</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-reimagine-imagery-best-online-wallpaper-changer-list/"><u>[Updated] Reimagine Imagery Best Online Wallpaper Changer List</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-securing-youtube-partnership-a-comprehensive-guide-for-video-creators-for-2024/"><u>[Updated] Securing YouTube Partnership A Comprehensive Guide for Video Creators for 2024</u></a></li>
+<li><a href="https://common-error.techidaily.com/enabling-unseen-wi-fi-options-in-windows-11-a-step-by-step-guide/"><u>Enabling Unseen Wi-Fi Options in Windows 11: A Step-by-Step Guide</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/enhancing-engagement-leveraging-chatgpt-for-perfect-tweets/"><u>Enhancing Engagement: Leveraging ChatGPT for Perfect Tweets</u></a></li>
+<li><a href="https://win-dash.techidaily.com/find-and-download-optimized-sound-card-software-updates-for-windows-systems/"><u>Find & Download Optimized Sound Card Software Updates for Windows Systems</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/24-youtube-entrepreneurship-building-a-recognizable-brand/"><u>In 2024, YouTube Entrepreneurship Building a Recognizable Brand</u></a></li>
+<li><a href="https://sound-tweaking.techidaily.com/new-how-to-add-music-and-background-music-to-video-on-desktoponlinemobile-phone-for-2024/"><u>New How to Add Music & Background Music to Video on Desktop/Online/Mobile Phone for 2024</u></a></li>
+<li><a href="https://video-content-creator.techidaily.com/new-in-2024-top-rated-flv-editor-for-windows-8-edit-videos-like-a-pro/"><u>New In 2024, Top-Rated FLV Editor for Windows 8 Edit Videos Like a Pro</u></a></li>
+<li><a href="https://ai-vdieo-software.techidaily.com/streamline-your-video-collection-8-best-mac-metadata-editors/"><u>Streamline Your Video Collection 8 Best Mac Metadata Editors</u></a></li>
+</ul></div>
 

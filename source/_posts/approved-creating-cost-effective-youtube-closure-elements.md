@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Creating Cost-Effective YouTube Closure Elements\""
-date: 2024-09-17T08:09:03.590Z
-updated: 2024-09-22T05:15:15.174Z
+date: 2024-10-08T17:33:14.421Z
+updated: 2024-10-09T16:14:48.767Z
 tags:
   - ai video
   - ai youtube
@@ -82,6 +82,13 @@ You can create a simple intro card in **Filmora**.
 7. The last piece of your intro is sound. You can choose a song from Filmora’s library and cut it down to five seconds, or import your sound effect.
 8. Export your video and save it for use in all of your other videos.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2068408/7443" target="_top" id="2068408">
+  <img src="//a.impactradius-go.com/display-ad/7443-2068408" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068408/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 2: End Cards
 
 When your video ends, YouTube will recommend a selection of videos users may want to watch next. Often, these recommendations will not include more of your videos.
@@ -117,6 +124,13 @@ Some creators will leave their end cards at that and play music overtop, but it 
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134495/18498" target="_top" id="2134495">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134495" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134495/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Shanoon Cox
 
 Shanoon Cox is a writer and a lover of all things video.
@@ -136,12 +150,26 @@ Follow @Shanoon Cox
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1938716/19272" target="_top" id="1938716">
-  <img src="//a.impactradius-go.com/display-ad/19272-1938716" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938716/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-tips.techidaily.com/reating-compelling-valorant-thumbnails-for-digital-viewers-for-2024/"><u>[New] Creating Compelling Valorant Thumbnails for Digital Viewers for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-from-passive-to-active-a-3-step-framework-to-evaluate-your-youtube-financials/"><u>[New] In 2024, From Passive to Active A 3-Step Framework to Evaluate Your YouTube Financials</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-how-to-edit-youtube-videos-in-sony-vegas/"><u>[New] In 2024, How to Edit YouTube Videos in Sony Vegas</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-in-2024-whats-new-on-facebook-an-updated-look/"><u>[New] In 2024, What's New on Facebook - An Updated Look</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/iberate-content-consumption-with-these-leading-free-and-on-demand-tools/"><u>[New] Liberate Content Consumption with These Leading Free & On-Demand Tools</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ptimize-youtube-submission-swift-rendering-and-uploading-methods-for-2024/"><u>[New] Optimize YouTube Submission - Swift Rendering and Uploading Methods for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-audiences-on-the-move-tracker-apps-for-2024/"><u>[Updated] Audiences on the Move Tracker Apps for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-initiating-your-streaming-journey-youtube-registration-for-2024/"><u>[Updated] Initiating Your Streaming Journey YouTube Registration for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-insta-marketing-mastery-crafting-viral-video-campaigns-on-social-media/"><u>[Updated] Insta-Marketing Mastery Crafting Viral Video Campaigns on Social Media</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-securely-distributing-exclusive-youtube-videos-through-gmail-for-2024/"><u>[Updated] Securely Distributing Exclusive YouTube Videos Through Gmail for 2024</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/2024-approved-projector-or-tv-optimal-choice-for-excellent-4k-display-experience/"><u>2024 Approved Projector or TV Optimal Choice for Excellent 4K Display Experience</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/mkv-to-mp3-7-2024/"><u>高評価MKV to MP3コンバーター 7つ選び! 2024年に役立つ無料ソフトウェアリスト</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/chrome-video-errors-a-step-by-step-fix-guide/"><u>Chrome Video Errors A Step-by-Step Fix Guide</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/crafting-a-plan-evaluating-your-igtv-engagement-levels/"><u>Crafting a Plan Evaluating Your IGTV Engagement Levels</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/budget-channels-to-big-brands-youtube-sponsorships-demystified/"><u>From Budget Channels to Big Brands YouTube Sponsorships Demystified</u></a></li>
+<li><a href="https://fake-location.techidaily.com/how-to-sharefake-gps-on-uber-for-xiaomi-redmi-13c-5g-drfone-by-drfone-virtual-android/"><u>How to share/fake gps on Uber for Xiaomi Redmi 13C 5G | Dr.fone</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-how-to-unlock-a-network-locked-meizu-21-pro-phone-by-drfone-android/"><u>In 2024, How to Unlock a Network Locked Meizu 21 Pro Phone?</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/simple-guide-to-downloading-setting-up-and-keeping-your-vlc-media-players-codecs-current/"><u>Simple Guide to Downloading, Setting Up & Keeping Your VLC Media Player's Codecs Current</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/start-smart-free-video-intro-templates-for-2024/"><u>Start Smart Free Video Intro Templates for 2024</u></a></li>
+</ul></div>
 

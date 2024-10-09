@@ -1,7 +1,7 @@
 ---
 title: "[New] In 2024, The Ultimate Checklist of Essential Equipment"
-date: 2024-09-16T07:48:39.397Z
-updated: 2024-09-21T18:27:21.398Z
+date: 2024-10-06T16:21:32.424Z
+updated: 2024-10-09T16:38:22.155Z
 tags:
   - ai video
   - ai youtube
@@ -55,6 +55,13 @@ On one end of the spectrum, you have basic smartphone cameras and web cameras, w
 
 If you already have a DSLR camera then it’s a good idea to familiarize yourself with it. You have far more freedom to adjust the settings and achieve a professional look for your videos with a DSLR, but that does mean it’ll take some time to become an expert at using it. Ultra-high resolution is not required for YouTube, but it certainly won’t hurt to have additional sharpness and more detail in the scene. If you’re shopping for a DSLR, look for one with a flip screen that allows you to quickly check what your viewers see.
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137210/26400" target="_top" id="2137210">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137210" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137210/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## YouTube Microphone and Audio
 
 **The short version:** Audio quality is extremely important. If you can buy either a new camera or an external microphone, but not both, it might be better to go for the microphone. [Click here for advice on upping your audio quality without an external microphone.](https://tools.techidaily.com/wondershare/filmora/download/)
@@ -64,6 +71,13 @@ If you already have a DSLR camera then it’s a good idea to familiarize yoursel
 Again, most YouTube video makers have a limited budget at their disposal, so professional microphones are mostly off the table. However, investing in a directional microphone (‘shotgun mic’) that can pick up your voice clearly and without background noise is certainly a smart move. Such microphones can be pointed towards you while you speak, and since most YouTubers sit still while doing their shows there won’t be too much need for in-session adjustments.
 
 If you’re not ready to invest in a shotgun mic, you can also find very inexpensive (often under $20) LAV mics. These small microphones can be pinned to your shirt, which allows them to record very clear dialogue because they’re so close to your mouth.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2137378/7443" target="_top" id="2137378">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137378" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137378/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Lights for YouTube
 
@@ -76,13 +90,6 @@ Sometimes, it is enough to film near windows and/or bring more household lamps i
 If you have the budget available to get some lighting equipment, you can find softbox lights or LED panel lights available fairly inexpensively online. Softbox lights are great because they provide even, diffused, light.
 
 Another useful piece of lighting equipment to have is a reflector. A reflector is usually a piece of white, silver, or gold fabric stretched over a frame. You can use it to bounce light from one light source back towards yourself (this is a great way to fill shadows cast by your main light). Reflectors tend to be inexpensive, but you can also use white cardboard or tinfoil in place of purchasing a reflector.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1896527/19272" target="_top" id="1896527">
-  <img src="//a.impactradius-go.com/display-ad/19272-1896527" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896527/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Tripods and Camera Stands
 
@@ -97,6 +104,13 @@ Even if you are using a phone or a webcam to record YouTube videos, you should c
 ## Smartphone Camera Gear
 
 ![Smartphone Camera Gear](https://images.wondershare.com/filmora/article-images/smartphone-camera-gear.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134248/18498" target="_top" id="2134248">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134248" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134248/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 **The short version:** There's a lot of gear out there designed with smartphone photos and videos in mind, including clip-on lenses, tripod mounts, phone-mounted LED lights, and inexpensive microphones that plug into the audio jack.
 
@@ -113,10 +127,10 @@ Another common downside of smartphone cameras is that most of them use digital z
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136623/26400" target="_top" id="2136623">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136623" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://bluettius.sjv.io/c/5597632/2139122/17108" target="_top" id="2139122">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139122" border="0" alt="https://techidaily.com" width="468" height="60"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136623/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139122/17108" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -138,5 +152,18 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-tips.techidaily.com/astering-youtube-channel-lockdowns-device-specific-tips-for-2024/"><u>[New] Mastering YouTube Channel Lockdowns Device-Specific Tips for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/approved-unveiling-the-top-ten-youtube-music-reaction-stars/"><u>2024 Approved Unveiling the Top Ten YouTube Music Reaction Stars</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ing-perfect-youtube-channel-names-a-comprehensive-guide-for-video-content-creators-maximum-length-156-characters/"><u>Crafting Perfect Youtube Channel Names A Comprehensive Guide for Video Content Creators (Maximum Length 156 Characters)</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/exploring-taptap-the-enhanced-method-for-discovering-top-mobile-gaming-apps/"><u>Exploring TapTap – The Enhanced Method for Discovering Top Mobile Gaming Apps</u></a></li>
+<li><a href="https://apple-account.techidaily.com/how-to-get-the-apple-id-verification-code-on-apple-iphone-7-plus-in-the-best-ways-by-drfone-ios/"><u>How To Get the Apple ID Verification Code On Apple iPhone 7 Plus in the Best Ways</u></a></li>
+<li><a href="https://apple-account.techidaily.com/how-to-remove-the-two-factor-authentication-on-apple-iphone-6s-plus-by-drfone-ios/"><u>How To Remove the Two Factor Authentication On Apple iPhone 6s Plus</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-forgotten-the-voicemail-password-of-vivo-y100-5g-try-these-fixes-by-drfone-android/"><u>In 2024, Forgotten The Voicemail Password Of Vivo Y100 5G? Try These Fixes</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/24-mirrorless-vs-dslr-in-the-realm-of-video-filmmaking/"><u>In 2024, Mirrorless vs DSLR in the Realm of Video Filmmaking</u></a></li>
+<li><a href="https://media-tips.techidaily.com/no-more-free-trials-at-5-understanding-changes-in-apple-music-pricing/"><u>No More Free Trials at $5 - Understanding Changes in Apple Music Pricing</u></a></li>
+<li><a href="https://fox-that.techidaily.com/top-8-tricks-to-boost-iphone-wi-fi-speed-and-stability/"><u>Top 8 Tricks to Boost iPhone Wi-Fi Speed & Stability</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/understanding-the-effects-of-artificial-intelligence-on-our-minds-sanctueus/"><u>Understanding the Effects of Artificial Intelligence on Our Mind's Sanctueus</u></a></li>
+</ul></div>
 

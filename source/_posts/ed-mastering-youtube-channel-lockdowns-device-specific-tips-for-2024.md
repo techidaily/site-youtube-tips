@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Mastering YouTube Channel Lockdowns  Device-Specific Tips for 2024\""
-date: 2024-09-29T16:07:21.825Z
-updated: 2024-10-03T22:59:48.826Z
+date: 2024-10-08T17:57:03.907Z
+updated: 2024-10-09T17:13:16.666Z
 tags:
   - ai video
   - ai youtube
@@ -58,6 +58,13 @@ thumbnail: https://thmb.techidaily.com/4a4364521475bc98d43a49b1c82e26ef445f3c795
 
 ![submit and confirm](https://images.wondershare.com/filmora/article-images/submit2.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144280/7443" target="_top" id="2144280">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144280" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144280/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Part 2: How to block YouTube channels on Mobile Phones (Android & iPhone)**
 
  One can also block YouTube channels on mobile devices in the same manner as you would do it on the desktop computer. It will do the same effect and prevent bullying users from interacting with your content.
@@ -68,23 +75,9 @@ thumbnail: https://thmb.techidaily.com/4a4364521475bc98d43a49b1c82e26ef445f3c795
 
 ![find users](https://images.wondershare.com/filmora/article-images/find-users.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1885928/19272" target="_top" id="1885928">
-  <img src="//a.impactradius-go.com/display-ad/19272-1885928" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1885928/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 * 4\. When you’re on the account page, open the menu at the top-right corner of the screen and tap Block user.
 
 ![tap block users](https://images.wondershare.com/filmora/article-images/tap-block-user2.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1528703/16446" target="_top" id="1528703">
-  <img src="//a.impactradius-go.com/display-ad/16446-1528703" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528703/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Part 3: Block content on YouTube kids**
 
@@ -97,16 +90,10 @@ thumbnail: https://thmb.techidaily.com/4a4364521475bc98d43a49b1c82e26ef445f3c795
 ![confirm parent](https://images.wondershare.com/filmora/article-images/a-parent3.jpg)
 
 <!-- affiliate ads begin -->
-<span id="1993654">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993654.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993654">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993654.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993654%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993654/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/2027181/19272" target="_top" id="2027181">
+  <img src="//a.impactradius-go.com/display-ad/19272-2027181" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2027181/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 * 2\. Sign in with your preferred Google account.
@@ -130,23 +117,36 @@ thumbnail: https://thmb.techidaily.com/4a4364521475bc98d43a49b1c82e26ef445f3c795
 
 ![get passcode](https://images.wondershare.com/filmora/article-images/pass-code6.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://bluetties.sjv.io/c/5597632/2141687/17094" target="_top" id="2141687">
+  <img src="//a.impactradius-go.com/display-ad/17094-2141687" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluetties.sjv.io/i/5597632/2141687/17094" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### **II. Block from Watch Page**
 
 * 1\. On the Watch Page tap the dotted **More** option at the top right corner of the video.
 
 ![more option](https://images.wondershare.com/filmora/article-images/more-option7.jpg)
 
+<!-- affiliate ads begin -->
+<span id="701707">
+					<video width="1536" height="864" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/701707.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/7443-701707">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/701707.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:960px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fappsumo.8odi.net%2Fc%2F5597632%2F701707%2F7443'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/701707/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 * 2\. Press the **Block** option.
 * 3\. A dialog box will appear with two options, **Block this video** for blocking only this particular video or **Block this channel** to block the entire channel associated with the video.
 
 ![block this channel](https://images.wondershare.com/filmora/article-images/block-this-channel8.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1484910/16446" target="_top" id="1484910">
-  <img src="//a.impactradius-go.com/display-ad/16446-1484910" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484910/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 * 4\. Select any of the two options and then press **Block** again.
 * 5\. Enter the numbers you calculate from the presented numbers or a custom passcode.
@@ -154,10 +154,16 @@ thumbnail: https://thmb.techidaily.com/4a4364521475bc98d43a49b1c82e26ef445f3c795
 ![get passcode again](https://images.wondershare.com/filmora/article-images/pass-code-again8.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123734/7443" target="_top" id="2123734">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123734" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123734/7443" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1424528">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1424528.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1424528">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424528.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424528%2F16446'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424528/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Conclusion**
@@ -187,17 +193,14 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-tips.techidaily.com/024-approved-chromatic-brilliance-for-video-enthusiasts/"><u>[New] 2024 Approved Chromatic Brilliance for Video Enthusiasts</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ehind-the-scenes-filmmaking-tips-from-youtube-experts-for-2024/"><u>[New] Behind-the-Scenes Filmmaking Tips From YouTube Experts for 2024</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ound-surprises-10-androidios-audio-twisters/"><u>[New] Sound Surprises 10 Android/iOS Audio Twisters</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-elevate-engagement-posting-youtube-video-on-fb/"><u>[Updated] In 2024, Elevate Engagement Posting YouTube Video on FB</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-simplify-crafting-effective-youtube-subscription-buttons-for-2024/"><u>[Updated] Simplify Crafting Effective YouTube Subscription Buttons for 2024</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-twitch-your-way-mastering-twitter-video-livestreaming/"><u>[Updated] Twitch Your Way Mastering Twitter Video Livestreaming</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-unlock-creativity-idea-driven-youtube-channel-titles-for-2024/"><u>[Updated] Unlock Creativity Idea-Driven YouTube Channel Titles for 2024</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/2024-approved-keeping-tabs-on-instagram-unfollows/"><u>2024 Approved Keeping Tabs on Instagram Unfollows</u></a></li>
-<li><a href="https://discover-best.techidaily.com/buy-now-comparing-value-of-dvds-blu-ray-discs-and-digital-media-formats-for-your-viewing-pleasure/"><u>Buy Now: Comparing Value of DVDs, Blu-Ray Discs, and Digital Media Formats for Your Viewing Pleasure</u></a></li>
-<li><a href="https://activate-lock.techidaily.com/in-2024-new-multiple-ways-how-to-remove-icloud-activation-lock-from-your-apple-iphone-7-plus-by-drfone-ios/"><u>In 2024, New Multiple Ways How To Remove iCloud Activation Lock From your Apple iPhone 7 Plus</u></a></li>
-<li><a href="https://ai-vdieo-software.techidaily.com/in-2024-top-10-free-music-production-tools-expert-reviews/"><u>In 2024, Top 10 Free Music Production Tools Expert Reviews</u></a></li>
-<li><a href="https://discover-cloud.techidaily.com/telecharger-et-convertir-des-fichiers-mmf-en-mp3-gratuitement-guide-complet-de-movavi/"><u>Télécharger Et Convertir Des Fichiers MMF en MP3 Gratuitement – Guide Complet De Movavi</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/litz-30-second-guide-to-fast-thumbnails-for-2024/"><u>[New] Blitz 30-Second Guide to Fast Thumbnails for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-capturing-chronos-mastering-phantoms-time-extension-feature-for-2024/"><u>[Updated] Capturing Chronos Mastering Phantom's Time Extension Feature for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-streaming-showdown-best-channels-for-your-audience/"><u>[Updated] Streaming Showdown Best Channels for Your Audience</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/approved-best-screen-reporter-toolkit-for-youtube-streamers/"><u>2024 Approved Best Screen Reporter Toolkit for YouTube Streamers</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/epic-finale-for-virtual-escapades/"><u>Epic Finale for Virtual Escapades</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/fixes-for-chaotic-youtube-list-ordering-for-2024/"><u>Fast Fixes for Chaotic YouTube List Ordering for 2024</u></a></li>
+<li><a href="https://location-social.techidaily.com/how-to-leave-a-life360-group-on-apple-iphone-xr-without-anyone-knowing-drfone-by-drfone-virtual-ios/"><u>How To Leave a Life360 Group On Apple iPhone XR Without Anyone Knowing? | Dr.fone</u></a></li>
+<li><a href="https://apple-account.techidaily.com/in-2024-apple-id-locked-or-disabled-on-iphone-xs-7-mehtods-you-cant-miss-by-drfone-ios/"><u>In 2024, Apple ID Locked or Disabled On iPhone XS? 7 Mehtods You Cant-Miss</u></a></li>
+<li><a href="https://some-skills.techidaily.com/in-2024-unlock-the-secrets-essential-tiktok-video-editing-techniques/"><u>In 2024, Unlock the Secrets Essential TikTok Video Editing Techniques</u></a></li>
 </ul></div>
 

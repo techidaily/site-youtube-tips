@@ -1,7 +1,7 @@
 ---
 title: "[New] Uncover Hidden YouTube Discussions for 2024"
-date: 2024-09-20T16:23:47.502Z
-updated: 2024-09-21T19:50:28.228Z
+date: 2024-10-07T16:35:50.546Z
+updated: 2024-10-09T17:08:56.242Z
 tags:
   - ai video
   - ai youtube
@@ -93,15 +93,22 @@ Everything you have to do now follows the steps below. For the following methods
 ![  YouTube comment  history search ](https://images.wondershare.com/filmora/article-images/youtube-history-comments-menu.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068440/7443" target="_top" id="2068440">
-  <img src="//a.impactradius-go.com/display-ad/7443-2068440" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1948932/19272" target="_top" id="1948932">
+  <img src="//a.impactradius-go.com/display-ad/19272-1948932" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068440/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948932/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 By these basic steps, enjoy editing or deleting your comments and replies directly on YouTube!
 
 However, you will have to scroll down a long way before you hit the end to see your first comment posted on YouTube.
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136619/26400" target="_top" id="2136619">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136619" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136619/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Part 3: How to Find the Latest Comments you have received on YouTube?
 
@@ -120,13 +127,6 @@ These steps are convenient both for pc as well as a mobile app. Just follow thre
 
 * Click on the bell icon at the top right corner and there you would receive notifications regarding all the comment activities. Click on the particular notification to go to that comment.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2049387/7443" target="_top" id="2049387">
-  <img src="//a.impactradius-go.com/display-ad/7443-2049387" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049387/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Bonus: How to Change the Comments View Order?
 
 Did you know you can also customize your comment section as per your need? On the watch page for your video, you can rearrange the order of the comments. You may sort the comments by top comments or by date added. It's just simple steps ahead.
@@ -135,6 +135,13 @@ Did you know you can also customize your comment section as per your need? On th
 * From the left bar, select Content, click a video's thumbnail, and click on Show More in video details page.
 
 ![  YouTube comment  and rating settings ](https://images.wondershare.com/filmora/article-images/set-up-comment-ratings.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082526/7443" target="_top" id="2082526">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082526" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082526/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 * Under 'Comments and ratings,' select Sort by, and then choose between "Top" and "Newest."
 * Save the changes, and you are done!
@@ -148,6 +155,13 @@ The higher your video content's exposure on the internet, the more you'll be inc
 YouTube Comments Finder helps you keep track of the good and bad comments in your videos and definitely helps improve the SEO of your Channel. Thanks to YouTube's advanced tools and websites like Hadzy, YouTube comment Finder, YT Comment Finder and YouTube First Comment Finder, managing third-party interaction is a lot simpler today.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://sentrypc.7eer.net/c/5597632/398455/3022" target="_top" id="398455">
+  <img src="//a.impactradius-go.com/display-ad/3022-398455" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/398455/3022" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -168,5 +182,19 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-tips.techidaily.com/024-approved-dive-into-the-world-of-interactive-video-features-on-youtube/"><u>[New] 2024 Approved Dive Into the World of Interactive Video Features on YouTube</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/n-2024-inviting-support-without-coercion-listeners-guide/"><u>[New] In 2024, Inviting Support Without Coercion Listener's Guide</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-2024-approved-transformational-techniques-bold-borders-on-instagram-photos/"><u>[Updated] 2024 Approved Transformational Techniques Bold Borders on Instagram Photos</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-free-fast-and-reliable-download-your-favorite-youtube-content-for-2024/"><u>[Updated] Free, Fast and Reliable Download Your Favorite YouTube Content for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-in-2024-insta-vid-techniques-scaling-videos-to-perfect-size-in-fcpx/"><u>[Updated] In 2024, Insta-Vid Techniques Scaling Videos to Perfect Size in FCPX</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-visionaryedit-ai-painting-with-digital-brushes-for-2024/"><u>[Updated] VisionaryEdit AI Painting with Digital Brushes for 2024</u></a></li>
+<li><a href="https://fake-location.techidaily.com/complete-tutorial-to-use-vpna-to-fake-gps-location-on-vivo-s17-drfone-by-drfone-virtual-android/"><u>Complete Tutorial to Use VPNa to Fake GPS Location On Vivo S17 | Dr.fone</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/easy-steps-to-recover-deleted-messages-from-camon-20-premier-5g-by-fonelab-android-recover-messages/"><u>Easy steps to recover deleted messages from Camon 20 Premier 5G</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/fun-flair-for-text-memes-with-easy-genrator-for-2024/"><u>Fun Flair for Text Memes with Easy Gen'rator for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/24-how-you-can-get-paid-for-videos/"><u>In 2024, How You Can Get Paid for Videos</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ative-youtube-channel-names-for-the-next-gen-vloggers-and-film-makers-keep-it-under-or-at-156-characters/"><u>Innovative YouTube Channel Names for the Next Gen Vloggers and Film Makers (Keep It Under or at 156 Characters)</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/e-skills-video-comedy-mastery-tips-for-2024/"><u>Satire Skills Video Comedy Mastery Tips for 2024</u></a></li>
+</ul></div>
 
