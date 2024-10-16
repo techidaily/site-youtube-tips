@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] The Easy Way  Adding External YT Videos to Your PowerPoint Sessions\""
-date: 2024-10-08T16:36:44.715Z
-updated: 2024-10-09T17:16:27.921Z
+date: 2024-10-14T19:59:34.388Z
+updated: 2024-10-15T17:15:56.254Z
 tags:
   - ai video
   - ai youtube
@@ -53,20 +53,34 @@ Open your default web browser, go to the YouTube video you want to embed to Powe
 
 ![ embed YouTube video to PowerPoint ](https://images.wondershare.com/filmora/article-images/embed-youtube-video-via-url.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134494/18498" target="_top" id="2134494">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134494" border="0" alt="https://techidaily.com" width="721" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134494/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Launch PowerPoint if it is not already open, go to the slide you want to embed the YouTube video to, click **Insert** from menu bar present above the Ribbon, click **Video** from the **Media** section at the right end of the Ribbon, click **Online Video** from the list that appears, in the **Enter the URL for the online video** field on the **Online Video** box, paste the URL that you copied earlier, and click **Insert** to **insert YouTube video into PowerPoint**.
 
 ![ embed YouTube video to PowerPoint ](https://images.wondershare.com/filmora/article-images/embed-youtube-video-in-powerpoint-via-url-2.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135367/19272" target="_top" id="2135367">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135367" border="0" alt="https://techidaily.com" width="180" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1925468/19272" target="_top" id="1925468">
+  <img src="//a.impactradius-go.com/display-ad/19272-1925468" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135367/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925468/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 **Step 3: Position the Player**
 
 Once the video is added to the PowerPoint slide, drag its frame and reposition it to a suitable location.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115951/19272" target="_top" id="2115951">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115951" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115951/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Method 2: Embed a YouTube Video with Embed Code (For Microsoft PowerPoint 2016)
 
@@ -78,13 +92,6 @@ Go to the YouTube video you want to embed to your PowerPoint slide, click the **
 
 ![ embed YouTube video code to PowerPoint ](https://images.wondershare.com/filmora/article-images/embed-youtube-video-in-powerpoint-via-embed-code.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://malaysia-healthcare-travel-council.pxf.io/c/5597632/1557746/17382" target="_top" id="1557746">
-  <img src="//a.impactradius-go.com/display-ad/17382-1557746" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://malaysia-healthcare-travel-council.pxf.io/i/5597632/1557746/17382" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 **Step 2: Get to the PowerPoint’s Insert Video Box**
 
 Launch MS PowerPoint 2016, click **Insert** from the menu bar at the top, from the **Media** section in the right of the Ribbon, click **Video**, and then click **Online Video** to open the **Insert Video** box.
@@ -92,13 +99,6 @@ Launch MS PowerPoint 2016, click **Insert** from the menu bar at the top, from t
 **Step 3: Embed the Video**
 
 Paste the embed code you copied earlier in the **Paste embed code here** field present next to the **From a Video Embed Code** option, and press **Enter** to **embed YouTube video in PowerPoint**.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151854/7443" target="_top" id="2151854">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151854" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151854/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Method 3: Insert YouTube Video into PowerPoint by Searching Names (For Microsoft PowerPoint 2016)
 
@@ -111,13 +111,6 @@ Use the process explained in **Step 2** of **Method 2** to get to the **Insert V
 **Step 2: Search and Embed a Video**
 
 In the **Search YouTube** field next to the **YouTube** option, type the name of the video you want to search on YouTube, press **Enter**, select the video you want to embed, and click **Insert** to **insert YouTube video into PowerPoint**.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144289/7443" target="_top" id="2144289">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144289" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144289/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Method 4: Insert Video from PC
 
@@ -178,6 +171,13 @@ Although the above sections explain **how to embed a YouTube video in PowerPoint
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://wigfever.sjv.io/c/5597632/2005184/22899" target="_top" id="2005184">
+  <img src="//a.impactradius-go.com/display-ad/22899-2005184" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2005184/22899" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
@@ -199,15 +199,24 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-recording.techidaily.com/new-facebook-photosvideos-the-role-of-watermarks-for-2024/"><u>[New] Facebook Photos/Videos The Role of Watermarks for 2024</u></a></li>
-<li><a href="https://article-helps.techidaily.com/new-in-2024-cutting-edge-motion-cameras-12-now-with-accurate-location-tracking/"><u>[New] In 2024, Cutting-Edge Motion Cameras 12 Now With Accurate Location Tracking</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/n-2024-step-up-video-playback-enable-youtubes-advanced-av1-setting/"><u>[New] In 2024, Step Up Video Playback Enable YouTube's Advanced AV1 Setting</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/aximize-visual-impact-on-youtube-adding-watermarks-and-logo-to-media-content/"><u>[New] Maximize Visual Impact on YouTube Adding Watermarks & Logo to Media Content</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-in-2024-top-10-free-stock-footage-websites-you-should-know/"><u>[Updated] In 2024, Top 10 Free Stock Footage Websites You Should Know</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-the-significance-of-analytics-in-youtube-rank-enhancement-for-2024/"><u>[Updated] The Significance of Analytics in YouTube Rank Enhancement for 2024</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/cookiebot-enhanced-analytics-unleashing-new-possibilities-in-user-tracking/"><u>Cookiebot-Enhanced Analytics: Unleashing New Possibilities in User Tracking</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/corsair-one-pro-review-a-creative-and-efficient-gaming-pc/"><u>Corsair One Pro Review: A Creative and Efficient Gaming PC</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/in-2024-diving-deep-into-the-income-of-ajey-carryminati/"><u>In 2024, Diving Deep Into the Income of Ajey (CarryMinati)</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/smoothly-alter-color-grades-with-luts-abroad/"><u>Smoothly Alter Color Grades with LUTs, Abroad</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/new-2024-approved-7-high-impact-workout-videos-that-engage-and-energize-audiences/"><u>[New] 2024 Approved 7 High-Impact Workout Videos That Engage and Energize Audiences</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-optimizing-youtube-content-for-higher-visibility/"><u>[New] In 2024, Optimizing YouTube Content for Higher Visibility</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-2024-approved-safe-techniques-for-extracting-and-converting-youtube-audio-into-mp3/"><u>[Updated] 2024 Approved Safe Techniques for Extracting and Converting YouTube Audio Into MP3</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-2024-approved-unmatched-setups-worlds-leading-4k-dslr-stands/"><u>[Updated] 2024 Approved Unmatched Setups World's Leading 4K DSLR Stands</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/updated-enjoy-high-quality-pc-audio-recording-install-x-recorder-for-2024/"><u>[Updated] Enjoy High-Quality PC Audio Recording - Install X-Recorder for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-gamings-finest-top-10-gpu-picks-for-clear-online-broadcasts-for-2024/"><u>[Updated] Gaming's Finest Top 10 GPU Picks for Clear Online Broadcasts for 2024</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-in-2024-keeping-content-copyright-compliant-with-instra-watermarking/"><u>[Updated] In 2024, Keeping Content Copyright-Compliant with Instra Watermarking</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-in-2024-revenue-revolution-unlocking-online-income-through-youtube-monetization/"><u>[Updated] In 2024, Revenue Revolution Unlocking Online Income Through YouTube Monetization</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-in-2024-the-art-of-beats-pure-dj-visuals-available-online/"><u>[Updated] In 2024, The Art of Beats Pure DJ Visuals Available Online</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-inside-look-at-youtubes-creator-workshop-space-for-2024/"><u>[Updated] Inside Look at YouTube's Creator Workshop Space for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-proven-ways-for-a-boom-in-youtube-viewership-top-12-methods/"><u>[Updated] Proven Ways for a Boom in YouTube Viewership (Top 12 Methods)</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-your-essential-guide-to-mobile-asmr-sounds-for-2024/"><u>[Updated] Your Essential Guide to Mobile ASMR Sounds for 2024</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/2024-approved-leading-5-digital-recording-devices/"><u>2024 Approved Leading 5 Digital Recording Devices</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/2024-approved-thorough-evaluation-of-frozen-snack-playback-devices/"><u>2024 Approved Thorough Evaluation of Frozen Snack Playback Devices</u></a></li>
+<li><a href="https://review-topics.techidaily.com/how-to-upgrade-iphone-15-plus-without-losing-any-data-drfone-by-drfone-ios-system-repair-ios-system-repair/"><u>How to Upgrade iPhone 15 Plus without Losing Any Data? | Dr.fone</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/24-find-8-digital-hubs-offering-free-green-screen-elements-and-scenes/"><u>In 2024, Find 8 Digital Hubs Offering Free Green-Screen Elements & Scenes</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-top-10-password-cracking-tools-for-xiaomi-mix-fold-3-by-drfone-android/"><u>In 2024, Top 10 Password Cracking Tools For Xiaomi Mix Fold 3</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/troubleshooting-steps-how-to-restore-audio-on-non-working-desktop-speakers/"><u>Troubleshooting Steps: How to Restore Audio on Non-Working Desktop Speakers</u></a></li>
+<li><a href="https://ai-video-apps.techidaily.com/updated-in-2024-video-editing-on-a-shoestring-16-free-and-intuitive-movie-makers/"><u>Updated In 2024, Video Editing on a Shoestring 16 Free and Intuitive Movie Makers</u></a></li>
 </ul></div>
 

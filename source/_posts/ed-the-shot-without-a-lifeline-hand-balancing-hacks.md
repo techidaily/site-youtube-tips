@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] The Shot Without a Lifeline  Hand Balancing Hacks\""
-date: 2024-10-03T17:00:42.308Z
-updated: 2024-10-09T18:19:48.124Z
+date: 2024-10-12T01:04:03.920Z
+updated: 2024-10-15T21:47:09.822Z
 tags:
   - ai video
   - ai youtube
@@ -56,26 +56,32 @@ Here it is with binder clips:
 ![binder clips](https://images.wondershare.com/filmora/article-images/binder-clips.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144288/7443" target="_top" id="2144288">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144288" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2151854/7443" target="_top" id="2151854">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151854" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144288/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151854/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 And here it is with hair clips:
 
 ![hair clips](https://images.wondershare.com/filmora/article-images/hair-clips.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1982457">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982457.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982457">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982457.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982457%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982457/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Now you can set your smartphone upon any stable surface, like a table or a stack of books.
 
  _Here are some more cool ideas!_
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134242/18498" target="_top" id="2134242">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134242" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134242/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### **DIY adjustable tripod using books and a towel**
 
@@ -95,10 +101,10 @@ To get similar functions from the ‘any stable surface’ solution you can use 
 Now if your camera isn’t up high enough, or is too high, you can adjust it just by adding or taking away books. If you want to move it closer or farther away from you, just pull the towel forwards or backward.
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136615/26400" target="_top" id="2136615">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136615" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135416/19272" target="_top" id="2135416">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135416" border="0" alt="https://techidaily.com" width="336" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136615/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135416/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### **DIY gripping ‘Gorillapod’ using wire and tape**
@@ -132,10 +138,10 @@ _Note: make sure the bolt is a fit for your camera before you get too far into t
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1918698/19272" target="_top" id="1918698">
-  <img src="//a.impactradius-go.com/display-ad/19272-1918698" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2006941/19272" target="_top" id="2006941">
+  <img src="//a.impactradius-go.com/display-ad/19272-2006941" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918698/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006941/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -159,22 +165,18 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-access.techidaily.com/new-lush-backdrops-a-treasure-chest-of-free-templates-for-cinematographers/"><u>[New] Lush Backdrops A Treasure Chest of Free Templates for Cinematographers</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/urchase-pitfalls-steering-clear-from-the-seduction-of-false-subscribers/"><u>[New] Purchase Pitfalls Steering Clear From the Seduction of False Subscribers</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-in-2024-structuring-tutorials-for-clarity-on-youtube/"><u>[Updated] In 2024, Structuring Tutorials for Clarity on YouTube</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-in-2024-transform-your-youtube-presence-effortlessly/"><u>[Updated] In 2024, Transform Your YouTube Presence Effortlessly</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-integrating-timestamps-youtube-video-link-enhancement-techniques-for-2024/"><u>[Updated] Integrating Timestamps YouTube Video Link Enhancement Techniques for 2024</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-the-art-of-beats-pure-dj-visuals-available-online/"><u>[Updated] The Art of Beats Pure DJ Visuals Available Online</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/approved-essential-steps-for-chromakey-magic/"><u>2024 Approved Essential Steps for Chromakey Magic</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ubscribers-wisely-watch-your-numbers-soar-for-2024/"><u>Buy Subscribers Wisely, Watch Your Numbers Soar for 2024</u></a></li>
-<li><a href="https://fake-location.techidaily.com/full-guide-to-fix-itoolab-anygo-not-working-on-samsung-galaxy-s23-tactical-edition-drfone-by-drfone-virtual-android/"><u>Full Guide to Fix iToolab AnyGO Not Working On Samsung Galaxy S23 Tactical Edition | Dr.fone</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/in-2024-optimizing-facebook-ads-with-a-structured-triple-layered-copywriting-approach/"><u>In 2024, Optimizing Facebook Ads with a Structured, Triple-Layered Copywriting Approach</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/in-2024-thinking-about-changing-your-netflix-region-without-a-vpn-on-vivo-s17e-drfone-by-drfone-virtual-android/"><u>In 2024, Thinking About Changing Your Netflix Region Without a VPN On Vivo S17e? | Dr.fone</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/24-transform-your-videos-expert-choices-for-thumbnails/"><u>In 2024, Transform Your Videos Expert Choices for Thumbnails</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/in-2024-veiled-viewing-of-facebook-flashbacks/"><u>In 2024, Veiled Viewing of Facebook Flashbacks</u></a></li>
-<li><a href="https://common-error.techidaily.com/resolved-fixing-geforce-experience-cannot-fetch-configurations-issue/"><u>Resolved: Fixing 'GeForce Experience Cannot Fetch Configurations' Issue</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/by-step-editing-and-uploading-360-videos-on-youtube-for-2024/"><u>Step-by-Step Editing & Uploading 360 Videos on YouTube for 2024</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/the-impact-of-advanced-ai-preparing-for-the-arrival-of-gpt-4-in-diy-projects/"><u>The Impact of Advanced AI: Preparing for the Arrival of GPT-4 in DIY Projects</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/top-imei-unlokers-for-your-honor-magic-5-lite-phone-by-drfone-android/"><u>Top IMEI Unlokers for Your Honor Magic 5 Lite Phone</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/rafting-shareable-moments-a-guide-to-enhanced-viewership-in-15-second-videos-for-2024/"><u>[New] Crafting Shareable Moments A Guide to Enhanced Viewership in 15-Second Videos for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-earn-while-playing-games-online/"><u>[New] In 2024, Earn While Playing Games Online</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/new-in-2024-protecting-your-privacy-a-curated-list-of-cam-covers/"><u>[New] In 2024, Protecting Your Privacy A Curated List of Cam Covers</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/updated-2024-approved-best-free-video-calls-featuring-screen-sharing-roundup/"><u>[Updated] 2024 Approved Best Free Video Calls Featuring Screen Sharing Roundup</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-2024-approved-essential-guide-top-10-steps-for-instructors-on-youtube-channels/"><u>[Updated] 2024 Approved Essential Guide Top 10 Steps for Instructors on YouTube Channels</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/updated-2024-approved-mastering-angular-adjustments-in-vlc-player/"><u>[Updated] 2024 Approved Mastering Angular Adjustments in VLC Player</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-2024-approved-scaling-up-content-convert-youtube-to-igtv/"><u>[Updated] 2024 Approved Scaling Up Content Convert YouTube to IGTV</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-audiovisual-standards-for-success-on-youtube-top-format-choices-for-2024/"><u>[Updated] Audiovisual Standards for Success on YouTube – Top Format Choices for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-download-youtube-videos-anywhere-anytime-free-android-tips/"><u>[Updated] In 2024, Download YouTube Videos Anywhere, Anytime Free Android Tips</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-journey-through-visual-innovation-navigating-to-the-top-10-inexpensive-platforms-for-digital-painters/"><u>[Updated] Journey Through Visual Innovation Navigating to the Top 10 Inexpensive Platforms for Digital Painters</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-the-ultimate-guide-to-channel-description-perfection/"><u>[Updated] The Ultimate Guide to Channel Description Perfection</u></a></li>
+<li><a href="https://ai-video-tools.techidaily.com/new-the-best-free-mpeg-video-stitching-software/"><u>New The Best Free MPEG Video Stitching Software</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/understanding-and-correcting-the-update-didnt-work-in-warframe-problem/"><u>Understanding and Correcting the 'Update Didn't Work in Warframe' Problem</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "[New] Tailoring Thumbnails for Increased Video Engagement on YouTube"
-date: 2024-10-06T17:19:25.645Z
-updated: 2024-10-09T17:53:50.876Z
+date: 2024-10-11T00:07:57.496Z
+updated: 2024-10-15T19:52:06.144Z
 tags:
   - ai video
   - ai youtube
@@ -48,10 +48,10 @@ Here are 5 easy tips for creating thumbnails that get views.
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2006933/19272" target="_top" id="2006933">
-  <img src="//a.impactradius-go.com/display-ad/19272-2006933" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136614/26400" target="_top" id="2136614">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136614" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006933/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136614/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## 1\. Have a Consistent Layout
@@ -63,10 +63,17 @@ An example of a standard layout could be you in the middle of the screen wearing
 ![Consistent Layout](https://images.wondershare.com/filmora/article-images/consistent-layout.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151889/7443" target="_top" id="2151889">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151889" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135394/19272" target="_top" id="2135394">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135394" border="0" alt="https://techidaily.com" width="120" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151889/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135394/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2111995/7443" target="_top" id="2111995">
+  <img src="//a.impactradius-go.com/display-ad/7443-2111995" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111995/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **2\. Use Your Face**
@@ -74,13 +81,6 @@ An example of a standard layout could be you in the middle of the screen wearing
 People feel automatically connected and drawn into images that make eye contact. This makes thumbnails which feature faces more click-able than thumbnails which don’t, in most genres (i.e. if you make food videos then this may not apply – featuring the food might be more important than featuring your face). [Check out more tips like this here](https://tools.techidaily.com/wondershare/filmora/download/).
 
 Also, if somebody recognizes you in your thumbnail from a previous video of yours, that will go a long way towards making them click.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135398/19272" target="_top" id="2135398">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135398" border="0" alt="https://techidaily.com" width="250" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135398/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## 3\. Use Graphics/Emojis that are On Topic
 
@@ -107,16 +107,10 @@ Use these tips to make video thumbnails for YouTube, and tell us what kind of re
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<span id="1993650">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993650.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993650">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993650.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993650%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993650/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://electronicx.pxf.io/c/5597632/1167086/14483" target="_top" id="1167086">
+  <img src="//a.impactradius-go.com/display-ad/14483-1167086" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://electronicx.pxf.io/i/5597632/1167086/14483" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -140,20 +134,24 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-tips.techidaily.com/rafting-a-successful-online-business-with-youtube-studio-for-2024/"><u>[New] Crafting a Successful Online Business with Youtube Studio for 2024</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ancefloor-directives-expert-dj-video-downloads/"><u>[New] Dancefloor Directives Expert DJ Video Downloads</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/new-enhance-stories-interaction-with-custom-queries-design/"><u>[New] Enhance Stories Interaction with Custom Queries Design</u></a></li>
-<li><a href="https://fox-http.techidaily.com/new-experience-ultimate-quality-leading-4k-converters-for-2024/"><u>[New] Experience Ultimate Quality Leading 4K Converters for 2024</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/rom-filming-to-sharing-a-youtube-video-edition-for-2024/"><u>[New] From Filming to Sharing A YouTube Video Edition for 2024</u></a></li>
-<li><a href="https://extra-support.techidaily.com/new-palette-perfection-essential-techniques-to-brighten-your-photos/"><u>[New] Palette Perfection Essential Techniques to Brighten Your Photos</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-maximize-your-content-impact-with-insights-from-social-blade-on-youtube-for-2024/"><u>[Updated] Maximize Your Content Impact with Insights From Social Blade on YouTube for 2024</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/updated-reviving-dull-images-the-most-effective-10-web-editing-aids/"><u>[Updated] Reviving Dull Images The Most Effective 10 Web Editing Aids</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-the-premier-selection-of-11-costless-yt-moniker-makers-for-2024/"><u>[Updated] The Premier Selection of 11 Costless YT Moniker Makers for 2024</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/7-ways-to-unlock-a-locked-samsung-galaxy-s23-ultra-phone-by-drfone-android/"><u>7 Ways to Unlock a Locked Samsung Galaxy S23 Ultra Phone</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/designing-your-digital-persona-for-the-metaverse/"><u>Designing Your Digital Persona for the Metaverse</u></a></li>
-<li><a href="https://fox-that.techidaily.com/fixing-iphone-dictation-glitches-a-step-by-step-guide/"><u>Fixing iPhone Dictation Glitches: A Step-by-Step Guide</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/frolicsome-media-repository-for-2024/"><u>Frolicsome Media Repository for 2024</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/24-youtube-playlist-turnaround-a-simple-4-step-plan/"><u>In 2024, YouTube Playlist Turnaround A Simple 4-Step Plan</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/insight-into-the-oneplus-8t-brisk-operations-weighed-down-by-variable-photographic-output/"><u>Insight Into the OnePlus 8T: Brisk Operations Weighed Down by Variable Photographic Output</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-navigating-tiktok-to-twitter-for-2024/"><u>[New] Navigating TikTok to Twitter for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/our-guide-to-smooth-browsing-select-the-top-7-android-adblockers/"><u>[New] Your Guide to Smooth Browsing Select the Top 7 Android AdBlockers</u></a></li>
+<li><a href="https://article-helps.techidaily.com/updated-2024-approved-innovative-drone-designs-always-on-your-side/"><u>[Updated] 2024 Approved Innovative Drone Designs Always on Your Side</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-2024-approved-livestream-titans-clash-facebook-live-and-youtube-vs-twitter-spaces/"><u>[Updated] 2024 Approved Livestream Titans Clash Facebook LIVE & YouTube Vs. Twitter Spaces</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-2024-approved-visualize-success-discover-the-top-10-online-tools-for-channel-branding/"><u>[Updated] 2024 Approved Visualize Success - Discover the Top 10 Online Tools for Channel Branding</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-in-2024-exclusive-access-to-premium-playlists-on-mobile-devices/"><u>[Updated] In 2024, Exclusive Access to Premium Playlists on Mobile Devices</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-in-2024-how-to-record-good-audio-without-a-microphone/"><u>[Updated] In 2024, How to Record Good Audio Without a Microphone</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-leveraging-youtube-trailers-for-optimal-revenue-generation/"><u>[Updated] Leveraging YouTube Trailers for Optimal Revenue Generation</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-the-complete-analysts-toolkit-for-tracking-youtube-audiences-and-money-flow/"><u>[Updated] The Complete Analyst's Toolkit for Tracking YouTube Audiences & Money Flow</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/approved-craft-a-vibrant-youtube-experience-with-tracks/"><u>2024 Approved Craft a Vibrant Youtube Experience with Tracks</u></a></li>
+<li><a href="https://some-tips.techidaily.com/2024-approved-ultimate-resource-list-of-3d-fonts-online/"><u>2024 Approved Ultimate Resource List of 3D Fonts Online</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/hashtags-for-youtube-to-get-your-views-to-6-figures/"><u>Best Hashtags for YouTube To Get Your Views to 6 Figures</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/essential-criteria-for-selecting-an-optimal-gaming-machine/"><u>Essential Criteria for Selecting an Optimal Gaming Machine</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/in-2024-expert-recommended-steadicams-for-professional-dslr-work/"><u>In 2024, Expert-Recommended Steadicams for Professional DSLR Work</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/innovative-techniques-for-keeping-your-cellphone-charged-off-grid/"><u>Innovative Techniques for Keeping Your Cellphone Charged Off-Grid</u></a></li>
+<li><a href="https://ai-video-apps.techidaily.com/new-2024-approved-unleashing-the-magic-top-lego-stop-motion-artists/"><u>New 2024 Approved Unleashing the Magic Top Lego Stop Motion Artists</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/to-navigate-the-world-of-free-iphoneipad-edits-for-2024/"><u>Tips to Navigate the World of Free iPhone/iPad Edits for 2024</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/unlocking-zooms-potential-by-leveraging-skype/"><u>Unlocking Zoom's Potential by Leveraging Skype</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/tga-bmp/"><u>무료 인터넷 용인 - TGA 폴리스타일을 BMP으로 전환하기</u></a></li>
 </ul></div>
 

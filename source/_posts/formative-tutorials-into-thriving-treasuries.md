@@ -1,7 +1,7 @@
 ---
 title: "Transformative Tutorials Into Thriving Treasuries"
-date: 2024-10-04T16:18:37.253Z
-updated: 2024-10-09T18:12:31.267Z
+date: 2024-10-10T20:25:43.060Z
+updated: 2024-10-16T00:40:45.321Z
 tags:
   - ai video
   - ai youtube
@@ -78,6 +78,13 @@ It's easy to get started on YouTube. Go to the website, set up a free account, a
 
 A niche is a more specific topic than your normal interests and therefore requires more thought and research. Finding a niche means narrowing down what you're passionate about and what you're good at and carving out a community of viewers who want what you're offering. Once you figure out your niche, the next step is to create content that suits your niche and what you want to share.
 
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139119/17108" target="_top" id="2139119">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139119" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139119/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Consistency and patience
 
 Another thing that makes vlogging a successful business is consistency. Vloggers who put out new content every week or even every day may get a lot of views. A consistent schedule means you can produce new videos that will retain people's interest and keep them returning for more. Also, YouTube algorithms favor timely, fresh, and well-made videos. You must be patient and wait to get the attention of YouTube's algorithm.
@@ -131,13 +138,6 @@ Download now on [Windows](https://tools.techidaily.com/wondershare/filmora/downl
 
 Let’s assume you have created the Vlog content. Now, we want you to understand the methods of how you can earn income with vlogging.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135352/19272" target="_top" id="2135352">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135352" border="0" alt="https://techidaily.com" width="160" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135352/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Part 3: Common Methods of Vlogging Income
 
 We've seen so much misinformation about how to make money via vlogging. This makes it hard to figure out what works and what doesn't. There are so many ways to make money vlogging, and it takes a lot of trial and error to find what works for you. Let's break down the main ways to make money vlogging into different categories.
@@ -145,13 +145,6 @@ We've seen so much misinformation about how to make money via vlogging. This mak
 ### YouTube Ads
 
 ![youtube advertising](https://images.wondershare.com/filmora/article-images/2022/11/how-to-start-a-vlog-and-make-money-6.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2123508/26400" target="_top" id="2123508">
-  <img src="//a.impactradius-go.com/display-ad/26400-2123508" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2123508/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Ad revenue comes from advertisers who pay to show their brand message across the top of the video. Advertisers choose which ads are displayed, so don't let a video with few views make you think you can't make money with your videos. The key is to monetize your content and become eligible for Youtube ads.
 
@@ -169,24 +162,50 @@ Vloggers also use their videos to demonstrate how a product should be used and a
 
 ![youtube affiliate marketing](https://images.wondershare.com/filmora/article-images/2022/11/how-to-start-a-vlog-and-make-money-8.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1918703/19272" target="_top" id="1918703">
-  <img src="//a.impactradius-go.com/display-ad/19272-1918703" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918703/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Affiliate marketing is another form of monetization for online video bloggers. In affiliate marketing, bloggers earn commissions by referring traffic to affiliate products through affiliate links. The goal of affiliate marketing is to drive sales and build a sustainable source of revenue, whether it's through Amazon, Google, or other platforms.
+
+<!-- affiliate ads begin -->
+<span id="1983584">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983584.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983584">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983584.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983584%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983584/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Patreon
 
 ![support on patreon](https://images.wondershare.com/filmora/article-images/2022/11/how-to-start-a-vlog-and-make-money-9.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://united.elfm.net/c/5597632/2139563/4704" target="_top" id="2139563">
+  <img src="//a.impactradius-go.com/display-ad/4704-2139563" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://united.elfm.net/i/5597632/2139563/4704" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Patreon is another option, and if done correctly, it can turn a niche blog into a revenue source, which is great for bloggers and vloggers alike. By creating a Patreon account, you are allowing people to donate money to help support your content creation. In return, you offer rewards to supporters of your channel. Rewards could include extra content, merchandise, access to private forums, or even free ebooks.
 
 ### Sell your service or products
 
 ![sell products or services](https://images.wondershare.com/filmora/article-images/2022/11/how-to-start-a-vlog-and-make-money-10.jpg)
+
+<!-- affiliate ads begin -->
+<span id="1975562">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1975562.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1975562">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975562.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975562%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975562/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 With over 1 billion monthly active users, there's an opportunity for content creators to make money by selling their products or services. You could sell your physical products to your audience as a vlogger. The best method this can be done is by creating an online store that sells T-shirts and mugs with your branding. Make sure those products must be related to your niche or channel category. As for services, you could also offer tips on improving your life, starting an online business, or even becoming a successful Youtuber!
 
@@ -209,14 +228,14 @@ Here are the top 10 highest paid vloggers on YouTube, according to Forbes:
 | 9\. Logan Paul        | 245 million       |
 | 10\. Preston Arsement | 20 million        |
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134243/18498" target="_top" id="2134243">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134243" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134243/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Hot FAQs on How To Start a Vlog and Make Money
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135407/19272" target="_top" id="2135407">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135407" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135407/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 1\. Is daily vlogging worth it?
 
@@ -258,13 +277,6 @@ So, let's be honest; most vloggers focus on the wrong audience. Most vloggers th
 
 It seems that more and more vloggers are doing videos today. However, so many vloggers aren't making money because they are trying to solve problems that no one wants to hear about! Make videos on the problem many people want to know about; they will want to see what you are saying—resulting in more views and money.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2043856/7443" target="_top" id="2043856">
-  <img src="//a.impactradius-go.com/display-ad/7443-2043856" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043856/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### What solutions am I offering? Are these solutions both financially viable for you and in line with the needs of your target audience?
 
 The internet provides many tools and resources to help vloggers find a job or business. Youtubers provide quality content, but some fall short of providing solutions. As a vlogger, it is your job to help potential clients identify what solution you are offering. You must be able to prove your expertise. You need to see if you're addressing the target audience's needs.
@@ -290,13 +302,6 @@ And to do that, you must try [Wondershare Filmora](https://tools.techidaily.com/
 **[Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/)**
 
 ![wondershare filmora 11](https://images.wondershare.com/filmora/article-images/2022/11/how-to-start-a-vlog-and-make-money-5.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2080347/19272" target="_top" id="2080347">
-  <img src="//a.impactradius-go.com/display-ad/19272-2080347" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2080347/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 This game-changing editor helps you create amazing videos by offering effects and features designed explicitly for Youtube videos.
 
@@ -357,9 +362,23 @@ While the vlogger market is still young, brands are starting to recognize its en
 
 Vloggers also use their videos to demonstrate how a product should be used and answer questions about the brand, its products, and services. As well as they will often provide some insight into a product or service through creative storytelling.
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2123511/26400" target="_top" id="2123511">
+  <img src="//a.impactradius-go.com/display-ad/26400-2123511" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2123511/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Affiliate Marketing
 
 ![youtube affiliate marketing](https://images.wondershare.com/filmora/article-images/2022/11/how-to-start-a-vlog-and-make-money-8.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1934188/19272" target="_top" id="1934188">
+  <img src="//a.impactradius-go.com/display-ad/19272-1934188" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934188/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Affiliate marketing is another form of monetization for online video bloggers. In affiliate marketing, bloggers earn commissions by referring traffic to affiliate products through affiliate links. The goal of affiliate marketing is to drive sales and build a sustainable source of revenue, whether it's through Amazon, Google, or other platforms.
 
@@ -394,13 +413,6 @@ Here are the top 10 highest paid vloggers on YouTube, according to Forbes:
 | 9\. Logan Paul        | 245 million       |
 | 10\. Preston Arsement | 20 million        |
 
-<!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/857865/11832" target="_top" id="857865">
-  <img src="//a.impactradius-go.com/display-ad/11832-857865" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/857865/11832" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Hot FAQs on How To Start a Vlog and Make Money
 
 ### 1\. Is daily vlogging worth it?
@@ -414,16 +426,10 @@ However, many vloggers have found that it isn't easy to stick to the routine. Yo
 There isn't a specific topic for vlogging. The best topics to cover on any vlog can be the vlogger's most interesting thing of his life, what he loves doing, what makes him feel like making a difference in the community, or what he wants people to remember about the vlog. It all comes down to a person's personality, interests, and preferences.
 
 <!-- affiliate ads begin -->
-<span id="1982461">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982461.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982461">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982461.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982461%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982461/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2112008/7443" target="_top" id="2112008">
+  <img src="//a.impactradius-go.com/display-ad/7443-2112008" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2112008/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 3\. What equipment do I need to start vlogging?
@@ -461,22 +467,24 @@ So, in summary, if you want to become a vlogger, you will need to figure out how
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-tips.techidaily.com/n-2024-the-ultimate-guide-youtube-mp3-converters-ranked/"><u>[New] In 2024, The Ultimate Guide YouTube Mp3 Converters Ranked</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/new-in-2024-total-clarification-googles-podcast-application-simplified/"><u>[New] In 2024, Total Clarification Google's Podcast Application Simplified</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/new-quick-guide-capturing-moments-with-snap-in-real-time-conferencing-for-2024/"><u>[New] Quick Guide Capturing Moments with Snap in Real-Time Conferencing for 2024</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/he-secret-to-skyrocketing-revenue-crafting-engaging-video-trailers/"><u>[New] The Secret to Skyrocketing Revenue Crafting Engaging Video Trailers</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/updated-firefoxs-leading-screen-snapshot-apps-for-2024/"><u>[Updated] Firefox's Leading Screen Snapshot Apps for 2024</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-in-2024-epic-audio-essentials-top-10-for-trending-yt-shorts/"><u>[Updated] In 2024, Epic Audio Essentials Top 10 for Trending YT Shorts</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-in-2024-ultimate-selection-10-budget-friendly-youtube-caption-tools/"><u>[Updated] In 2024, Ultimate Selection 10 Budget-Friendly YouTube Caption Tools</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-unlisted-youtube-explained-beyond-the-main-channels-for-2024/"><u>[Updated] Unlisted YouTube Explained Beyond the Main Channels for 2024</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-youtube-thumbnail-design-on-macos-unveiled-for-2024/"><u>[Updated] YouTube Thumbnail Design on macOS Unveiled for 2024</u></a></li>
-<li><a href="https://fox-links.techidaily.com/2024-approved-navigating-10-essential-stages-for-proficient-smm-expertise/"><u>2024 Approved Navigating 10 Essential Stages for Proficient SMM Expertise</u></a></li>
-<li><a href="https://howto.techidaily.com/7-fixes-for-unfortunately-phone-has-stopped-on-realme-11-proplus-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>7 Fixes for Unfortunately, Phone Has Stopped on Realme 11 Pro+ | Dr.fone</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/delete-gmail-account-withwithout-password-on-vivo-v27-by-drfone-android/"><u>Delete Gmail Account With/Without Password On Vivo V27</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/raw-to-refined-your-guide-to-youtube-video-edits/"><u>From Raw to Refined Your Guide to YouTube Video Edits</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/how-to-unlock-sim-cards-of-itel-a60s-without-puk-codes-by-drfone-android/"><u>How To Unlock SIM Cards Of Itel A60s Without PUK Codes</u></a></li>
-<li><a href="https://review-topics.techidaily.com/in-2024-how-to-fake-gps-on-nokia-c12-pro-for-mobile-legends-drfone-by-drfone-virtual-android/"><u>In 2024, How To Fake GPS On Nokia C12 Pro For Mobile Legends? | Dr.fone</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/mastering-typography-how-to-customize-font-styles-in-windows-11/"><u>Mastering Typography: How to Customize Font Styles in Windows 11</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ltimate-tutorial-on-editing-youtube-videos/"><u>The Ultimate Tutorial on Editing YouTube Videos</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/rom-couch-to-camera-earning-through-personal-vlogging/"><u>[New] From Couch-to-Camera Earning Through Personal Vlogging</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/nside-track-on-calculating-your-youtube-impact-and-income-for-2024/"><u>[New] Inside Track on Calculating Your YouTube Impact and Income for 2024</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-2024-approved-free-online-subtitle-converters-our-recommended-10/"><u>[Updated] 2024 Approved Free Online Subtitle Converters Our Recommended 10</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-2024-approved-the-definitive-guide-for-effective-and-smooth-youtube-video-uploads/"><u>[Updated] 2024 Approved The Definitive Guide for Effective and Smooth YouTube Video Uploads</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-bridging-mac-and-monetization-imovie-editing-to-youtube-success-for-2024/"><u>[Updated] Bridging Mac & Monetization IMovie Editing to YouTube Success for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-how-tos-selecting-free-powerful-iphoneipad-edits-for-2024/"><u>[Updated] How-To's Selecting Free, Powerful iPhone/iPad Edits for 2024</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-in-2024-cut-to-the-chase-top-5-chrome-plugins-for-snagging-facebook-videos-fast/"><u>[Updated] In 2024, Cut to the Chase Top 5 Chrome Plugins for Snagging Facebook Videos Fast</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/updated-in-2024-the-path-to-larger-video-presentation-in-youtube/"><u>[Updated] In 2024, The Path to Larger Video Presentation in YouTube</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-strategies-for-personalizing-your-youtube-shorts-templates-for-2024/"><u>[Updated] Strategies for Personalizing Your YouTube Shorts Templates for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-the-cash-flow-of-creative-content-youtubers-earnings-per-sponsored-video-in-2024/"><u>[Updated] The Cash Flow of Creative Content Youtuber's Earnings per Sponsored Video, In 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-the-ultimate-guide-to-converting-youtube-to-avi-videos/"><u>[Updated] The Ultimate Guide to Converting YouTube to AVI Videos</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-unveiling-the-youtube-creator-hub-a-guide-for-2024/"><u>[Updated] Unveiling the YouTube Creator Hub A Guide for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-your-daily-diary-staying-fresh-and-avoiding-common-mistakes/"><u>[Updated] Your Daily Diary Staying Fresh & Avoiding Common Mistakes</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/bespoke-chatbot-through-gpt-development-journey/"><u>Bespoke Chatbot Through GPT Development Journey</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/guide-to-permanently-eliminating-your-yahoo-email-account-a-comprehensive-tutorial/"><u>Guide to Permanently Eliminating Your Yahoo Email Account: A Comprehensive Tutorial</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/how-to-mirror-apple-iphone-8-to-roku-drfone-by-drfone-ios/"><u>How to Mirror Apple iPhone 8 to Roku? | Dr.fone</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-10-easy-to-use-frp-bypass-tools-for-unlocking-google-accounts-on-vivo-v30-by-drfone-android/"><u>In 2024, 10 Easy-to-Use FRP Bypass Tools for Unlocking Google Accounts On Vivo V30</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/perfecting-the-art-of-subtle-sound-enhancements-in-lumafusion-for-2024/"><u>Perfecting the Art of Subtle Sound Enhancements in Lumafusion for 2024</u></a></li>
+<li><a href="https://printer-issues.techidaily.com/steps-to-troubleshoot-unresponsive-hp-printers/"><u>Steps to Troubleshoot Unresponsive HP Printers</u></a></li>
 </ul></div>
 

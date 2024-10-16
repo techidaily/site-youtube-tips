@@ -1,7 +1,7 @@
 ---
 title: "[New] In 2024, Make Your Own YouTube Opening & Closing Graphics"
-date: 2024-10-02T16:26:54.334Z
-updated: 2024-10-09T16:58:45.449Z
+date: 2024-10-12T00:06:56.852Z
+updated: 2024-10-15T21:47:52.839Z
 tags:
   - ai video
   - ai youtube
@@ -83,10 +83,10 @@ You can create a simple intro card in **Filmora**.
 8. Export your video and save it for use in all of your other videos.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1934183/19272" target="_top" id="1934183">
-  <img src="//a.impactradius-go.com/display-ad/19272-1934183" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2100538/7443" target="_top" id="2100538">
+  <img src="//a.impactradius-go.com/display-ad/7443-2100538" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934183/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100538/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 2: End Cards
@@ -125,10 +125,10 @@ Some creators will leave their end cards at that and play music overtop, but it 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2112007/7443" target="_top" id="2112007">
-  <img src="//a.impactradius-go.com/display-ad/7443-2112007" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2068439/7443" target="_top" id="2068439">
+  <img src="//a.impactradius-go.com/display-ad/7443-2068439" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2112007/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068439/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Shanoon Cox
@@ -152,17 +152,24 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-videos.techidaily.com/new-best-practices-elevating-your-virtual-identity-on-facebook-for-2024/"><u>[New] Best Practices Elevating Your Virtual Identity on Facebook for 2024</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/n-2024-capturing-the-unseen-9-must-have-camgear-for-aspiring-vloggers/"><u>[New] In 2024, Capturing the Unseen 9 Must-Have CamGear for Aspiring Vloggers</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ocial-media-magic-viral-trends-in-youtube-hashing/"><u>[New] Social Media Magic Viral Trends in YouTube Hashing</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/updated-2024-approved-mastering-media-locate-your-latest-favorites-on-facebook/"><u>[Updated] 2024 Approved Mastering Media Locate Your Latest Favorites on Facebook</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/updated-in-2024-best-camera-for-videos-mirrorless-vs-dslr-showdown/"><u>[Updated] In 2024, Best Camera for Videos Mirrorless Vs. DSLR Showdown</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-online-oasis-youtubes-finest-yoga-retreats-for-2024/"><u>[Updated] Online Oasis YouTube's Finest Yoga Retreats for 2024</u></a></li>
-<li><a href="https://vimeo-videos.techidaily.com/updated-optimizing-vimeo-playback-speed/"><u>[Updated] Optimizing Vimeo Playback Speed</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-the-pathway-to-discover-your-youtube-supporters-for-2024/"><u>[Updated] The Pathway to Discover Your YouTube Supporters for 2024</u></a></li>
-<li><a href="https://fox-that.techidaily.com/guide-6-effective-fixes-for-family-sharing-hurdles-on-ios-devices/"><u>Guide: 6 Effective Fixes for Family Sharing Hurdles on iOS Devices</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ring-cinematography-youtube-guides-by-aspiring-directors/"><u>Mastering Cinematography YouTube Guides by Aspiring Directors</u></a></li>
-<li><a href="https://win11.techidaily.com/solving-windows-steam-sync-issue/"><u>Solving Windows Steam Sync Issue</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/top-free-essential-applications-for-the-nexus-7-tablet-and-kindle-fire-devices/"><u>Top Free Essential Applications for the Nexus 7 Tablet & Kindle Fire Devices</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/new-in-2024-audio-archive-collect-and-examine-music-files/"><u>[New] In 2024, Audio Archive Collect & Examine Music Files</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/new-in-2024-exposing-the-accelerating-path-of-8-youtube-content-creators/"><u>[New] In 2024, Exposing the Accelerating Path of 8 YouTube Content Creators</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-initiating-your-online-journey-a-step-by-step-guide-to-youtube/"><u>[New] In 2024, Initiating Your Online Journey A Step-by-Step Guide to YouTube</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-perfect-recording-tool-for-exceptional-youtube-videos/"><u>[New] In 2024, Perfect Recording Tool For Exceptional YouTube Videos</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-2024-approved-sculpting-waterway-content-with-flair/"><u>[Updated] 2024 Approved Sculpting Waterway Content with Flair</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-in-2024-creative-loss-unexpectedly-banished-vid/"><u>[Updated] In 2024, Creative Loss Unexpectedly Banished Vid</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-methodology-incorporating-youtube-playlists-into-a-websites-structure/"><u>[Updated] Methodology Incorporating YouTube Playlists Into a Website's Structure</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-perfect-asmr-recording-top-mic-choices-unveiled/"><u>[Updated] Perfect ASMR Recording Top Mic Choices Unveiled</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-the-formula-for-fast-tracking-to-a-thousand-subscribers-for-2024/"><u>[Updated] The Formula for Fast-Tracking to a Thousand Subscribers for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/approved-from-youtube-to-excitement-easy-guide-to-making-animated-gifs/"><u>2024 Approved From YouTube to Excitement Easy Guide to Making Animated GIFS</u></a></li>
+<li><a href="https://hardware-reviews.techidaily.com/amd-ryzen-reviewed-how-zen-5-elevates-gaming-performance-with-the-ryzen-5-9600x-and-ryzen-7-9700x/"><u>AMD Ryzen Reviewed: How Zen 5 Elevates Gaming Performance with the Ryzen 5 9600X and Ryzen 7 9700X</u></a></li>
+<li><a href="https://win-answers.techidaily.com/are-you-experiencing-connectivity-issues-with-xbox-live/"><u>Are You Experiencing Connectivity Issues with Xbox Live?</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/24-snippet-supremacy-essential-hashes-for-accelerated-viewership-growth/"><u>In 2024, Snippet Supremacy Essential Hashes for Accelerated Viewership Growth</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/innovative-tips-for-multisnap-creation-on-snapchat/"><u>Innovative Tips for Multisnap Creation on Snapchat</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/nsights-fifa-content-on-youtube-charted/"><u>Key Insights FIFA Content on YouTube Charted</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/-screen-recording-tech-for-youtube-broadcasts-for-2024/"><u>Prime Screen Recording Tech for YouTube Broadcasts for 2024</u></a></li>
+<li><a href="https://common-error.techidaily.com/small-cell-lung-cancer-sclc-tends-to-be-more-aggressive-with-poorer-outcomes-compared-to-nsclcs/"><u>Small Cell Lung Cancer (SCLC) Tends to Be More Aggressive with Poorer Outcomes Compared to NSCLCs</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ltimate-guide-to-choosing-stunning-thumbnail-fonts/"><u>The Ultimate Guide to Choosing Stunning Thumbnail Fonts</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/update-your-arduino-hardware-new-usb-driver-options-for-pcs/"><u>Update Your Arduino Hardware: New USB Driver Options for PCs</u></a></li>
 </ul></div>
 

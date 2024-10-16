@@ -1,7 +1,7 @@
 ---
 title: "[New] In 2024, How to View YouTube Statistics?"
-date: 2024-10-03T16:43:05.108Z
-updated: 2024-10-09T16:23:21.256Z
+date: 2024-10-13T01:03:46.036Z
+updated: 2024-10-16T00:53:30.269Z
 tags:
   - ai video
   - ai youtube
@@ -70,16 +70,16 @@ In order to check which of your videos are performing the best, click on **Watch
 The two main types of analytics reports are Watch Time Reports and Interaction Reports.
 
 <!-- affiliate ads begin -->
-<span id="1977020">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1977020.png"
+<span id="1834906">
+					<video width="864" height="864" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1834906.png"
            onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1977020">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977020.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	   <source src="//a.impactradius-go.com/display-ad/16836-1834906">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1834906.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
 	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977020%2F22993'), '_blank');void(0);">Click here</a></div>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2F25home.pxf.io%2Fc%2F5597632%2F1834906%2F16836'), '_blank');void(0);">Click here</a></div>
 </span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977020/22993" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1834906/16836" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 1. Interpreting YouTube Watch Time Reports
@@ -95,13 +95,6 @@ Alongside watch time you can see the average duration individual viewers are wat
 In the watch time reports for individual videos, you will be able to see data on where your views are coming from and which demographics are watching the most. Where your viewers are watching, in terms of desktop or mobile, is also interesting data that is available in this section.
 
 Click here for more tips on[increasing your views](https://www.filmora.io/community-blog/12-proven-ways-to-increase-youtube-views-315.html).
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2137395/7443" target="_top" id="2137395">
-  <img src="//a.impactradius-go.com/display-ad/7443-2137395" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137395/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 2. Interpreting YouTube Interaction Reports
 
@@ -128,10 +121,10 @@ Interaction reports can be broken down into several different reports that can h
 **7\. 360 heat map reports:** A heat map report works specifically with 360° videos if you are choosing to engage your audience with this type of content. Viewing YouTube video statistics for 360° heat maps will help to show the areas on your video that viewers are most interested in.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1997690/19272" target="_top" id="1997690">
-  <img src="//a.impactradius-go.com/display-ad/19272-1997690" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://wigfever.sjv.io/c/5597632/2014851/22899" target="_top" id="2014851">
+  <img src="//a.impactradius-go.com/display-ad/22899-2014851" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997690/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014851/22899" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## How to View Other Peoples YouTube Statistics
@@ -141,6 +134,19 @@ If you want to check out the statistics of rival YouTube channels ([including th
 Now that you know how to view YouTube statistics, what will you do with them?
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<span id="1993652">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1993652.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1993652">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993652.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993652%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993652/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -163,17 +169,20 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-info.techidaily.com/new-enhance-creativity-on-chrome-os-top-10-digital-pencil-stores/"><u>[New] Enhance Creativity on Chrome OS Top 10 Digital Pencil Stores</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-2024-approved-best-microphone-for-youtubers/"><u>[Updated] 2024 Approved Best Microphone for YouTubers</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-master-your-youtube-thumbnail-size-and-ratio-for-2024/"><u>[Updated] Master Your YouTube Thumbnail Size & Ratio for 2024</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/updated-next-gen-gameplay-logging-alternatives-to-fbx-for-2024/"><u>[Updated] Next-Gen Gameplay Logging Alternatives to FBX for 2024</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-protecting-integrity-while-boosting-your-youtube-followers-count/"><u>[Updated] Protecting Integrity While Boosting Your YouTube Followers Count</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-your-pathway-to-stellar-intros-on-mobile-devices-for-2024/"><u>[Updated] Your Pathway to Stellar Intros on Mobile Devices for 2024</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/gratis-online-konverter-fur-cr2-zu-bmp-mit-movavi-schnelle-und-einfache-umwandlung/"><u>Gratis Online Konverter Für CR2 Zu BMP Mit Movavi - Schnelle Und Einfache Umwandlung</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/in-2024-how-to-reset-a-vivo-y36i-phone-that-is-locked-by-drfone-android/"><u>In 2024, How to Reset a Vivo Y36i Phone that is Locked?</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/in-2024-leading-virtual-reality-enhancements-for-gamers/"><u>In 2024, Leading Virtual Reality Enhancements for Gamers</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/simplifying-tough-office-communications-how-to-employ-chatgpt-for-email-writing-excellence/"><u>Simplifying Tough Office Communications: How to Employ ChatGPT for Email Writing Excellence</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ning-edges-strategic-lighting-for-content-creators-for-2024/"><u>Softening Edges Strategic Lighting for Content Creators for 2024</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/top-25-social-stars-essential-instagram-icons-for-2024/"><u>Top 25 Social Stars Essential Instagram Icons for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/024-approved-mastering-video-privacy-directly-share-yt-clips-using-googleid/"><u>[New] 2024 Approved Mastering Video Privacy Directly Share YT Clips Using GoogleID</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-a-step-by-step-approach-to-discard-youtube-watch-later-items/"><u>[Updated] A Step-by-Step Approach to Discard YouTube Watch Later Items</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-download-youtube-videos-to-mp4-without-breaching-laws/"><u>[Updated] Download YouTube Videos to MP4 without Breaching Laws</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-irreversible-termination-of-youtubes-brevity-mode-for-2024/"><u>[Updated] Irreversible Termination of YouTube’s Brevity Mode for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-simplify-your-video-sharing-with-our-youtube-upload-strategy/"><u>[Updated] Simplify Your Video Sharing with Our YouTube Upload Strategy</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-stream-video-smoothly-save-pcmac-screens-to-youtube/"><u>[Updated] Stream Video Smoothly Save PC/Mac Screens to YouTube</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-telltale-signs-your-chat-is-hidden-for-2024/"><u>[Updated] Telltale Signs Your Chat Is Hidden for 2024</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/updated-top-corporate-cloud-storage-platforms/"><u>[Updated] Top Corporate Cloud Storage Platforms</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/2024-approved-essential-peaceful-pc-game-list/"><u>2024 Approved Essential Peaceful PC Game List</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/approved-youtube-introduction-design-made-simple-and-inexpensive/"><u>2024 Approved YouTube Introduction Design Made Simple and Inexpensive</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/approved-youtube-revenue-verification-confirming-pro-rated-earnings/"><u>2024 Approved YouTube Revenue Verification Confirming Pro-Rated Earnings</u></a></li>
+<li><a href="https://discover-cloud.techidaily.com/comment-configurer-un-serveur-de-restauration-dans-windows-server-2008-r2-guide-complet/"><u>Comment Configurer Un Serveur De Restauration Dans Windows Server 2008 R2 : Guide Complet</u></a></li>
+<li><a href="https://driver-download.techidaily.com/expert-advice-on-fixing-connectivity-issues-with-lg-devices-and-their-drivers-on-windows-machines/"><u>Expert Advice on Fixing Connectivity Issues with LG Devices and Their Drivers on Windows Machines</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/how-to-fix-corsair-icue-not-working-on-windows-1011/"><u>How to Fix Corsair iCUE Not Working on Windows 10/11</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/the-insiders-roadmap-to-seamless-cloud-gaming-with-xbox-game-pass-ultimate/"><u>The Insider's Roadmap to Seamless Cloud Gaming with Xbox Game Pass Ultimate</u></a></li>
 </ul></div>
 

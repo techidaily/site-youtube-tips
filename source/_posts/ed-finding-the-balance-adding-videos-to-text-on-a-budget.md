@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Finding the Balance  Adding Videos to Text on a Budget\""
-date: 2024-10-02T16:53:20.504Z
-updated: 2024-10-09T17:18:58.936Z
+date: 2024-10-09T00:37:06.826Z
+updated: 2024-10-15T18:16:46.392Z
 tags:
   - ai video
   - ai youtube
@@ -55,13 +55,6 @@ Click on the Insert tab, and then choose the Video option from the Media menu. Y
 
 You can then fine-tune the video playback settings from the Playback tab. Preview the results before you move on to the next slide in your presentation, and make necessary adjustments if you don’t like how the video merged with the text.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151859/7443" target="_top" id="2151859">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151859" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151859/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Part 2: Adding Video to Text in Filmora
 
 Besides presentation software, you can also use video editing software products to add a video to text. Filmora lets you add a video to text in just a few simple steps. You can first make a text video with animation first, and then use the picture in picture feature to add the video to text. Here are the detailed information about how to add a video to text in Filmora.
@@ -72,15 +65,22 @@ You should start by creating a new project in Filmora and importing the video yo
 
 ![Add video to text - Filmora9](https://images.wondershare.com/filmora/article-images/add-title-effects.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/2137973/21526" target="_top" id="2137973">
+  <img src="//a.impactradius-go.com/display-ad/21526-2137973" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://zebaoaffiliateprogram.pxf.io/i/5597632/2137973/21526" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Set the preferred duration of the title by dragging one of its ends to the left or right after you place it on the timeline, and then double-click on it to customize it. Click on the Advanced button once the Text tab opens and insert the text into the Input Text box.
 
 ![Add video to text - Filmora9 Advanced Editing](https://images.wondershare.com/filmora/article-images/make-text-video-advanced-text-edit.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087390/7443" target="_top" id="2087390">
-  <img src="//a.impactradius-go.com/display-ad/7443-2087390" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2094414/7443" target="_top" id="2094414">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094414" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087390/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094414/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Proceed to select a font and adjust the text size before deciding if you want to [animate the text](https://tools.techidaily.com/wondershare/filmora/download/). When done, you should export the title as a video file, and then import it back into your project.
@@ -90,10 +90,10 @@ Now it’s time to add the text video and the background video to the project me
 ![Add video to text - Filmora9 Compositing](https://images.wondershare.com/filmora/article-images/compositing-video-9.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134239/18498" target="_top" id="2134239">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134239" border="0" alt="https://techidaily.com" width="721" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2151873/7443" target="_top" id="2151873">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151873" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134239/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151873/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Click on the video that contains text to gain access to the Video tab of the Editor panel and then expand the Compositing menu. Change the Blending Mode to Multiply, and the text in the overlaying video should be filled with the parts of the footage from the video below it.
@@ -109,16 +109,10 @@ Merging text with video is equally easy in PowerPoint and Filmora, so you just h
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
 
 <!-- affiliate ads begin -->
-<span id="1977032">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1977032.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1977032">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977032.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977032%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977032/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2094477/7443" target="_top" id="2094477">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094477" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094477/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Liza Brown
@@ -142,20 +136,22 @@ Follow @Liza Brown
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-tips.techidaily.com/issecting-youtube-revenue-how-much-do-you-earning-from-adsense-per-kv-for-2024/"><u>[New] Dissecting YouTube Revenue How Much Do You Earning From AdSense per KV for 2024</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/new-top-strategies-for-scaling-your-instagram-tv-content-for-2024/"><u>[New] Top Strategies for Scaling Your Instagram TV Content for 2024</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/new-troubleshoot-mute-audio-in-tweeted-vids/"><u>[New] Troubleshoot Mute Audio in Tweeted Vids</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/updated-in-2024-from-concept-to-completion-utilizing-luts-effectively-in-premiere-pro/"><u>[Updated] In 2024, From Concept to Completion Utilizing LUTs Effectively in Premiere Pro</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-the-art-of-youtube-shorts-filming-and-editing-made-simple/"><u>[Updated] The Art of YouTube Shorts Filming and Editing Made Simple</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/2024-approved-premiere-smart-goggles-craftsmen/"><u>2024 Approved Premiere Smart Goggles Craftsmen</u></a></li>
-<li><a href="https://howto.techidaily.com/9-quick-fixes-to-unfortunately-touchwiz-has-stopped-of-oppo-find-n3-flip-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>9 Quick Fixes to Unfortunately TouchWiz has stopped Of Oppo Find N3 Flip | Dr.fone</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/comprehensive-steps-for-transferring-your-youtube-creations-onto-tiktok/"><u>Comprehensive Steps for Transferring Your YouTube Creations Onto TikTok</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/exploring-windows-11s-revolutionary-features-in-recent-patch/"><u>Exploring Windows 11'S Revolutionary Features in Recent Patch</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ied-design-making-your-youtube-banner-unforgettable-for-2024/"><u>Gamified Design Making Your YouTube Banner Unforgettable for 2024</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/24-how-to-add-edit-and-optimize-youtube-tagstitledescription-for-more-views/"><u>In 2024, How to Add, Edit and Optimize YouTube Tags/Title/Description for More Views</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ating-sustainable-communities-within-the-concrete-jungle/"><u>Innovating Sustainable Communities Within the Concrete Jungle</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/premium-video-guide-top-15-youtube-channels-for-ultimate-product-reviews/"><u>Premium Video Guide Top 15 YouTube Channels for Ultimate Product Reviews</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/reviving-your-roku-experience-how-to-activate-missing-subtitles/"><u>Reviving Your Roku Experience – How To Activate Missing Subtitles</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ring-video-dimensions-on-youtube-a-users-guide-to-perfect-uploads-for-2024/"><u>Tailoring Video Dimensions on YouTube A User's Guide to Perfect Uploads for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/5-online-audio-haven-sites-for-video-content-makers-for-2024/"><u>[New] 15 Online Audio Haven Sites for Video Content Makers for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-streamlining-revenue-adsense-tips-for-youtubers/"><u>[New] In 2024, Streamlining Revenue AdSense Tips for YouTubers</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-best-youtube-names-generators-plus-how-to-brainstorm-for-2024/"><u>[Updated] Best YouTube Names Generators [+ How to Brainstorm] for 2024</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/updated-macwebcam-tutorial-filming-basics-decoded/"><u>[Updated] MacWebCam Tutorial Filming Basics Decoded</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-maximizing-youtube-profits-strategies-for-revenue-growth-for-2024/"><u>[Updated] Maximizing YouTube Profits Strategies for Revenue Growth for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-topline-numbers-pewdiepies-yearly-income-for-2024/"><u>[Updated] Topline Numbers PewDiePie's Yearly Income for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/approved-essential-techniques-for-youtube-end-screen-designs/"><u>2024 Approved Essential Techniques for YouTube End Screen Designs</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/approved-gamer-wealth-wave-the-year-ahead/"><u>2024 Approved Gamer Wealth Wave The Year Ahead</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/canon-imageclass-mf4800-printer-support-download-essential-drivers-now/"><u>Canon ImageCLASS MF4800 Printer Support: Download Essential Drivers Now</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/debunking-ai-dependence-for-financial-data-study/"><u>Debunking AI Dependence for Financial Data Study</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ting-your-gameplay-on-youtube-with-these-essential-tags-for-2024/"><u>Elevating Your Gameplay on YouTube with These Essential Tags for 2024</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/essential-criteria-when-opting-for-ai-based-psychological-assistance-via-chatgpt/"><u>Essential Criteria When Opting for AI-Based Psychological Assistance via ChatGPT</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-9-mind-blowing-tricks-to-hatch-eggs-in-pokemon-go-without-walking-on-xiaomi-redmi-12-5g-drfone-by-drfone-virtual-android/"><u>In 2024, 9 Mind-Blowing Tricks to Hatch Eggs in Pokemon Go Without Walking On Xiaomi Redmi 12 5G | Dr.fone</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/24-crafting-captivating-openings-top-free-intra-makers-list/"><u>In 2024, Crafting Captivating Openings Top Free Intra Makers List</u></a></li>
+<li><a href="https://ios-location-track.techidaily.com/in-2024-top-9-apple-iphone-6s-monitoring-apps-for-parental-controls-drfone-by-drfone-virtual-ios/"><u>In 2024, Top 9 Apple iPhone 6s Monitoring Apps for Parental Controls | Dr.fone</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/samsung-galaxy-s8-setting-new-standards-for-4k-video-for-2024/"><u>Samsung Galaxy S8 Setting New Standards for 4K Video for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/next-favorite-channel-for-global-adventures-for-2024/"><u>Your Next Favorite Channel for Global Adventures for 2024</u></a></li>
 </ul></div>
 

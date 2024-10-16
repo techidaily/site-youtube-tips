@@ -1,7 +1,7 @@
 ---
 title: "How to Edit Youtube Videos by the YouTube Video Editor"
-date: 2024-10-06T16:30:42.965Z
-updated: 2024-10-09T16:38:12.155Z
+date: 2024-10-13T00:47:05.484Z
+updated: 2024-10-15T19:23:28.787Z
 tags:
   - ai video
   - ai youtube
@@ -60,10 +60,10 @@ Now, download it now to have a try!
 ## How to Use YouTube Video Editor to Edit Video on YouTube
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135405/19272" target="_top" id="2135405">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135405" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2080342/19272" target="_top" id="2080342">
+  <img src="//a.impactradius-go.com/display-ad/19272-2080342" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135405/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2080342/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Step 1. Get access to YouTube Video Editor
@@ -102,13 +102,6 @@ To cut or split your video, hover over the target clip and hit the scissor icon 
 
 ![youtube video editor](https://images.wondershare.com/topic/video-editing/youtube-video-editor-split.png "youtube video editor trim video")
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135351/19272" target="_top" id="2135351">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135351" border="0" alt="https://techidaily.com" width="125" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135351/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 #### #2 Change video settings
 
 YouTube Video Editor also provides the "Quick fixes" function which does a quick analysis of the video and tweaks its color, brightness, and contrast settings automatically.
@@ -117,24 +110,37 @@ You can just double click the video to enter the "Quick fixes" tab and easily ch
 
 ![youtube video editor](https://images.wondershare.com/topic/video-editing/youtube-video-editor-fix.png "youtube video editor")
 
+<!-- affiliate ads begin -->
+<span id="1516072">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1516072.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1516072">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1516072.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1516072%2F16446'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1516072/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 #### #3 Add filters
 
 You can also add stunning video filters provided by this editor. To get access this function, double click the video and switch to the "Filter" tab.
 
 ![youtube video editor](https://images.wondershare.com/topic/video-editing/youtube-video-editor-filters.png "youtube video editor")
 
+<!-- affiliate ads begin -->
+<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/2137972/21526" target="_top" id="2137972">
+  <img src="//a.impactradius-go.com/display-ad/21526-2137972" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://zebaoaffiliateprogram.pxf.io/i/5597632/2137972/21526" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 #### #4 Add text to video
 
 To add text to video, go to the "Text" tab, tick "Enable text" and enter the text to the text column. Then customize the font, size, color, position of the text as you like.
 
 ![youtube video editor](https://images.wondershare.com/topic/video-editing/youtube-video-editor-add-text.png "how to edit a youtube video")
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2129740/7443" target="_top" id="2129740">
-  <img src="//a.impactradius-go.com/display-ad/7443-2129740" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2129740/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 #### #5 Add music to video
 
@@ -143,10 +149,10 @@ YouTube also allows you to swap out the audio with one of its licensed tracks. T
 ![youtube video editor tip](https://images.wondershare.com/images/multimedia/video-editor/add-music-youtube.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144287/7443" target="_top" id="2144287">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144287" border="0" alt="https://techidaily.com" width="600" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2105870/7443" target="_top" id="2105870">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105870" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144287/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105870/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Note: You should note that some are songs are subject to licensing agreements, which means YouTube will automatically add advertisements to the video clip.
@@ -170,10 +176,10 @@ Download it now to have a try!
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075483/7443" target="_top" id="2075483">
-  <img src="//a.impactradius-go.com/display-ad/7443-2075483" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2105873/7443" target="_top" id="2105873">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105873" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075483/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105873/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -197,19 +203,24 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://extra-information.techidaily.com/new-accessibility-achieved-the-simple-setup-of-ifunny-app/"><u>[New] Accessibility Achieved The Simple Setup of iFunny App</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/n-2024-essential-strategies-for-effective-content-management-in-creator-studio/"><u>[New] In 2024, Essential Strategies for Effective Content Management in Creator Studio</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/new-in-2024-streamline-capturing-and-saving-tweets-visuals-on-android/"><u>[New] In 2024, Streamline Capturing and Saving Tweets' Visuals on Android</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/n-2024-turn-onoff-youtube-feedback-settings-with-this-guide/"><u>[New] In 2024, Turn On/Off YouTube Feedback Settings With This Guide</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-2024-approved-maximize-earnings-navigating-youtubes-partner-program-updates/"><u>[Updated] 2024 Approved Maximize Earnings Navigating YouTube's Partner Program Updates</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-essential-gif-tool-guide-tips-from-the-experts/"><u>[Updated] Essential GIF Tool Guide Tips From the Experts</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-in-2024-charting-your-course-in-youtubing-dodge-these-top-8-common-missteps/"><u>[Updated] In 2024, Charting Your Course in YouTubing Dodge These Top 8 Common Missteps!</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/updated-in-2024-easycast-essential-steps-for-beginner-podcast-streamers/"><u>[Updated] In 2024, EasyCast Essential Steps for Beginner Podcast Streamers</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/44cm5lia55uu556t54s277ya44oa44km44og5yuv55s744oa44km44oz44ot44o844oj5oml6acg5yig5p6q44cn/"><u>「一目瞭然：ダウム動画ダウンロード手順分析」</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/expert-insights-on-constructing-high-quality-srt-files/"><u>Expert Insights on Constructing High-Quality SRT Files</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/how-to-screen-mirroring-oppo-find-x6-pro-drfone-by-drfone-android/"><u>How to Screen Mirroring Oppo Find X6 Pro? | Dr.fone</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ssentials-for-climbing-the-youtube-popularity-ladder-for-2024/"><u>SEO Essentials for Climbing the YouTube Popularity Ladder for 2024</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/the-ultimate-screen-recorder-showdown-testing-recmeister/"><u>The Ultimate Screen Recorder Showdown Testing Recmeister</u></a></li>
-<li><a href="https://hardware-reviews.techidaily.com/toms-tech-insights-in-depth-reviews-on-electronic-components-and-gadgets/"><u>Tom's Tech Insights: In-Depth Reviews on Electronic Components & Gadgets</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/levate-your-video-voyage-navigating-the-world-of-youtube-links/"><u>[New] Elevate Your Video Voyage Navigating the World of YouTube Links</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-perfect-ending-for-youtubers-best-practices-and-pro-files/"><u>[New] In 2024, Perfect Ending for YouTubers Best Practices and Pro Files</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/he-ultimate-guide-to-creating-click-enticing-youtube-thumbnails/"><u>[New] The Ultimate Guide to Creating Click-Enticing YouTube Thumbnails</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-2024-approved-simplified-path-to-mastery-in-using-cc-licenses/"><u>[Updated] 2024 Approved Simplified Path to Mastery in Using CC Licenses</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/updated-enhancing-collaboration-the-synergy-between-zoom-and-skype/"><u>[Updated] Enhancing Collaboration The Synergy Between ZOOM and SKYPE</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-enhancing-comments-with-emojis-on-youtube-for-2024/"><u>[Updated] Enhancing Comments with Emojis on YouTube for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-leveraging-famebits-expertise-for-maximum-youtube-affiliate-gains/"><u>[Updated] Leveraging FameBit's Expertise for Maximum YouTube Affiliate Gains</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-ultimate-guide-to-find-youtube-templates-vids/"><u>[Updated] Ultimate Guide to Find Youtube Templates Vids</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/2024-approved-decoding-the-modern-content-creators-dilemma/"><u>2024 Approved Decoding the Modern Content Creator's Dilemma</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/approved-elevate-your-channel-identity-essential-youtube-naming-strategies/"><u>2024 Approved Elevate Your Channel Identity Essential YouTube Naming Strategies</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/2024-approved-maximizing-mobile-smartphones-and-youtube-success/"><u>2024 Approved Maximizing Mobile Smartphones & YouTube Success</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/o-deal-with-youtube-trolls-and-negative-comments-for-2024/"><u>How To Deal with YouTube Trolls and Negative Comments for 2024</u></a></li>
+<li><a href="https://techidaily.com/how-to-transfer-data-from-apple-iphone-13-pro-max-to-others-devices-drfone-by-drfone-transfer-data-from-ios-transfer-data-from-ios/"><u>How To Transfer Data From Apple iPhone 13 Pro Max To Others devices? | Dr.fone</u></a></li>
+<li><a href="https://article-files.techidaily.com/in-2024-effortless-photo-excellence-at-your-fingertips-for-free/"><u>In 2024, Effortless Photo Excellence at Your Fingertips - For Free</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/24-nine-crucial-strategies-to-elevate-your-youtube-presence/"><u>In 2024, Nine Crucial Strategies to Elevate Your Youtube Presence</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/master-list-of-premium-ai-tools-enhancing-note-efficiency/"><u>Master List of Premium AI Tools Enhancing Note Efficiency</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/mastering-the-binkw32dll-troubleshooting-process-for-flawless-operations/"><u>Mastering the binkw32.dll Troubleshooting Process for Flawless Operations</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/navigate-through-idea-stagnation-with-these-5-ai-assistants/"><u>Navigate Through Idea Stagnation With These 5 AI Assistants</u></a></li>
+<li><a href="https://video-ai-editor.techidaily.com/ultimate-guide-to-downloading-the-best-free-360-degree-viewer-software-for-windows-11-and-mac-systems/"><u>Ultimate Guide to Downloading the Best Free 360 Degree Viewer Software for Windows 11 and Mac Systems</u></a></li>
 </ul></div>
 

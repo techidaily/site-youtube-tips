@@ -1,7 +1,7 @@
 ---
 title: "[New] In 2024, The Affordable Art of YouTube Intros/Ends"
-date: 2024-09-20T20:05:51.227Z
-updated: 2024-09-21T23:53:53.800Z
+date: 2024-10-08T17:39:43.069Z
+updated: 2024-10-15T23:53:22.002Z
 tags:
   - ai video
   - ai youtube
@@ -82,6 +82,13 @@ You can create a simple intro card in **Filmora**.
 7. The last piece of your intro is sound. You can choose a song from Filmora’s library and cut it down to five seconds, or import your sound effect.
 8. Export your video and save it for use in all of your other videos.
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134246/18498" target="_top" id="2134246">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134246" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134246/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 2: End Cards
 
 When your video ends, YouTube will recommend a selection of videos users may want to watch next. Often, these recommendations will not include more of your videos.
@@ -117,6 +124,13 @@ Some creators will leave their end cards at that and play music overtop, but it 
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2087262/19272" target="_top" id="2087262">
+  <img src="//a.impactradius-go.com/display-ad/19272-2087262" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2087262/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Shanoon Cox
 
 Shanoon Cox is a writer and a lover of all things video.
@@ -136,12 +150,20 @@ Follow @Shanoon Cox
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139109/17108" target="_top" id="2139109">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139109" border="0" alt="https://techidaily.com" width="320" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139109/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-record-videos.techidaily.com/new-crafting-the-perfect-schedule-for-jobs-and-youtube-for-2024/"><u>[New] Crafting the Perfect Schedule for Jobs & YouTube for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/lawless-soundscape-secrets-to-high-resolution-audio-recording-for-2024/"><u>[New] Flawless Soundscape Secrets to High-Resolution Audio Recording for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-2024-approved-amplify-youtube-visibility-crafting-effective-descriptions-and-tags/"><u>[Updated] 2024 Approved Amplify YouTube Visibility Crafting Effective Descriptions & Tags</u></a></li>
+<li><a href="https://extra-information.techidaily.com/updated-advanced-zooming-methods-for-distance-communication-with-msteams/"><u>[Updated] Advanced Zooming Methods for Distance Communication with MSTEAMS</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-avoiding-poverty-earning-in-beauty-media/"><u>[Updated] Avoiding Poverty Earning in Beauty Media</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-ideal-culmination-in-virtual-ventures-for-2024/"><u>[Updated] Ideal Culmination in Virtual Ventures for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-innovating-interaction-beyond-vidcon-conclaves/"><u>[Updated] Innovating Interaction Beyond VidCon Conclaves</u></a></li>
+<li><a href="https://video-capture.techidaily.com/updated-step-into-the-future-the-best-10-free-video-call-applications/"><u>[Updated] Step Into the Future The Best 10 FREE Video Call Applications</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-the-economics-of-youtube-ad-revenues-per-1000-views/"><u>[Updated] The Economics of YouTube Ad Revenues per 1000 Views</u></a></li>
+<li><a href="https://extra-information.techidaily.com/experience-audio-freedom-with-pazeras-2024-tools-review/"><u>Experience Audio Freedom with Pazera's 2024 Tools Review</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/in-2024-conquering-social-media-with-ig-videos-planning-an-optimal-strategy/"><u>In 2024, Conquering Social Media with IG Videos Planning an Optimal Strategy</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/quick-and-simple-guide-transform-your-avi-videos-into-mp4-for-free-using-a-web-based-tool/"><u>Quick and Simple Guide: Transform Your AVI Videos Into MP4 for Free Using a Web-Based Tool</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/restarting-success-fixing-a-non-responsive-sound-blaster-microphone/"><u>Restarting Success: Fixing a Non-Responsive Sound Blaster Microphone</u></a></li>
+</ul></div>
 

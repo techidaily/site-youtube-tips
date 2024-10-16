@@ -1,7 +1,7 @@
 ---
 title: "[Updated] In 2024, Crafting Charismatic Videos with DIY Camera Setups"
-date: 2024-10-03T17:00:58.377Z
-updated: 2024-10-09T17:02:36.757Z
+date: 2024-10-12T18:07:43.406Z
+updated: 2024-10-15T20:35:49.049Z
 tags:
   - ai video
   - ai youtube
@@ -59,10 +59,10 @@ Objects and people that just make it into the sides of the frame will appear mor
 If you look closely into Sean’s eyes, you can also see a specular highlight in the shape of a circle. Many people like the way eyes look against a ring light.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1885947/19272" target="_top" id="1885947">
-  <img src="//a.impactradius-go.com/display-ad/19272-1885947" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://wigfever.sjv.io/c/5597632/2014854/22899" target="_top" id="2014854">
+  <img src="//a.impactradius-go.com/display-ad/22899-2014854" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1885947/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014854/22899" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 2.  Medium Vlog Set-Up
@@ -88,10 +88,10 @@ If you look back at the 39-second mark of deadmau5’s Masterclass trailer, you 
 With two people, though, you’ll want to set up your mic slightly differently. Rather than using a directional shotgun mic with a narrow area of sensitivity, you’ll want to use a directional mic with a wider area of sensitivity.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2043593/7443" target="_top" id="2043593">
-  <img src="//a.impactradius-go.com/display-ad/7443-2043593" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1975841/19272" target="_top" id="1975841">
+  <img src="//a.impactradius-go.com/display-ad/19272-1975841" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043593/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1975841/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 4.  Long Teleprompter Vlog Set-Up
@@ -110,6 +110,13 @@ It is difficult to know whether the movement in his eyes is caused by not being 
 
 Looking to find the right lights for your video recording set? Check out our [Top 17 Video Lighting Equipment For YouTubers](https://www.filmora.io/community-blog/top-17-video-lighting-equipment-for-youtubers-440.html).
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2080317/19272" target="_top" id="2080317">
+  <img src="//a.impactradius-go.com/display-ad/19272-2080317" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2080317/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Tips for Making a Talking Head Video Better
 
 To make a talking-head video more interesting, you can add some background music to the video, apply some interesting texts or elements. [Filmora](https://tools.techidaily.com/wondershare/filmora/download/) has built-in royalty-free music tracks and sound effects as well as [text templates](https://tools.techidaily.com/wondershare/filmora/download/), filters and motivating elements. Download the free trial version below and release your creativity.
@@ -117,20 +124,13 @@ To make a talking-head video more interesting, you can add some background music
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151882/7443" target="_top" id="2151882">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151882" border="0" alt="https://techidaily.com" width="600" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2016170/19272" target="_top" id="2016170">
+  <img src="//a.impactradius-go.com/display-ad/19272-2016170" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151882/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2016170/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1938693/19272" target="_top" id="1938693">
-  <img src="//a.impactradius-go.com/display-ad/19272-1938693" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938693/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -153,19 +153,24 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://remote-screen-capture.techidaily.com/new-find-the-perfect-video-collaboration-app-our-choice-of-10-free-tools/"><u>[New] Find the Perfect Video Collaboration App Our Choice of 10 Free Tools</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/n-2024-the-easy-guide-to-youtube-to-avi-conversion-technology/"><u>[New] In 2024, The Easy Guide to YouTube-to-AVI Conversion Technology</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/n-2024-trimming-tactics-for-time-strapped-youtubers/"><u>[New] In 2024, Trimming Tactics for Time-Strapped YouTubers</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-high-end-hardware-unveiled-by-gaming-influencers-for-2024/"><u>[Updated] High-End Hardware Unveiled by Gaming Influencers for 2024</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-in-2024-immediate-youtube-earnings-projections/"><u>[Updated] In 2024, Immediate YouTube Earnings Projections</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/updated-mastery-over-picture-in-picture-for-improved-productivity/"><u>[Updated] Mastery over Picture In Picture for Improved Productivity</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-personalized-video-setups-a-beginners-guide-to-selfies-on-youtube/"><u>[Updated] Personalized Video Setups A Beginner's Guide to Selfies on YouTube</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/brand-protection-effective-techniques-for-instagram-watermarks-for-2024/"><u>Brand Protection Effective Techniques for Instagram Watermarks for 2024</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/desktop-capture-the-windows-user-guide-for-2024/"><u>Desktop Capture The Windows User Guide for 2024</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/discovering-your-macbooks-serial-code-a-step-by-step-guide/"><u>Discovering Your MacBook's Serial Code: A Step-by-Step Guide</u></a></li>
-<li><a href="https://extra-information.techidaily.com/harnessing-the-power-of-movie-maker-in-windows-8/"><u>Harnessing the Power of Movie Maker in Windows 8</u></a></li>
-<li><a href="https://android-location.techidaily.com/in-2024-how-to-fake-gps-on-android-without-mock-location-for-your-nokia-c02-drfone-by-drfone-virtual/"><u>In 2024, How to Fake GPS on Android without Mock Location For your Nokia C02 | Dr.fone</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/se-viewing-crafts-creative-youtube-video-methods/"><u>Reverse Viewing Crafts Creative Youtube Video Methods</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/rs-guide-embedding-images-in-articles-without-spending-for-2024/"><u>Writers' Guide Embedding Images in Articles Without Spending for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-funnies-in-a-flash-top-10-quick-and-quirky-video-concepts-for-youtubers/"><u>[New] In 2024, Funnies in a Flash Top 10 Quick & Quirky Video Concepts for YouTubers</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-unearth-pristine-stock-media-from-selective-4-youtube-hubs/"><u>[New] In 2024, Unearth Pristine Stock Media From Selective 4 YouTube Hubs</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-unveil-your-video-potential-streaming-google-meet-to-youtube-guide/"><u>[New] In 2024, Unveil Your Video Potential Streaming Google Meet to YouTube Guide</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/wift-introduction-the-art-of-green-screening/"><u>[New] Swift Introduction The Art of Green Screening</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-the-impact-of-music-on-a-trailers-emotional-pull-for-2024/"><u>[New] The Impact of Music on a Trailer's Emotional Pull for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-2024-approved-unleash-your-inner-star-bold-steps-for-youtube-success/"><u>[Updated] 2024 Approved Unleash Your Inner Star Bold Steps for YouTube Success</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-in-2024-a-simple-path-to-enhanced-youtube-sign-ups-create-animated-subscription-bar-using-filmora/"><u>[Updated] In 2024, A Simple Path to Enhanced YouTube Sign-Ups - Create Animated Subscription Bar Using Filmora</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-in-2024-unlock-easy-paths-for-exceptional-yt-thumbnails/"><u>[Updated] In 2024, Unlock Easy Paths for Exceptional YT Thumbnails</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-top-8-authentic-youtube-boosting-platforms-for-2024/"><u>[Updated] Top 8 Authentic YouTube Boosting Platforms for 2024</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/2024-approved-accelerate-footage-leading-android-apps/"><u>2024 Approved Accelerate Footage Leading Android Apps</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/2024-approved-action-camera-bargains-selecting-top-6-for-under-100-costs/"><u>2024 Approved Action Camera Bargains Selecting Top 6 for Under $100 Costs</u></a></li>
+<li><a href="https://article-posts.techidaily.com/2024-approved-srs-mastery-innovative-conversion-techniques/"><u>2024 Approved SRS Mastery Innovative Conversion Techniques</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/approved-youthful-youtube-ventures-crafting-creative-videos-on-a-mac/"><u>2024 Approved Youthful YouTube Ventures Crafting Creative Videos on a Mac</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/how-to-check-distance-and-radius-on-google-maps-for-your-tecno-camon-20-premier-5g-drfone-by-drfone-virtual-android/"><u>How to Check Distance and Radius on Google Maps For your Tecno Camon 20 Premier 5G | Dr.fone</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-thinking-about-changing-your-netflix-region-without-a-vpn-on-oppo-reno-10-proplus-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Thinking About Changing Your Netflix Region Without a VPN On Oppo Reno 10 Pro+ 5G? | Dr.fone</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-ways-to-stop-parent-tracking-your-htc-u23-pro-drfone-by-drfone-virtual-android/"><u>In 2024, Ways to stop parent tracking your HTC U23 Pro | Dr.fone</u></a></li>
+<li><a href="https://sound-optimizing.techidaily.com/new-in-2024-global-top-rated-mp3-editing-applications/"><u>New In 2024, Global Top-Rated MP3 Editing Applications</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/step-by-step-solutions-for-the-persistent-0x80n0490-windows-update-failure/"><u>Step-by-Step Solutions for the Persistent 0X80n0490 Windows Update Failure</u></a></li>
+<li><a href="https://video-capture.techidaily.com/techniques-for-ensuring-quality-screen-recording-in-facetime-chats-for-2024/"><u>Techniques for Ensuring Quality Screen-Recording in FaceTime Chats for 2024</u></a></li>
 </ul></div>
 

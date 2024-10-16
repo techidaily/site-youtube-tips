@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] The Beginner's Blueprint  Steering Clear of the 8 Most Regrettable YouTubing Mistakes\""
-date: 2024-10-05T16:42:36.252Z
-updated: 2024-10-09T17:11:50.811Z
+date: 2024-10-10T21:35:40.451Z
+updated: 2024-10-15T20:58:35.823Z
 tags:
   - ai video
   - ai youtube
@@ -38,10 +38,10 @@ In the ten years that I’ve been a YouTuber, I’ve made a lot of mistakes. I l
 ###  
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087389/7443" target="_top" id="2087389">
-  <img src="//a.impactradius-go.com/display-ad/7443-2087389" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://wigfever.sjv.io/c/5597632/2014854/22899" target="_top" id="2014854">
+  <img src="//a.impactradius-go.com/display-ad/22899-2014854" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087389/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014854/22899" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 1\. Failing to have a long-term vision
@@ -51,10 +51,10 @@ One common mistake that a lot of new YouTubers make is failing to have a long-te
 If you can think of the kind of content you’ll love to consistently create and share in the long-run, you’ll not only be able to narrow down your brand and effectively communicate to your audience who you are and what your channel is all about, but you’ll also have a better idea on what to put out next.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082532/7443" target="_top" id="2082532">
-  <img src="//a.impactradius-go.com/display-ad/7443-2082532" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2111981/7443" target="_top" id="2111981">
+  <img src="//a.impactradius-go.com/display-ad/7443-2111981" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082532/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111981/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 2\. Choosing an ineffective custom URL
@@ -63,6 +63,13 @@ Another mistake I made with my first YouTube channel was choosing an ineffective
 
 Choose a custom URL with words that can’t be confused with other similar-sounding words. For consistency across all your different social media accounts, try to choose a custom URL that matches the usernames of all your other social media channels. If the username you want isn’t available, then keep on trying to come up with a good name that is available. When you’ve secured the same username across all your different social media channels, you can then very simply promote yourself and all your social media channels by displaying just the social media icons followed by your one username.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1938698/19272" target="_top" id="1938698">
+  <img src="//a.impactradius-go.com/display-ad/19272-1938698" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938698/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 3\. Coming up with titles that won't get searched
 
 Many new YouTubers make the mistake of titling their videos in an ineffective way. Rather than coming up with titles that more people might search, they either come up with titles that summarize what the video is about as a whole or title their videos the way big YouTubers do.
@@ -70,6 +77,13 @@ Many new YouTubers make the mistake of titling their videos in an ineffective wa
 Big YouTubers can take advantage of non-searched, curiosity evoking titles like “You won’t believe what just happened…” because they already have a huge following. Their channels aren’t depending on getting discovered through search. But yours is. So come up with titles that people are actually searching.
 
 As an example, let's suppose you vlogged your time backpacking around Europe last summer. Don't title your YouTube video "My Summer Backpacking Trip." Instead, title it "Going Up The Eiffel Tower | Beautiful View of Paris!" This way, all the people who are curious about visiting Paris, the Eiffel Tower, and seeing what the view is like from the top of the Eiffel Tower might find your video.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144297/7443" target="_top" id="2144297">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144297" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144297/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 4\. Failing to have a thumbnail strategy
 
@@ -84,13 +98,6 @@ After you’ve managed to get someone to click on your video through your effect
 New YouTubers often make the mistake of having weak intros. Starting at the beginning of a story makes sense, right? The beginning, however, is not always the most exciting. Consequently, new YouTubers lose their audience’s attention too early on.
 
 To read more on how some of the most successful YouTubers effectively do their intros, check out my blogpost on “[How To Edit YouTube Videos Like a YouTuber](https://tools.techidaily.com/wondershare/filmora/download/).”
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115921/19272" target="_top" id="2115921">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115921" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115921/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 6\. Forgetting to engage with subscribers
 
@@ -114,13 +121,6 @@ Spam comments annoy YouTubers. It would be much more beneficial to your channel 
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2043856/7443" target="_top" id="2043856">
-  <img src="//a.impactradius-go.com/display-ad/7443-2043856" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043856/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
@@ -142,18 +142,21 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-tips.techidaily.com/n-2024-top-10-tunes-turned-into-wit-wonders/"><u>[New] In 2024, Top 10 Tunes Turned Into Wit Wonders</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/nfolding-wonders-your-practical-guide-to-travel-vlogging/"><u>[New] Unfolding Wonders Your Practical Guide to Travel Vlogging</u></a></li>
-<li><a href="https://article-posts.techidaily.com/updated-nightly-narratives-analyzing-video-based-storytelling/"><u>[Updated] Nightly Narratives Analyzing Video-Based Storytelling</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-the-essential-blueprint-to-compiling-youtube-soundscape/"><u>[Updated] The Essential Blueprint to Compiling YouTube Soundscape</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-video-platform-review-is-vimeo-best-over-youtubes-and-dailymotions/"><u>[Updated] Video Platform Review Is Vimeo Best Over YouTubes and DailyMotions?</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/conquer-coding-repair-x-script-in-ragnarok/"><u>Conquer Coding: Repair X-Script in Ragnarok</u></a></li>
-<li><a href="https://common-error.techidaily.com/fixing-the-opengl-issue-1281-a-comprehensive-walkthrough/"><u>Fixing the OpenGL Issue 1281 - A Comprehensive Walkthrough</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-transfer-contacts-from-vivo-v29e-to-outlook-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Contacts from Vivo V29e to Outlook | Dr.fone</u></a></li>
-<li><a href="https://fix-guide.techidaily.com/in-2024-how-to-pause-life360-location-sharing-for-infinix-note-30-vip-racing-edition-drfone-by-drfone-virtual-android/"><u>In 2024, How To Pause Life360 Location Sharing For Infinix Note 30 VIP Racing Edition | Dr.fone</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/in-2024-online-tools-for-dynamic-aspect-adjustment/"><u>In 2024, Online Tools for Dynamic Aspect Adjustment</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/in-2024-prime-selection-of-simple-effective-gamers-edit-tools/"><u>In 2024, Prime Selection of Simple, Effective Gamers' Edit Tools</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/24-tagging-techniques-to-skyrocket-your-game-vids/"><u>In 2024, Tagging Techniques to Skyrocket Your Game Vids</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/24-top-9-free-video-channel-logomakers-showcase-reviewed/"><u>In 2024, Top 9 Free Video Channel Logomakers Showcase Reviewed</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-cropping-and-styling-tips-for-standout-instagram-videos-for-2024/"><u>[New] Cropping and Styling Tips for Standout Instagram Videos for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/rive-traffic-and-growth-with-youtube-analytic-insights-for-2024/"><u>[New] Drive Traffic and Growth with YouTube Analytic Insights for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/nstant-video-hoarders-guide-to-easy-acquisition/"><u>[New] Instant Video Hoarder's Guide to Easy Acquisition</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/everaging-video-features-annotations-and-cards-for-2024/"><u>[New] Leveraging Video Features Annotations & Cards for 2024</u></a></li>
+<li><a href="https://article-helps.techidaily.com/updated-2024-approved-score-free-adventures-tiktoks-hidden-background-gemstones/"><u>[Updated] 2024 Approved Score-Free Adventures TikTok's Hidden Background Gemstones</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-in-2024-the-infographic-index-youtubes-surprising-stat-treasury-2017/"><u>[Updated] In 2024, The Infographic Index YouTube's Surprising Stat Treasury (2017)</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-perfect-phone-videos-your-diy-youtube-journey/"><u>[Updated] Perfect Phone Videos Your DIY YouTube Journey</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-saving-gifs-from-twitter-ios-and-android-guide/"><u>[Updated] Saving GIFs From Twitter IOS & Android Guide</u></a></li>
+<li><a href="https://location-fake.techidaily.com/11-best-location-changers-for-apple-iphone-11-drfone-by-drfone-virtual-ios/"><u>11 Best Location Changers for Apple iPhone 11 | Dr.fone</u></a></li>
+<li><a href="https://extra-support.techidaily.com/2024-approved-micro-film-narrative-blueprint/"><u>2024 Approved Micro-Film Narrative Blueprint</u></a></li>
+<li><a href="https://buynow-marvelous.techidaily.com/expertly-chosen-locations-for-finding-and-purchasing-phones/"><u>Expertly Chosen Locations for Finding and Purchasing Phones</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/full-guide-to-apple-iphone-12-mini-icloud-bypass-by-drfone-ios/"><u>Full guide to Apple iPhone 12 mini iCloud Bypass</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/24-streamline-video-analytics-a-guide-to-youtube-statistics-with-social-blade/"><u>In 2024, Streamline Video Analytics A Guide to YouTube Statistics with Social Blade</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/y-playground-top-10-laugh-out-loud-songs/"><u>Parody Playground Top 10 Laugh-Out-Loud Songs</u></a></li>
+<li><a href="https://change-location.techidaily.com/pokemon-go-error-12-failed-to-detect-location-on-samsung-galaxy-a14-4g-drfone-by-drfone-virtual-android/"><u>Pokemon Go Error 12 Failed to Detect Location On Samsung Galaxy A14 4G? | Dr.fone</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/unlocking-savings-on-climate-monitoring-a-detailed-review-of-the-ambient-ws-2902a-osprey-model/"><u>Unlocking Savings on Climate Monitoring: A Detailed Review of the Ambient WS-2902A Osprey Model</u></a></li>
 </ul></div>
 
