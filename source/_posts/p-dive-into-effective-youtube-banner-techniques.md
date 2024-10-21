@@ -1,7 +1,7 @@
 ---
 title: "A Deep Dive Into Effective YouTube Banner Techniques"
-date: 2024-10-14T22:41:40.938Z
-updated: 2024-10-15T23:10:56.359Z
+date: 2024-10-20T16:14:30.104Z
+updated: 2024-10-21T16:15:07.360Z
 tags:
   - ai video
   - ai youtube
@@ -115,6 +115,13 @@ The patterns on the following two sites are free to use.
 
 ![free-youtube-banner-the-pattern-library](https://images.wondershare.com/filmora/free-youtube-banner-the-pattern-library.png)
 
+<!-- affiliate ads begin -->
+<a href="https://homestyler.sjv.io/c/5597632/1943647/22993" target="_top" id="1943647">
+  <img src="//a.impactradius-go.com/display-ad/22993-1943647" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://homestyler.sjv.io/i/5597632/1943647/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 [**The Pattern Library:**](http://thepatternlibrary.com/) this truly is a library, and all the patterns were submitted by real graphic designers. When you first arrive on the site, all you'll see is a randomly selected pattern filling your entire screen. Hovering over the designer's name in the top left will allow you to download it for free.
 
 Often, the download will not be as large as the image you see on the site. It will only be a few tiles (or just one tile), and you will need to copy/paste it a few times to create a background large enough to use as channel art.
@@ -122,6 +129,13 @@ Often, the download will not be as large as the image you see on the site. It wi
 You can use the navigation tools in the top right of the screen to see more patterns. Clicking the icon that looks like a bunch of squares will allow you to see multiple patterns at once.
 
 ![free-youtube-banner-hero-pattern](https://images.wondershare.com/filmora/free-youtube-banner-hero-pattern.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082521/7443" target="_top" id="2082521">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082521" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082521/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 [**Hero Patterns:**](https://www.heropatterns.com/) the patterns on this site are editable before you download. You choose a foreground color, a background color, and the opacity of the design in the foreground. This means that you can make the pattern as subtle or vibrant as you want, which is a great thing to have control over when you're creating channel art.
 
@@ -140,13 +154,6 @@ Whatever program you use to build your channel art will already have a selection
 [**Font Squirrel:**](https://www.fontsquirrel.com/) the nice thing about this site is that everything is guaranteed to be free and available for commercial use. If you scroll down a bit on the main page, you'll see a toolbar to the right of the screen, which will allow you to narrow down the fonts being displayed by selecting tags like grunge, headings, and casual.
 
 Once you've got an image or images, and maybe even a font you want to use in your banner, you can create your channel art in either a software like Photoshop or a free banner maker (anchor) like the ones below.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1915825/19272" target="_top" id="1915825">
-  <img src="//a.impactradius-go.com/display-ad/19272-1915825" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1915825/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Free Channel Art Makers**
 
@@ -210,16 +217,10 @@ Here are some things you might want to include in your YouTube banner. Not all o
 ![ YouTube channel art layout](https://images.wondershare.com/filmora/article-images/youtube-channel-art-layout.jpg)
 
 <!-- affiliate ads begin -->
-<span id="1982508">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982508.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982508">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982508.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982508%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982508/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://bluettius.sjv.io/c/5597632/2139107/17108" target="_top" id="2139107">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139107" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139107/17108" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 #### **Top 5 Tips for Making Great YouTube Banners**
@@ -257,10 +258,10 @@ Here's a guide to what people tend to associate with different colors:
 ![color-implication](https://images.wondershare.com/filmora/color-implication.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134497/18498" target="_top" id="2134497">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134497" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://malaysia-healthcare-travel-council.pxf.io/c/5597632/1576477/17382" target="_top" id="1576477">
+  <img src="//a.impactradius-go.com/display-ad/17382-1576477" border="0" alt="https://techidaily.com" width="160" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134497/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://malaysia-healthcare-travel-council.pxf.io/i/5597632/1576477/17382" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 **Include Your Face**
@@ -300,13 +301,6 @@ However, for lots of YouTube niches, the channel art you make will be built arou
 
 ![text-and-logo-minimalism](https://images.wondershare.com/filmora/text-and-logo-minimalism.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1918714/19272" target="_top" id="1918714">
-  <img src="//a.impactradius-go.com/display-ad/19272-1918714" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918714/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 This is an example of a minimalist YouTube banner. This style typically uses only 2 or 3 colors and features clean lines, simple backgrounds, and not a lot of noise. If you want to project a calm, tidy, balanced vibe on your channel, then you should consider going in a minimalist direction with your banner.
 
 This example is light and airy, but you can also create a minimalist look using brighter or darker colors. It just depends on your personality.
@@ -323,6 +317,13 @@ The great thing about the galaxy style is that it's cool and different, but it d
 
 ![text-and-logo-Funky](https://images.wondershare.com/filmora/text-and-logo-Funky.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135414/19272" target="_top" id="2135414">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135414" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135414/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 There isn't really one 'funky' style. A funky banner is anything that's just a little off-beat but still makes sense while you're looking at it. They tend to be bright and cheerful and are perfect for anyone who considers themselves a bit quirky.
 
 If you're looking for inspiration for a custom funky banner, go to your closet and find your favorite funny, cute, or ironic t-shirt. There's probably something in its design you can bring into your channel art.
@@ -330,13 +331,6 @@ If you're looking for inspiration for a custom funky banner, go to your closet a
 **Comic**
 
 ![/text-and-logo-comic](https://images.wondershare.com/filmora/text-and-logo-comic.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1997717/19272" target="_top" id="1997717">
-  <img src="//a.impactradius-go.com/display-ad/19272-1997717" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997717/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 A banner featuring an actual comic book character probably belongs to a channel that discusses comics, but the style itself is great for just about anyone. It's bold and communicates confidence. If your attitude towards YouTube is that you want to be fearless, why not go for something worthy of a superhuman?
 
@@ -346,14 +340,14 @@ If you want to find a video editing solution that empowers your imagination and 
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://download.wondershare.com/filmora9-mac%5Ffull718.zip)
 
-![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
-
 <!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148637/16836" target="_top" id="2148637">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148637" border="0" alt="https://techidaily.com" width="125" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2087408/7443" target="_top" id="2087408">
+  <img src="//a.impactradius-go.com/display-ad/7443-2087408" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148637/16836" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087408/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 Richard Bennett
 
@@ -376,18 +370,22 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-tips.techidaily.com/024-approved-analyzing-tseries-income-via-subscriber-engagement-on-youtube/"><u>[New] 2024 Approved Analyzing TSeries’ Income via Subscriber Engagement on YouTube</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/024-approved-excellent-tools-to-save-live-feeds-from-youtube-vids/"><u>[New] 2024 Approved Excellent Tools to Save Live Feeds From YouTube Vids</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/024-approved-free-youtube-revenue-predictor-tools/"><u>[New] 2024 Approved Free YouTube Revenue Predictor Tools</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/024-approved-knowledge-hub-leading-educational-youtube-sources/"><u>[New] 2024 Approved Knowledge Hub Leading Educational YouTube Sources</u></a></li>
-<li><a href="https://article-posts.techidaily.com/new-in-2024-nostalgia-reimagined-transforming-your-vintage-photos-into-cutting-edge-videos/"><u>[New] In 2024, Nostalgia Reimagined Transforming Your Vintage Photos Into Cutting-Edge Videos</u></a></li>
-<li><a href="https://video-capture.techidaily.com/updated-2024-approved-digital-game-chronicles/"><u>[Updated] 2024 Approved Digital Game Chronicles</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-a-must-have-for-tweeting-videos-aspect-ratio-compliance/"><u>[Updated] A Must-Have for Tweeting Videos Aspect Ratio Compliance</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-mirror-pc-screen-to-samsung-galaxy-a15-5g-phones-drfone-by-drfone-android/"><u>In 2024, How to Mirror PC Screen to Samsung Galaxy A15 5G Phones? | Dr.fone</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/in-2024-understanding-limits-to-instagram-videography/"><u>In 2024, Understanding Limits to Instagram Videography</u></a></li>
-<li><a href="https://driver-error.techidaily.com/mended-hardware-commanding-glitches/"><u>Mended Hardware Commanding Glitches</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/the-ultimate-guide-to-choosing-a-superior-key-tracker-for-the-year-2n24/"><u>The Ultimate Guide to Choosing a Superior Key Tracker for the Year 2N24</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/-the-joy-twice-the-fun-televised-repetition-made-easy/"><u>Twice the Joy, Twice the Fun Televised Repetition Made Easy</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/-micro-video-service-meets-your-individual-needs-better-for-2024/"><u>Which Micro-Video Service Meets Your Individual Needs Better for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/levating-the-cold-with-five-cozy-cinematic-elements/"><u>[New] Elevating the Cold with Five Cozy Cinematic Elements</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-navigating-the-pitfalls-of-youtube-monetization-mistakes/"><u>[New] In 2024, Navigating the Pitfalls of YouTube Monetization Mistakes</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-in-2024-tweak-twitter-video-clip-cover/"><u>[New] In 2024, Tweak Twitter Video Clip Cover</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/phones-audio-upgrade-discover-best-software-for-youtube-to-mp3-for-2024/"><u>[New] IPhone's Audio Upgrade Discover Best Software for YouTube-to-MP3 for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-2024-approved-fullscape-synergy-the-smart-mcn-picking-game/"><u>[Updated] 2024 Approved FullScape Synergy The Smart MCN Picking Game</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/updated-exploring-high-definition-sw320-4k-monitor-experience/"><u>[Updated] Exploring High Definition Sw320 4K Monitor Experience</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-in-2024-video-visionaries-coordinated-consumption-across-channels/"><u>[Updated] In 2024, Video Visionaries Coordinated Consumption Across Channels</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-tailoring-youtube-video-sharing-preferences/"><u>[Updated] Tailoring YouTube Video Sharing Preferences</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/2024-approved-audio-capture-and-critical-examination/"><u>2024 Approved Audio Capture & Critical Examination</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-does-life360-notify-when-you-log-out-on-oppo-find-n3-flip-drfone-by-drfone-virtual-android/"><u>In 2024, Does Life360 Notify When You Log Out On Oppo Find N3 Flip? | Dr.fone</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/24-from-space-to-nature-yts-guide-for-dynamic-green-screen-filmmaking/"><u>In 2024, From Space to Nature YT's Guide for Dynamic Green Screen Filmmaking</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-how-to-find-ispoofer-pro-activation-key-on-tecno-pop-8-drfone-by-drfone-virtual-android/"><u>In 2024, How to Find iSpoofer Pro Activation Key On Tecno Pop 8? | Dr.fone</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/24-selective-screen-time-topping-youtube-movies/"><u>In 2024, Selective Screen Time Topping YouTube Movies</u></a></li>
+<li><a href="https://review-topics.techidaily.com/possible-ways-to-recover-deleted-files-from-infinix-note-30-vip-racing-edition-by-fonelab-android-recover-data/"><u>Possible ways to recover deleted files from Infinix Note 30 VIP Racing Edition</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/screen-recording-face-off-obs-studio-vs-fraps-comparison/"><u>Screen Recording Face-Off OBS Studio Vs Fraps Comparison</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/secrets-to-successful-tiktok-creation-using-android-pc-for-2024/"><u>Secrets to Successful TikTok Creation Using Android, PC for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/smarter-social-networking-on-facebook-unfollow-and-follow-strategies-explained/"><u>Smarter Social Networking on Facebook: Unfollow & Follow Strategies Explained</u></a></li>
 </ul></div>
 

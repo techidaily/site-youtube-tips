@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Mastering Time Management for YouTubers with Day Jobs\""
-date: 2024-09-11T00:16:40.328Z
-updated: 2024-09-16T20:20:18.611Z
+date: 2024-10-17T16:09:55.907Z
+updated: 2024-10-21T16:01:45.022Z
 tags:
   - ai video
   - ai youtube
@@ -55,9 +55,23 @@ I know what you’re thinking - “What?! That’s insane.” The first piece of
 
 A notebook planner is essential for keeping my life organized and on track. When I first started my channel, I had a separate planner just for my YouTube videos – this didn’t work cause I never looked at it. It worked best when I kept track of my entire life, including YouTube, in one planner since I look at it every day. Then I could also see which days I wanted to post a video or see what topics worked best around specific holidays and such.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2043639/7443" target="_top" id="2043639">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043639" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043639/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## 3. Check the weather forecast in advance
 
 When starting a YouTube channel, many YouTubers like myself don’t have the money to afford all the fancy lighting you see other creators using. [I use natural light](https://tools.techidaily.com/wondershare/filmora/download/), which means I have to make sure it’s going to be a sunny day or at least bright enough for my videos to be clear. I check the forecast for the week on Sunday evenings so I can plan out my best days to film, this keeps my video shooting schedule productive.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2105864/7443" target="_top" id="2105864">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105864" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105864/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## 4. Create 3-5 videos in advance
 
@@ -69,13 +83,6 @@ In the event that life gets too crazy, it’s perfectly fine to do just audio. M
 
 I hope these tips can help you on your journey with YouTube while still working a full-time job.
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137222/26400" target="_top" id="2137222">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137222" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137222/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Make a YouTube Video with Wondershare Filmora
 
 Wondershare Filmora is one application that people prefer over any other video editing application due to its easy-to-use editing tools and social media aimed settings. This application can help any beginner with a desire to shoot a movie, achieve his dream even without the availability of high-tech cameras or equipment in his hand. The features like video stabilization feature and lens correction allow removing the major defects that occur while capturing a video. A large number of filters in the application can be used to give the cinematic effect whether it be a short video or a long movie.
@@ -84,13 +91,26 @@ Just try it and create your own YouTube video!
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139112/17108" target="_top" id="2139112">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139112" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139112/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135403/19272" target="_top" id="2135403">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135403" border="0" alt="https://techidaily.com" width="392" height="72"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135403/19272" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1424529">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1424529.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1424529">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424529.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424529%2F16446'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424529/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -112,5 +132,21 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-tips.techidaily.com/efining-your-digital-dna-a-guide-to-youtubing-personal-branding/"><u>[New] Defining Your Digital DNA A Guide to YouTubing Personal Branding</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/new-stream-ready-steam-gameplay-filming-guide/"><u>[New] Stream-Ready Steam Gameplay Filming Guide</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-2024-approved-night-owls-techniques-for-long-exposure-iphone-pics/"><u>[Updated] 2024 Approved Night Owls' Techniques for Long-Exposure iPhone Pics</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-clipcraft-designer/"><u>[Updated] ClipCraft Designer</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-from-virality-to-value-ajays-playbook-for-profitable-content-creation/"><u>[Updated] From Virality to Value Ajay’s Playbook for Profitable Content Creation</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-in-2024-synthesizing-google-trends-insights-for-videography-ideas/"><u>[Updated] In 2024, Synthesizing Google Trends Insights for Videography Ideas</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-launching-a-sports-vlog-on-apple-computers/"><u>[Updated] Launching a Sports Vlog on Apple Computers</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/updated-the-ultimate-guide-to-kinemasters-android-gameplay/"><u>[Updated] The Ultimate Guide to KineMaster's Android Gameplay</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/approved-tips-for-inserting-captions-in-youtube-videos/"><u>2024 Approved Tips for Inserting Captions in YouTube Videos</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/a-user-perspective-diving-into-the-functionality-of-apple-books/"><u>A User Perspective: Diving Into the Functionality of Apple Books</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/beginners-guide-the-initial-5-actions-after-unboxing-a-laptop/"><u>Beginner's Guide: The Initial 5 Actions After Unboxing a Laptop</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/get-the-latest-firmware-for-your-hp-deskjet-2640-free-downloads-available/"><u>Get the Latest Firmware for Your HP Deskjet 2640 - Free Downloads Available!</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/in-2024-top-10-must-have-features-in-drone-gimbals/"><u>In 2024, Top 10 Must-Have Features in Drone Gimbals</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/the-pros-choice-a-list-of-17-superior-video-to-text-converters-for-2024/"><u>The Pro's Choice A List of 17 Superior Video-to-Text Converters for 2024</u></a></li>
+</ul></div>
 

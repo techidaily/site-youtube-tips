@@ -1,7 +1,7 @@
 ---
 title: "Enhancing Outreach with Strategic Partner Selection on YouTube"
-date: 2024-10-08T16:17:09.427Z
-updated: 2024-10-15T21:45:42.826Z
+date: 2024-10-14T16:06:08.895Z
+updated: 2024-10-21T16:02:08.041Z
 tags:
   - ai video
   - ai youtube
@@ -69,10 +69,10 @@ People sub to Roberto for tech advice, for example, so it makes sense for him to
 If you approach somebody about collaborating and they see that you haven’t posted in over a month, or that you don’t have many videos, it might be harder to get them to agree to work with you. The same goes if they watch your videos and don’t think they are at the same quality level as their videos.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068417/7443" target="_top" id="2068417">
-  <img src="//a.impactradius-go.com/display-ad/7443-2068417" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2105870/7443" target="_top" id="2105870">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105870" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068417/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105870/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Tips From YouTube Guru Nich Nimmin
@@ -90,6 +90,13 @@ When you’re approaching someone for the first time, don’t overwhelm them wit
 #### **3\. Have ideas.**
 
 Don’t make your potential partner do the work of pitching ideas to you. Be open to their ideas, but come up with 1 or 2 ideas of your own you can mention when you approach the creator you want to work with. People will be more likely to say ‘yes’ to a specific idea than to the idea of collaborating in general, if they don’t already know you.
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2148771/18498" target="_top" id="2148771">
+  <img src="//a.impactradius-go.com/display-ad/18498-2148771" border="0" alt="https://techidaily.com" width="350" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2148771/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Tips From Freelancer / Lifestyle Vlogger Amy Schmittauer
 
@@ -109,6 +116,13 @@ If you appeared in someone else’s video, you would probably appreciate it if t
 
  _Collab advice starts at around 2:10._
 
+<!-- affiliate ads begin -->
+<a href="https://aidotcom.pxf.io/c/5597632/2134502/19576" target="_top" id="2134502">
+  <img src="//a.impactradius-go.com/display-ad/19576-2134502" border="0" alt="https://techidaily.com" width="672" height="90"/>
+</a>
+<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134502/19576" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Tips From Lifestyle and Fashion YouTuber MyLifeAsEva
 
 **[Eva Gutowski](https://www.youtube.com/user/mylifeaseva/featured)** (MyLifeAsEva) is a lifestyle, fashion, and DIY YouTuber who has done numerous collaborations and believes in making real friends on YouTube. In the video above she shares some of her experiences and talks about how to come across as a real person when you approach other YouTubers about collaborating.
@@ -127,38 +141,18 @@ Twitter is the best place to make YouTube friends, in Eva’s opinion. It’s an
 
  Do you have any of your advice on YouTube collaborations?
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118314/7443" target="_top" id="2118314">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118314" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118314/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Excellent YouTube Video Editor Always Save Your Time
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<span id="1977006">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1977006.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1977006">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977006.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977006%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977006/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2123727/7443" target="_top" id="2123727">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123727" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123727/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2043661/7443" target="_top" id="2043661">
-  <img src="//a.impactradius-go.com/display-ad/7443-2043661" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043661/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -181,18 +175,17 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-tips.techidaily.com/024-approved-trust-the-right-sources-for-safe-and-effective-view-count-increase/"><u>[New] 2024 Approved Trust the Right Sources for Safe and Effective View Count Increase</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/024-approved-youtube-prodigy-vs-creative-hub-beta-edition/"><u>[New] 2024 Approved YouTube Prodigy Vs. Creative Hub Beta Edition</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/new-youcam-webcam-recorder-review/"><u>[New] YouCam Webcam Recorder Review</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-mastering-video-transfer-youtube-to-dailymotion-conversion/"><u>[Updated] Mastering Video Transfer YouTube to Dailymotion Conversion</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/updated-secrets-to-choosing-the-ultimate-free-online-srt-translators/"><u>[Updated] Secrets to Choosing the Ultimate Free Online SRT Translators</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/2024-approved-meditative-harmony-the-top-10-legally-accessible-chants-and-tracks/"><u>2024 Approved Meditative Harmony – The Top 10 Legally Accessible Chants & Tracks</u></a></li>
-<li><a href="https://games-able.techidaily.com/exemplary-nintendo-switch-controllers-top-lists/"><u>Exemplary Nintendo Switch Controllers – Top Lists</u></a></li>
-<li><a href="https://audio-shaping.techidaily.com/in-2024-audio-splitter-how-to-split-audio-mp3-files-quickly/"><u>In 2024, Audio Splitter How to Split Audio (MP3) Files Quickly</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/24-crafting-clearer-communication-the-art-of-adding-text-to-video-media/"><u>In 2024, Crafting Clearer Communication The Art of Adding Text to Video Media</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/in-2024-how-to-unlock-xiaomi-13t-phone-without-any-data-loss-by-drfone-android/"><u>In 2024, How to Unlock Xiaomi 13T Phone without Any Data Loss</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/in-2024-top-8-affordable-industry-standard-open-videoconference-platforms/"><u>In 2024, Top 8 Affordable, Industry-Standard Open Videoconference Platforms</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/influential-gamers-on-youtube-for-2024/"><u>Most Influential Gamers on YouTube for 2024</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/1722974272797-streamlined-installation-rapidly-secure-your-lexar-usb-drivers/"><u>Streamlined Installation: Rapidly Secure Your Lexar USB Drivers!</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/harting-the-undisclosed-territories-of-youtube-videos-for-2024/"><u>[New] Charting the Undisclosed Territories of YouTube Videos for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/upercharge-your-videos-with-these-proven-keyword-analyst-tools/"><u>[New] Supercharge Your Videos with These Proven Keyword Analyst Tools</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-harmonize-your-listens-the-complete-path-to-youtube-playlist-making-webmobile/"><u>[Updated] In 2024, Harmonize Your Listens The Complete Path to YouTube Playlist Making (Web/Mobile)</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-streamers-selection-most-popular-livestream-software-and-devices-for-2024/"><u>[Updated] Streamer's Selection Most Popular Livestream Software and Devices for 2024</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/2024-approved-cutting-edge-techniques-for-youtube-thumbnails-made-for-macos/"><u>2024 Approved Cutting-Edge Techniques for YouTube Thumbnails, Made for macOS</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ing-the-crowd-stand-out-with-unique-youtube-persona/"><u>Avoiding the Crowd Stand Out with Unique YouTube Persona</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/demystifying-chromecast-for-effortless-broadcasting/"><u>Demystifying Chromecast for Effortless Broadcasting</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/essential-strategies-for-selecting-amazing-pexels-images/"><u>Essential Strategies for Selecting Amazing Pexels Images</u></a></li>
+<li><a href="https://extra-information.techidaily.com/fundamental-skills-for-creating-persuasive-client-centered-testimonials/"><u>Fundamental Skills for Creating Persuasive Client-Centered Testimonials</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/how-to-mirror-pc-to-apple-iphone-11-pro-drfone-by-drfone-ios/"><u>How to Mirror PC to Apple iPhone 11 Pro? | Dr.fone</u></a></li>
+<li><a href="https://fake-location.techidaily.com/in-2024-6-ways-to-change-spotify-location-on-your-nokia-c12-plus-drfone-by-drfone-virtual-android/"><u>In 2024, 6 Ways to Change Spotify Location On Your Nokia C12 Plus | Dr.fone</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-will-ispoofer-update-on-poco-m6-pro-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Will iSpoofer update On Poco M6 Pro 5G | Dr.fone</u></a></li>
 </ul></div>
 

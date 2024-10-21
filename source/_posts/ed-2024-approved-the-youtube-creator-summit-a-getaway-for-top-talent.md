@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  The YouTube Creator Summit - A Getaway for Top Talent\""
-date: 2024-09-12T03:38:39.011Z
-updated: 2024-09-17T01:18:15.888Z
+date: 2024-10-17T16:00:12.545Z
+updated: 2024-10-21T16:07:53.977Z
 tags:
   - ai video
   - ai youtube
@@ -64,6 +64,13 @@ _Tess takes you to some of her favorite places in Dumbo._
 
 Dumbo is home to an interesting mix of ‘past’ and ‘future’. The creators who attended the summit probably had a lot of fun exploring it.
 
+<!-- affiliate ads begin -->
+<a href="https://aidotcom.pxf.io/c/5597632/2134500/19576" target="_top" id="2134500">
+  <img src="//a.impactradius-go.com/display-ad/19576-2134500" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134500/19576" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## 2\. Post Cards
 
 One of the major benefits of attending this summit would have been networking with other creators, but because of how busy everyone was and how awkward it can be to arrange ‘bumping into’ someone YouTube created a way for creators to send each other notes. All they had to do was write a note on one of the postcards YouTube provided them with and stick it in one of the red mailboxes at the event. YouTube took care of making sure the person it was addressed to got it.
@@ -73,10 +80,10 @@ One of the major benefits of attending this summit would have been networking wi
 S’well bottles are stainless steel beverage containers that keep drinks hot or cold. They retail for around $45\. YouTubers invited to the Creator Summit received ones with YouTube branding on them. A good water bottle is a convention/conference essential, so this was a very practical gift.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135361/19272" target="_top" id="2135361">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135361" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2094480/7443" target="_top" id="2094480">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094480" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135361/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094480/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## 4\. Branded slippers
@@ -85,7 +92,21 @@ To help them relax after long days at the summit, YouTube provided creators with
 
 ![Branded slippers - 2017 YouTube Creator Summit](https://images.wondershare.com/filmora/article-images/youtube-creator-summit-branded-slippers.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2130887/7443" target="_top" id="2130887">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130887" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130887/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 _thinknoodles wearing his YouTube slippers._
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2052060/7443" target="_top" id="2052060">
+  <img src="//a.impactradius-go.com/display-ad/7443-2052060" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2052060/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## 5\. Pins, pins, pins
 
@@ -105,27 +126,7 @@ Want to join the YouTube Creator Summit in the future? We all know that there is
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/2137973/21526" target="_top" id="2137973">
-  <img src="//a.impactradius-go.com/display-ad/21526-2137973" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://zebaoaffiliateprogram.pxf.io/i/5597632/2137973/21526" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
-
-<!-- affiliate ads begin -->
-<span id="1702748">
-					<video width="192" height="320" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1702748.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/18544-1702748">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1702748.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:120px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftwopages.pxf.io%2Fc%2F5597632%2F1702748%2F18544'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1702748/18544" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -146,5 +147,22 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://extra-resources.techidaily.com/new-amplify-clarity-in-cloud-calls-zooming-out-distortion/"><u>[New] Amplify Clarity in Cloud Calls Zooming Out Distortion</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-skyrocket-your-brands-visibility-with-these-top-video-marketing-approaches/"><u>[New] In 2024, Skyrocket Your Brand's Visibility with These Top Video Marketing Approaches</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-in-2024-ultimate-guide-top-8k-tvs-and-in-depth-comparisons/"><u>[New] In 2024, Ultimate Guide Top 8K TVs & In-Depth Comparisons</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-2024-approved-fortune-on-screen-achieving-youtube-earnings-unlinked-from-ads/"><u>[Updated] 2024 Approved Fortune on Screen Achieving YouTube Earnings Unlinked From Ads</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/updated-audio-visual-converters-forum/"><u>[Updated] Audio Visual Converters Forum</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-cutting-edge-tips-for-outshining-others-in-facebooks-social-space-for-2024/"><u>[Updated] Cutting-Edge Tips for Outshining Others in Facebook's Social Space for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-in-2024-perfecting-audio-quality-for-your-youtube-channel/"><u>[Updated] In 2024, Perfecting Audio Quality for Your YouTube Channel</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-in-2024-the-essentials-of-youtubes-cc-license-for-filmakers/"><u>[Updated] In 2024, The Essentials of YouTube's CC License for Filmakers</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-premium-10-audio-enhancers-for-multiple-systems-for-2024/"><u>[Updated] Premium 10 Audio Enhancers for Multiple Systems for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-the-ultimate-channel-growth-guide-top-5-video-marketing-tactics-revealed-for-2024/"><u>[Updated] The Ultimate Channel Growth Guide Top 5 Video Marketing Tactics Revealed for 2024</u></a></li>
+<li><a href="https://fake-location.techidaily.com/a-detailed-vpna-fake-gps-location-free-review-on-samsung-galaxy-z-flip-5-drfone-by-drfone-virtual-android/"><u>A Detailed VPNa Fake GPS Location Free Review On Samsung Galaxy Z Flip 5 | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/guia-practica-para-leer-la-hora-en-espanol/"><u>Guía Práctica Para Leer La Hora en Español</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/al-7-dslr-selections-for-in-depth-vlog-documentaries-for-2024/"><u>Optimal 7 DSLR Selections For In-Depth Vlog Documentaries for 2024</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/windows-11-vs-macos-high-sierra-head-to-head-unveiling-the-overlaps-and-contrasts/"><u>Windows 11 vs macOS High Sierra Head-to-Head: Unveiling the Overlaps & Contrasts</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/flac-flac/"><u>영구성에서 자원으로 FLAC 오페우 FLAC 전환 가시성 강화 - 모비아비</u></a></li>
+</ul></div>
 

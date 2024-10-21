@@ -1,7 +1,7 @@
 ---
 title: "[New] Prevent These 8 Key Mishaps on Your YouTube Journey"
-date: 2024-09-12T05:29:39.671Z
-updated: 2024-09-17T05:03:44.048Z
+date: 2024-10-20T16:04:56.324Z
+updated: 2024-10-21T16:01:48.730Z
 tags:
   - ai video
   - ai youtube
@@ -50,10 +50,16 @@ Another mistake I made with my first YouTube channel was choosing an ineffective
 Choose a custom URL with words that can’t be confused with other similar-sounding words. For consistency across all your different social media accounts, try to choose a custom URL that matches the usernames of all your other social media channels. If the username you want isn’t available, then keep on trying to come up with a good name that is available. When you’ve secured the same username across all your different social media channels, you can then very simply promote yourself and all your social media channels by displaying just the social media icons followed by your one username.
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2135475/26400" target="_top" id="2135475">
-  <img src="//a.impactradius-go.com/display-ad/26400-2135475" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2135475/26400" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1770544">
+					<video width="240" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1770544.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/20702-1770544">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1770544.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftokenmetrics.sjv.io%2Fc%2F5597632%2F1770544%2F20702'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1770544/20702" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 3\. Coming up with titles that won't get searched
@@ -64,11 +70,25 @@ Big YouTubers can take advantage of non-searched, curiosity evoking titles like 
 
 As an example, let's suppose you vlogged your time backpacking around Europe last summer. Don't title your YouTube video "My Summer Backpacking Trip." Instead, title it "Going Up The Eiffel Tower | Beautiful View of Paris!" This way, all the people who are curious about visiting Paris, the Eiffel Tower, and seeing what the view is like from the top of the Eiffel Tower might find your video.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135418/19272" target="_top" id="2135418">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135418" border="0" alt="https://techidaily.com" width="468" height="60"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135418/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 4\. Failing to have a thumbnail strategy
 
 New YouTubers tend to think about their thumbnail images after they’ve finished editing their videos together. This is way too late in the process for something that is so incredibly important in getting views.
 
 Even before filming, you should think about how you’re going to title your video to get the most views. After that, you should then try to picture, in your head, a thumbnail image that matches your title and creates curiosity and excitement. When you go into filming, you can then make sure to include some footage of you recreating that image.
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134490/18498" target="_top" id="2134490">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134490" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134490/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 5\. Making weak intros
 
@@ -83,13 +103,6 @@ To read more on how some of the most successful YouTubers effectively do their i
 An important thing to do as a new YouTuber is engaging with your subscribers. Some new YouTubers, though, are so focused and busy with the production side of things that they forget to do the community side of things, including responding to comments. By not responding to comments as a new YouTuber, you hurt your potential to get more comments consistently from your subscribers. If your video’s comments section is very active, YouTube ranks your video higher in the videos it recommends to viewers.
 
 Connecting with your audience shouldn’t just be limited to YouTube either. Use your other social media channels to connect with your audience as well.
-
-<!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2005184/22899" target="_top" id="2005184">
-  <img src="//a.impactradius-go.com/display-ad/22899-2005184" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2005184/22899" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 7\. Not promoting with social media
 
@@ -108,10 +121,10 @@ Spam comments annoy YouTubers. It would be much more beneficial to your channel 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115933/19272" target="_top" id="2115933">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115933" border="0" alt="https://techidaily.com" width="320" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1918719/19272" target="_top" id="1918719">
+  <img src="//a.impactradius-go.com/display-ad/19272-1918719" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115933/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918719/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -133,5 +146,24 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://snapchat-videos.techidaily.com/new-2024-approved-perfecting-your-mobile-video-recordings-on-snapchat/"><u>[New] 2024 Approved Perfecting Your Mobile Video Recordings on Snapchat</u></a></li>
+<li><a href="https://twitter-clips.techidaily.com/new-resolving-silence-in-tweeted-video-playbacks/"><u>[New] Resolving Silence in Tweeted Video Playbacks</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-capture-the-best-moments-select-6-top-ranked-short-video-download-tools-for-2024/"><u>[Updated] Capture the Best Moments Select 6 Top-Ranked Short Video Download Tools for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-how-to-edit-audio-on-youtube-for-2024/"><u>[Updated] How to Edit Audio on YouTube for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-in-2024-how-to-stream-to-youtube-facebook-twitch-and-over-30-platforms/"><u>[Updated] In 2024, How to Stream to YouTube, Facebook, Twitch and Over 30 Platforms?</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-social-media-match-up-youtube-shorts-or-tiktok-for-2024/"><u>[Updated] Social Media Match-Up Youtube Shorts or TikTok for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-what-are-the-laws-around-youtube-video-capture-for-2024/"><u>[Updated] What Are the Laws Around YouTube Video Capture for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/approved-perfect-guide-youtube-videos-on-instagram-feed/"><u>2024 Approved Perfect Guide YouTube Videos on Instagram Feed</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/assessing-the-risks-is-using-chatgpt-compromising-user-confidentiality/"><u>Assessing the Risks: Is Using ChatGPT Compromising User Confidentiality?</u></a></li>
+<li><a href="https://review-topics.techidaily.com/how-to-unlock-infinix-hot-40i-by-drfone-android-unlock-android-unlock/"><u>How to unlock Infinix Hot 40i</u></a></li>
+<li><a href="https://android-frp.techidaily.com/in-2024-a-step-by-step-guide-on-using-adb-and-fastboot-to-remove-frp-lock-from-your-lava-blaze-2-by-drfone-android/"><u>In 2024, A Step-by-Step Guide on Using ADB and Fastboot to Remove FRP Lock from your Lava Blaze 2</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/in-2024-elevate-your-streams-with-seamless-obspluszoom-integration/"><u>In 2024, Elevate Your Streams with Seamless OBS+Zoom Integration</u></a></li>
+<li><a href="https://facebook-video-files.techidaily.com/in-2024-facebook-fans-gain-more-with-streamed-content-sharing/"><u>In 2024, Facebook Fans Gain More with Streamed Content Sharing</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ating-your-videos-first-impression-on-youtube/"><u>Innovating Your Video's First Impression on YouTube</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/the-monetized-majority-with-500-subscribers/"><u>Join the Monetized Majority with 500 Subscribers</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/master-guide-to-online-video-calls-free-edition-best/"><u>Master Guide to Online Video Calls Free Edition Best</u></a></li>
+<li><a href="https://win-blog.techidaily.com/windows-10-users-can-finally-enjoy-civilization-6-without-startup-issues-how-to-get-there/"><u>Windows 10 Users Can Finally Enjoy Civilization 6 Without Startup Issues! How to Get There</u></a></li>
+</ul></div>
 

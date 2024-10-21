@@ -1,7 +1,7 @@
 ---
 title: "\"Transform Your Clips  Step-by-Step YouTube End Screen Tutorials for 2024\""
-date: 2024-09-15T17:51:21.804Z
-updated: 2024-09-17T01:32:59.759Z
+date: 2024-10-14T16:02:12.956Z
+updated: 2024-10-21T16:00:58.886Z
 tags:
   - ai video
   - ai youtube
@@ -90,6 +90,13 @@ Here’s one for the Minecraft fans:
 
 Another way to get your YouTube end screens for free, of course, is to make them yourself. Canva is a great free online design tool for this.
 
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139118/17108" target="_top" id="2139118">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139118" border="0" alt="https://techidaily.com" width="468" height="60"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139118/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 2: How To Build Your Outro For Free (Step-by-step Canva Tutorial)
 
 1\. First, you have to sign up with an e-mail address
@@ -106,6 +113,13 @@ Another way to get your YouTube end screens for free, of course, is to make them
 
 ![download-youtube-outro-end-screen](https://images.wondershare.com/filmora/article-images/download-youtube-outro-end-screen.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aidotcom.pxf.io/c/5597632/2134499/19576" target="_top" id="2134499">
+  <img src="//a.impactradius-go.com/display-ad/19576-2134499" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134499/19576" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 5\. Upload the image onto your Canva project.
 
 ![upload-downloaded-youtube-end-screen-canva ](https://images.wondershare.com/filmora/article-images/upload-downloaded-youtube-end-screen-canva.jpg)
@@ -118,6 +132,13 @@ Another way to get your YouTube end screens for free, of course, is to make them
 
 ![adjust-end-screen-templates-in-canva](https://images.wondershare.com/filmora/article-images/adjust-end-screen-templates-in-canva.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2148641/16836" target="_top" id="2148641">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148641" border="0" alt="https://techidaily.com" width="254" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148641/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 8\. When you’re done, delete the original image so that you’re left with just your own design. Go ahead and click “download.”
 
 ![youtube-end-screen-made-with-canva](https://images.wondershare.com/filmora/article-images/youtube-end-screen-made-with-canva.jpg)
@@ -127,6 +148,13 @@ If you're looking for other options to design your end screen, make sure to also
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://wigfever.sjv.io/c/5597632/2014850/22899" target="_top" id="2014850">
+  <img src="//a.impactradius-go.com/display-ad/22899-2014850" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014850/22899" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -147,12 +175,21 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135413/19272" target="_top" id="2135413">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135413" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135413/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-tips.techidaily.com/024-approved-tutorial-incorporating-youtube-soundtracks-in-imovie/"><u>[New] 2024 Approved Tutorial Incorporating YouTube Soundtracks in iMovie</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/024-approved-unveiling-the-power-of-featured-channels-on-youtube-platform/"><u>[New] 2024 Approved Unveiling the Power of Featured Channels on YouTube Platform</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/024-approved-youtube-earnings-per-watch-average-income-breakdown/"><u>[New] 2024 Approved YouTube Earnings per Watch Average Income Breakdown</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/024-the-year-of-digital-gamer-fortunes/"><u>[New] 2024 The Year of Digital Gamer Fortunes</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/new-in-2024-synchronize-your-team-with-easy-slack-and-filmora-integration/"><u>[New] In 2024, Synchronize Your Team with Easy Slack & Filmora Integration</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/new-mint-memes-of-merriment/"><u>[New] Mint Memes of Merriment</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/updated-2024-approved-making-the-most-of-your-ppt-on-google-meet-devices-included/"><u>[Updated] 2024 Approved Making the Most of Your PPT on Google Meet Devices Included</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/updated-ae-excellence-select-best-templates-for-free-access/"><u>[Updated] AE Excellence Select Best Templates for Free Access</u></a></li>
+<li><a href="https://smart-video-creator.techidaily.com/crop-like-a-pro-mastering-video-editing-with-avidemux-for-2024/"><u>Crop Like a Pro Mastering Video Editing with Avidemux for 2024</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/how-much-is-the-eurozone-worth-french-distributor-sets-price-for-amd-ryzen-9-9900x-at-close-to-680/"><u>How Much Is the Eurozone Worth? French Distributor Sets Price for AMD Ryzen 9 9900X at Close to €680.</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/24-crafting-chorus-in-a-click-essential-insights-into-shortform-song-videos/"><u>In 2024, Crafting Chorus in a Click Essential Insights Into Shortform Song Videos</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/24-digital-dazzle-fine-tuning-video-chrominance-for-beauty/"><u>In 2024, Digital Dazzle Fine-Tuning Video Chrominance for Beauty</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-does-vivo-y100-have-find-my-friends-drfone-by-drfone-virtual-android/"><u>In 2024, Does Vivo Y100 Have Find My Friends? | Dr.fone</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/optimal-choices-in-monitors-for-ps5-gamers/"><u>Optimal Choices in Monitors for PS5 Gamers</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  End Scenes Unlocked  Tutorials to Enhance Viewing Experience\""
-date: 2024-09-11T20:17:04.365Z
-updated: 2024-09-17T01:56:03.134Z
+date: 2024-10-16T16:07:32.460Z
+updated: 2024-10-21T16:05:07.576Z
 tags:
   - ai video
   - ai youtube
@@ -90,15 +90,36 @@ Here’s one for the Minecraft fans:
 
 Another way to get your YouTube end screens for free, of course, is to make them yourself. Canva is a great free online design tool for this.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135357/19272" target="_top" id="2135357">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135357" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135357/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 2: How To Build Your Outro For Free (Step-by-step Canva Tutorial)
 
 1\. First, you have to sign up with an e-mail address
 
 ![create-outro-end-screen-with-canva-1](https://images.wondershare.com/filmora/article-images/create-outro-end-screen-with-canva-1.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139118/17108" target="_top" id="2139118">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139118" border="0" alt="https://techidaily.com" width="468" height="60"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139118/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 2\. Once logged in, select “use custom dimensions” and plug in “1920” pixels as your width and “1080” pixels as your height (this, of course, may vary depending on the resolution of your video project).
 
 ![create-outro-end-screen-with-canva  ](https://images.wondershare.com/filmora/article-images/create-outro-end-screen-with-canva-2.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2148633/16836" target="_top" id="2148633">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148633" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148633/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 3\. After clicking “Design!,” a new browser will open with a blank canvas.
 
@@ -128,6 +149,13 @@ If you're looking for other options to design your end screen, make sure to also
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2094483/7443" target="_top" id="2094483">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094483" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094483/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
@@ -147,12 +175,22 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134249/18498" target="_top" id="2134249">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134249" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134249/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://extra-hints.techidaily.com/new-a-journey-through-chromatic-realms-editing-essentials/"><u>[New] A Journey Through Chromatic Realms Editing Essentials</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-how-to-curate-a-facebook-playlist-via-phonetablet-for-2024/"><u>[New] How to Curate a Facebook Playlist via Phone/Tablet for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-ethical-practices-for-accumulating-over-a-million-video-engagements/"><u>[New] In 2024, Ethical Practices for Accumulating Over A Million Video Engagements</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-youtubes-golden-age-of-video-gamers/"><u>[New] In 2024, YouTube's Golden Age of Video Gamers</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/nderstanding-and-applying-youtube-markup-for-2024/"><u>[New] Understanding & Applying YouTube Markup for 2024</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/1716070151943-updated-2024-approved-unlocked-mac-capture-tool-no-cost/"><u>[Updated] 2024 Approved Unlocked Mac Capture Tool - No Cost!</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-in-2024-is-it-legal-to-screen-record-youtube-videos/"><u>[Updated] In 2024, Is It Legal to Screen Record YouTube Videos</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-the-beginners-roadmap-to-free-youtube-intro-videos-for-2024/"><u>[Updated] The Beginner's Roadmap to Free YouTube Intro Videos for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/approved-the-social-media-symphony-composing-jake-pauls-youtube-success/"><u>2024 Approved The Social Media Symphony Composing Jake Paul's YouTube Success</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/in-2024-is-photoshops-stabilization-feature-aiding-creativity/"><u>In 2024, Is Photoshop's Stabilization Feature Aiding Creativity?</u></a></li>
+<li><a href="https://android-frp.techidaily.com/in-2024-ultimate-guide-from-samsung-galaxy-s23-frp-bypass-by-drfone-android/"><u>In 2024, Ultimate Guide from Samsung Galaxy S23 FRP Bypass</u></a></li>
+<li><a href="https://techidaily.com/recover-apple-iphone-x-data-from-icloud-drfone-by-drfone-ios-data-recovery-ios-data-recovery/"><u>Recover Apple iPhone X Data From iCloud | Dr.fone</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/remove-the-lock-screen-fingerprint-of-your-sony-xperia-10-v-by-drfone-android/"><u>Remove the Lock Screen Fingerprint Of Your Sony Xperia 10 V</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/024-playbook-earning-your-keep-on-youtube-channel/"><u>The 2024 Playbook Earning Your Keep on YouTube Channel</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/vector-graphics-innovation-top-apps-to-transform-your-creations/"><u>Vector Graphics Innovation Top Apps to Transform Your Creations</u></a></li>
+</ul></div>
 

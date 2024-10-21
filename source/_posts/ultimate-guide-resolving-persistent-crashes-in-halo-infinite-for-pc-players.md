@@ -1,7 +1,7 @@
 ---
 title: "Ultimate Guide: Resolving Persistent Crashes in Halo Infinite for PC Players"
-date: 2024-10-11T01:39:43.070Z
-updated: 2024-10-15T18:23:08.390Z
+date: 2024-10-17T16:09:23.857Z
+updated: 2024-10-21T16:11:58.235Z
 tags:
   - win11
   - win10
@@ -55,10 +55,10 @@ The outdated or broken graphics driver often crashes the game.
 3. Click the **Update** button next to a device to automatically download the correct version of their driver, then you can manually install the driver (you can do this with the FREE version).  
 
 <!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2014849/22899" target="_top" id="2014849">
-  <img src="//a.impactradius-go.com/display-ad/22899-2014849" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137229/26400" target="_top" id="2137229">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137229" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014849/22899" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137229/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  Or click **Update All**  to automatically download and install the correct version of _all_ the drivers that are missing or out of date on your system (this requires the [Pro version](https://tools.techidaily.com/drivereasy/download/) – you’ll be prompted to upgrade when you click Update All).  
@@ -66,10 +66,10 @@ The outdated or broken graphics driver often crashes the game.
 4. Restart your PC after you finished updating your graphics driver.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151893/7443" target="_top" id="2151893">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151893" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1938693/19272" target="_top" id="1938693">
+  <img src="//a.impactradius-go.com/display-ad/19272-1938693" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151893/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938693/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  See if the latest graphics driver stops the Dirt 5 from crashing. If not, don’t worry. Try the next fix, below.
@@ -81,13 +81,21 @@ The outdated or broken graphics driver often crashes the game.
 1. In Steam, navigate to **the LIBRARY tab** and **right-click** on _DIRT 5_ . Then select **Properties** .  
 ![Steam->properties](https://images.drivereasy.com/wp-content/uploads/2019/04/image-122.png)
 2. Click **the LOCAL FILES tab** , then click **VERIFY INTEGRITY OF GAME CACHE…** . After that, click **CLOSE** .  
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2075475/7443" target="_top" id="2075475">
+  <img src="//a.impactradius-go.com/display-ad/7443-2075475" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075475/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ![LOCAL FILES>VERIFY INTEGRITY OF GAME CACHE...](https://images.drivereasy.com/wp-content/uploads/2019/04/image-120.png)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1997657/19272" target="_top" id="1997657">
-  <img src="//a.impactradius-go.com/display-ad/19272-1997657" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://aidotcom.pxf.io/c/5597632/2129042/19576" target="_top" id="2129042">
+  <img src="//a.impactradius-go.com/display-ad/19576-2129042" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997657/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2129042/19576" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  It may take some time to finish verifying the game files. Launch the game after the verifying process completed to see if this fix works. If not, try the next fix, below.
@@ -101,16 +109,10 @@ The outdated or broken graphics driver often crashes the game.
  Run Dirt 5 again to check whether the game crash issue has been resolved. If it didn’t work, or there was no new game patch available, move on to next fix, below.
 
 <!-- affiliate ads begin -->
-<span id="1793213">
-					<video width="864" height="1296" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1793213.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/19135-1793213">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1793213.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftinyland.pxf.io%2Fc%2F5597632%2F1793213%2F19135'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793213/19135" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/2135397/19272" target="_top" id="2135397">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135397" border="0" alt="https://techidaily.com" width="180" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135397/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Fix 4: Disable Steam Overlay
@@ -132,13 +134,6 @@ The outdated or broken graphics driver often crashes the game.
 2. In the**GENERAL** section, click **SET LAUNCH OPTIONS…**  
 ![Steam set launch options](https://images.drivereasy.com/wp-content/uploads/2021/04/Modify-Steam-set-launch-options.jpg)
 3. Copy and paste the commands below and click **OK** .  
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2049383/7443" target="_top" id="2049383">
-  <img src="//a.impactradius-go.com/display-ad/7443-2049383" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049383/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 `-useallavailablecores -high`
 
@@ -174,21 +169,24 @@ The outdated or broken graphics driver often crashes the game.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-tips.techidaily.com/024-approved-pro-level-mobile-media-capture-iphone-and-androids-top-5-apps/"><u>[New] 2024 Approved Pro-Level Mobile Media Capture IPhone and Android's Top 5 Apps</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/o-software-required-youtube-file-retrieval-for-2024/"><u>[New] No Software Required YouTube File Retrieval for 2024</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-charting-a-course-through-youtubes-maker-domain-for-2024/"><u>[Updated] Charting a Course Through YouTube's Maker Domain for 2024</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/updated-high-definition-on-demand-samsungs-ue590-monitor-revisited/"><u>[Updated] High Definition on Demand Samsung's UE590 Monitor Revisited</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/updated-in-2024-essential-tips-for-font-addition-in-after-effects/"><u>[Updated] In 2024, Essential Tips for Font Addition in After Effects</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-in-2024-seamless-replay-on-iphone-a-how-to-guide/"><u>[Updated] In 2024, Seamless Replay on iPhone A How-To Guide</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-in-2024-video-production-evolution-prime-lenses-for-youtube-enthusiasts/"><u>[Updated] In 2024, Video Production Evolution Prime Lenses for YouTube Enthusiasts</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-master-the-art-of-youtube-video-sizing-shape-and-clarity-for-2024/"><u>[Updated] Master the Art of YouTube Video Sizing, Shape & Clarity for 2024</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/updated-phonesnapshot-protocols-expert-tips-for-mobile-capture-on-snapchat/"><u>[Updated] Phonesnapshot Protocols Expert Tips for Mobile Capture on Snapchat</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-the-complete-guide-to-producing-high-impact-youtube-intros/"><u>[Updated] The Complete Guide to Producing High-Impact YouTube Intros</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-the-next-generation-of-video-communities-post-youtube/"><u>[Updated] The Next Generation of Video Communities Post-YouTube</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/finding-the-elusive-msvcr100dll-step-by-step-troubleshooting-for-windows-users/"><u>Finding the Elusive MSVCR100.dll: Step-by-Step Troubleshooting for Windows Users</u></a></li>
-<li><a href="https://fix-guide.techidaily.com/how-to-flash-dead-nokia-xr21-safely-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How to Flash Dead Nokia XR21 Safely | Dr.fone</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/in-2024-maximizing-call-recording-20plus-techniques-for-windowsmac-users/"><u>In 2024, Maximizing Call Recording 20+ Techniques for Windows/Mac Users</u></a></li>
-<li><a href="https://games-able.techidaily.com/top-8-buying-decisions-when-purchasing-a-cpu-cooler/"><u>Top 8 Buying Decisions When Purchasing a CPU Cooler</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/top-rated-smart-lock-app-ideal-for-iphone-enthusiasts-a-seamless-security-solution/"><u>Top-Rated Smart Lock App Ideal for iPhone Enthusiasts: A Seamless Security Solution</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/aptivating-audiencvith-effective-thumbnail-sizes/"><u>[New] Captivating Audiencvith Effective Thumbnail Sizes</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/new-capturing-perfect-voices-3-ipad-solutions-for-2024/"><u>[New] Capturing Perfect Voices 3 iPad Solutions for 2024</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-in-2024-crafting-captivating-igtv-cover-photos-thumbnails/"><u>[New] In 2024, Crafting Captivating IGTV Cover Photos (Thumbnails)</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-in-2024-navigating-video-editing-the-essentials-of-cropping-and-exporting-to-instagram/"><u>[New] In 2024, Navigating Video Editing The Essentials of Cropping and Exporting to Instagram</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-why-choose-av1-for-youtube-unlock-potential/"><u>[New] In 2024, Why Choose AV1 for YouTube? – Unlock Potential</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/nlocking-youtube-sponsor-opportunities-via-famebit-methods-for-2024/"><u>[New] Unlocking YouTube Sponsor Opportunities via FameBit Methods for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-2024-approved-unlocking-more-traffic-the-ultimate-list-of-keyword-tools/"><u>[Updated] 2024 Approved Unlocking More Traffic The Ultimate List of Keyword Tools</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-mastering-youtube-google-meet-live-broadcast-steps/"><u>[Updated] Mastering YouTube Google Meet Live Broadcast Steps</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-shutting-out-the-world-what-makes-a-video-unlisted-on-youtube/"><u>[Updated] Shutting Out the World What Makes a Video Unlisted on YouTube</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-worldwide-web-watchers-10-top-youtube-stars-for-2024/"><u>[Updated] Worldwide Web Watchers 10 Top YouTube Stars for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/approved-beyond-vidcon-the-most-important-youtube-events/"><u>2024 Approved Beyond VidCon - The Most Important YouTube Events</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/approved-real-results-with-ethical-audience-engagement-on-youtube/"><u>2024 Approved Real Results with Ethical Audience Engagement on Youtube</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/how-to-come-up-with-the-best-pokemon-team-on-honor-x50-gt-drfone-by-drfone-virtual-android/"><u>How to Come up With the Best Pokemon Team On Honor X50 GT? | Dr.fone</u></a></li>
+<li><a href="https://apple-account.techidaily.com/how-to-erase-an-apple-iphone-6-plus-without-apple-id-password-by-drfone-ios/"><u>How To Erase an Apple iPhone 6 Plus Without Apple ID Password?</u></a></li>
+<li><a href="https://techidaily.com/how-to-factory-reset-oppo-a1-5g-in-5-easy-ways-drfone-by-drfone-reset-android-reset-android/"><u>How to Factory Reset Oppo A1 5G in 5 Easy Ways | Dr.fone</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/in-2024-creating-impactful-youtube-thumbnails-and-ads/"><u>In 2024, Creating Impactful YouTube Thumbnails & Ads</u></a></li>
+<li><a href="https://app-tips.techidaily.com/retrieve-deleted-items-from-your-icloud-a-comprehensive-guide-to-icloud-file-restoration/"><u>Retrieve Deleted Items From Your iCloud: A Comprehensive Guide to iCloud File Restoration</u></a></li>
+<li><a href="https://program-issues.techidaily.com/troubleshoot-helldivers-2-crashes-on-pc-with-these-reliable-methods/"><u>Troubleshoot Helldivers 2 Crashes on PC with These Reliable Methods</u></a></li>
+<li><a href="https://techidaily.com/why-stellar-data-recovery-for-iphone-12-mini-takes-time-in-scanning-my-iphone-stellar-by-stellar-data-recovery-ios-iphone-data-recovery/"><u>Why Stellar Data Recovery for iPhone 12 mini takes time in scanning my iPhone? | Stellar</u></a></li>
 </ul></div>
 
