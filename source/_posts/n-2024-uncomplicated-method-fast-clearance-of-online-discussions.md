@@ -1,7 +1,7 @@
 ---
 title: "\"[New] In 2024, Uncomplicated Method  Fast Clearance of Online Discussions\""
-date: 2024-09-11T20:59:12.100Z
-updated: 2024-09-16T22:16:14.185Z
+date: 2024-10-24T04:35:12.298Z
+updated: 2024-10-27T05:18:46.745Z
 tags:
   - ai video
   - ai youtube
@@ -74,6 +74,19 @@ Fear not. Read on to know how to **delete all comments you posted on someone els
 1. When you reach the Comment History page, you will be able to find all comments you have ever posted. Scroll down to the comment you want to delete.
 2. Click on the three vertical dots that you see beside the target comment. You will find a Delete option. Tap on it, and confirm that you want to delete the comment. That completes the process. No more embarrassing comments!
 
+<!-- affiliate ads begin -->
+<span id="1983549">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983549.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983549">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983549.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983549%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983549/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## How Do You Delete Your Comments from Your Phone?
 
 Don’t have a desktop handy? This section will tell you how you can delete your comments you posted on your or someone else’s YouTube video from your mobile.
@@ -109,23 +122,10 @@ To find your History from your desktop, you need to click on the three horizonta
 ![ Report YouTube comments](https://images.wondershare.com/filmora/article-images/report-youtube-comment.jpg)
 
 <!-- affiliate ads begin -->
-<span id="1993651">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993651.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993651">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993651.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993651%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993651/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136613/26400" target="_top" id="2136613">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136613" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2118312/7443" target="_top" id="2118312">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118312" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136613/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118312/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## How to Delete All Your Posted YouTube Comments?
@@ -137,20 +137,27 @@ You can also delete all comments you ever posted on any YouTube video by hiding 
 
 ![   YouTube Settings](https://images.wondershare.com/filmora/article-images/two-ways-settings-youtube-channel.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130885/7443" target="_top" id="2130885">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130885" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130885/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 1. YouTube will direct you to the Settings page of your account. Choose Advanced Settings from the list on your left. You can also access it from[here](https://www.youtube.com/account%5Fadvanced).
 
 ![   YouTube Advanced  Settings](https://images.wondershare.com/filmora/article-images/youtube-advanced-settings.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1885943/19272" target="_top" id="1885943">
+  <img src="//a.impactradius-go.com/display-ad/19272-1885943" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1885943/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 1. Scroll down and select Delete Channel. Clicking it will not delete your account. When you click on Delete Channel, you will get two choices – ‘I want to hide my channel’ and ‘I want to permanently delete my content’. Select the first.
 
 ![   YouTube Settings](https://images.wondershare.com/filmora/article-images/remove-youtube-content.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151858/7443" target="_top" id="2151858">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151858" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151858/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 1. YouTube will now show you what will happen when you hide your channel. Check all the boxes to confirm that you understand, and then tap on Hide My Channel. YouTube will now delete all comments made by your account.
 
@@ -179,5 +186,19 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-content.techidaily.com/new-demystifying-facebooks-blue-image-symbol/"><u>[New] Demystifying Facebook's Blue Image Symbol</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-from-concept-to-completion-crafting-your-youtube-masterpiece/"><u>[New] In 2024, From Concept to Completion Crafting Your YouTube Masterpiece</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/new-resolving-bandwidth-issues-in-high-quality-obs-for-2024/"><u>[New] Resolving Bandwidth Issues in High Quality OBS for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-2024-approved-tailored-video-experience-creating-a-structured-watch-later-list-on-youtube/"><u>[Updated] 2024 Approved Tailored Video Experience Creating a Structured 'Watch Later' List on YouTube</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-pause-non-selected-youtube-video-suggestions/"><u>[Updated] Pause Non-Selected YouTube Video Suggestions</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/in-2024-digital-diaries-top-picks-for-personal-recorders/"><u>In 2024, Digital Diaries Top Picks for Personal Recorders</u></a></li>
+<li><a href="https://video-creation-software.techidaily.com/pcdvd-mp4/"><u>PC上にDVDビデオをスムーズインポート: MP4出力用・シンプルガイド</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ine-path-to-youtube-prosperity/"><u>Plotline Path to YouTube Prosperity</u></a></li>
+<li><a href="https://blue-screen-error.techidaily.com/resolved-fixing-cmusbdacsys-causes-bsod-on-windows-systems/"><u>Resolved: Fixing 'CMUSBDAC.sys' Causes BSoD on Windows Systems</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ts-of-youtube-link-driven-growth-for-content-creators/"><u>Secrets of YouTube Link-Driven Growth for Content Creators</u></a></li>
+<li><a href="https://games-able.techidaily.com/skyline-gaming-unlocking-xbox-series-xs-potential/"><u>Skyline Gaming: Unlocking Xbox Series X's Potential</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/why-is-my-ubisoft-connect-not-working-solutions-to-common-glitches-in-202cu/"><u>Why Is My Ubisoft Connect Not Working? Solutions to Common Glitches in 202Cu</u></a></li>
+</ul></div>
 

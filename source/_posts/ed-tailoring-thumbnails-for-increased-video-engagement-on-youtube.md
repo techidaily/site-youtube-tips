@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Tailoring Thumbnails for Increased Video Engagement on YouTube"
-date: 2024-10-18T16:17:55.367Z
-updated: 2024-10-21T16:00:23.020Z
+date: 2024-10-24T07:38:09.343Z
+updated: 2024-10-26T17:35:15.156Z
 tags:
   - ai video
   - ai youtube
@@ -48,10 +48,16 @@ Here are 5 easy tips for creating thumbnails that get views.
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151870/7443" target="_top" id="2151870">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151870" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151870/7443" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1936838">
+					<video width="374" height="48" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1936838.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/18409-1936838">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1936838.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:234px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fcoinrule.sjv.io%2Fc%2F5597632%2F1936838%2F18409'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1936838/18409" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## 1\. Have a Consistent Layout
@@ -63,23 +69,10 @@ An example of a standard layout could be you in the middle of the screen wearing
 ![Consistent Layout](https://images.wondershare.com/filmora/article-images/consistent-layout.jpg)
 
 <!-- affiliate ads begin -->
-<span id="1993647">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993647.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993647">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993647.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993647%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993647/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1918661/19272" target="_top" id="1918661">
-  <img src="//a.impactradius-go.com/display-ad/19272-1918661" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2043596/7443" target="_top" id="2043596">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043596" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918661/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043596/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **2\. Use Your Face**
@@ -89,10 +82,10 @@ People feel automatically connected and drawn into images that make eye contact.
 Also, if somebody recognizes you in your thumbnail from a previous video of yours, that will go a long way towards making them click.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1880972/19272" target="_top" id="1880972">
-  <img src="//a.impactradius-go.com/display-ad/19272-1880972" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2044586/7443" target="_top" id="2044586">
+  <img src="//a.impactradius-go.com/display-ad/7443-2044586" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880972/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2044586/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## 3\. Use Graphics/Emojis that are On Topic
@@ -100,6 +93,13 @@ Also, if somebody recognizes you in your thumbnail from a previous video of your
 Anybody can take a screenshot of themselves in their video and use it as a thumbnail. To make your thumbnails look polished, consider using small images (like emojis or hearts) to stand out. This will add color and personality to your thumbnail.
 
 Make sure the images you choose are relevant to the topic of your video.
+
+<!-- affiliate ads begin -->
+<a href="https://imp.i357552.net/c/5597632/1030380/11832" target="_top" id="1030380">
+  <img src="//a.impactradius-go.com/display-ad/11832-1030380" border="0" alt="https://techidaily.com" width="720" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1030380/11832" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## 4\. Make Your Text Huge
 
@@ -140,14 +140,16 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-tips.techidaily.com/eleting-youtube-comments-for-2024/"><u>[New] Deleting YouTube Comments for 2024</u></a></li>
-<li><a href="https://article-files.techidaily.com/new-in-2024-excellent-choice-7-premium-videos-on-mac/"><u>[New] In 2024, Excellent Choice 7 Premium Videos on Mac</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-2024-approved-recording-techniques-for-instagrams-ephemeral-content/"><u>[Updated] 2024 Approved Recording Techniques for Instagram's Ephemeral Content</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-charting-success-with-youtube-income-streams-for-2024/"><u>[Updated] Charting Success with YouTube Income Streams for 2024</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/updated-navigating-the-complexity-of-youtube-thumbnail-psychology/"><u>[Updated] Navigating the Complexity of YouTube Thumbnail Psychology</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-optimizing-video-playback-loops-for-comfortable-viewing-on-tv-for-2024/"><u>[Updated] Optimizing Video Playback Loops for Comfortable Viewing on TV for 2024</u></a></li>
-<li><a href="https://extra-support.techidaily.com/updated-radiant-contrast-synchronizer/"><u>[Updated] Radiant Contrast Synchronizer</u></a></li>
-<li><a href="https://some-tips.techidaily.com/2024-approved-the-ultimate-drone-journey-full-phantom-4-features-explored/"><u>2024 Approved The Ultimate Drone Journey Full Phantom 4 Features Explored</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/24-the-mechanics-of-producing-engaging-mukbang-content/"><u>In 2024, The Mechanics of Producing Engaging Mukbang Content</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/diting-experience-workshop/"><u>[New] Editing Experience Workshop</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-crafting-your-perfect-youtube-playlists-a-step-by-step-guide/"><u>[New] In 2024, Crafting Your Perfect YouTube Playlists A Step-by-Step Guide</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-leading-8-mirrorless-cameras-for-youtube-creators/"><u>[New] In 2024, Leading 8 Mirrorless Cameras For YouTube Creators</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/new-top-7-voice-changer-recorder-apps-for-2024/"><u>[New] Top 7 Voice Changer Recorder Apps for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-2024-approved-10-yt-channels-surging-ideas-and-insights-unleashed/"><u>[Updated] 2024 Approved 10 YT Channels Surging Ideas and Insights Unleashed</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/updated-ideal-steadicams-for-capturing-quality-uav-visuals/"><u>[Updated] Ideal Steadicams for Capturing Quality UAV Visuals</u></a></li>
+<li><a href="https://fox-access.techidaily.com/updated-introducing-the-essence-of-motion-blur-techniques-on-iphone-for-2024/"><u>[Updated] Introducing the Essence of Motion-Blur Techniques on iPhone for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/approved-captivating-clips-keywords-that-ignite-viral-shorts-on-youtube/"><u>2024 Approved Captivating Clips Keywords That Ignite Viral Shorts on YouTube</u></a></li>
+<li><a href="https://extra-support.techidaily.com/2024-approved-one-minute-mastery-of-fades/"><u>2024 Approved One-Minute Mastery of Fades</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/oppo-a79-5g-screen-unresponsive-heres-how-to-fix-it-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Oppo A79 5G Screen Unresponsive? Heres How to Fix It | Dr.fone</u></a></li>
+<li><a href="https://win-able.techidaily.com/1723013877151-stardew-valley-wont-start-on-your-console-heres-what-you-need-to-know/"><u>Stardew Valley Won’t Start on Your Console? Here’s What You Need to Know</u></a></li>
 </ul></div>
 

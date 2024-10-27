@@ -1,7 +1,7 @@
 ---
 title: "\"[New] In 2024, Snappy and Simple  Steps for Posting Short Videos Online\""
-date: 2024-09-09T22:27:51.655Z
-updated: 2024-09-16T16:42:12.755Z
+date: 2024-10-25T09:12:05.835Z
+updated: 2024-10-26T21:01:58.235Z
 tags:
   - ai video
   - ai youtube
@@ -95,6 +95,13 @@ The process of **uploading YouTube Shorts** from the mobile app is fairly simple
 
 ![Select a Video to Upload as Shorts](https://images.wondershare.com/filmora/article-images/select-shorts-videos-to-upload-on-youtube.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2087390/7443" target="_top" id="2087390">
+  <img src="//a.impactradius-go.com/display-ad/7443-2087390" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087390/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 On your Android or iOS smartphone, launch the YouTube app, tap the **+** (**Create**) icon from the bottom, tap **Create a Short** from the **Create** box that pops up from the bottom, tap **Upload** from the bottom-right corner of the next screen, and select and upload a short, 60 seconds video recorded in portrait orientation from your device’s storage to the app.
 
 #### Step 2: Add Details
@@ -107,6 +114,13 @@ On the next screen, tap **NEXT**, user the **Music** and **Text** icons at the b
 
 Finally tap **UPLOAD** from the top-right corner to upload the short video on YouTube.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1896541/19272" target="_top" id="1896541">
+  <img src="//a.impactradius-go.com/display-ad/19272-1896541" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896541/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Method 2: Record a Short Video and Upload
 
 **Step 1:** Record Shorts Video
@@ -116,6 +130,13 @@ Previously, I have introduced [how to record and upload YouTube Shorts videos](h
 Please note you will not see the **Create a Short** option if you are outsides of India.
 
 ![ Record YouTube Shorts video](https://images.wondershare.com/filmora/article-images/record-create-youtube-short-video-mobile.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2118311/7443" target="_top" id="2118311">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118311" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118311/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 In the YouTube app, tap the **+** (**Add**) button and select **Create** **a Short**. Please note you will not see the **Create a Short** option if you are outsides of India.
 
@@ -134,10 +155,10 @@ On the **Add details** window, enter a name for the video along with the **#Shor
 **[![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)**
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135403/19272" target="_top" id="2135403">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135403" border="0" alt="https://techidaily.com" width="392" height="72"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135366/19272" target="_top" id="2135366">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135366" border="0" alt="https://techidaily.com" width="160" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135403/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135366/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 **Conclusion**
@@ -145,13 +166,6 @@ On the **Add details** window, enter a name for the video along with the **#Shor
 Learning the process of **how to post short videos on YouTube** is fairly simple as long as you have the video recorded in the portrait orientation, it is up to 60 seconds long, and contains the ‘#Shorts’ tag (without quotes) in the title or description. The good thing is, if you don’t have access to the YouTube app on your smartphone, the method for **how to upload short video on YouTube** explained in the first section can be followed while using your desktop computer.
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
-
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139117/17108" target="_top" id="2139117">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139117" border="0" alt="https://techidaily.com" width="320" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139117/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
@@ -174,5 +188,18 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-tips.techidaily.com/ssential-steps-to-create-youtube-beginnings-and-ends-on-a-budget-for-2024/"><u>[New] Essential Steps to Create YouTube Beginnings & Ends on a Budget for 2024</u></a></li>
+<li><a href="https://fox-access.techidaily.com/new-mastering-iphone-photography-focus-on-shadows/"><u>[New] Mastering iPhone Photography Focus on Shadows</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-mastering-short-form-trimming-videos-for-youtube-for-2024/"><u>[Updated] Mastering Short-Form Trimming Videos for YouTube for 2024</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/updated-plunge-into-metaverse-top-8-high-tech-goggles-and-helmets/"><u>[Updated] Plunge Into Metaverse Top 8 High-Tech Goggles & Helmets</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-the-fundamentals-of-high-impact-asmr-filming-and-editing-for-2024/"><u>[Updated] The Fundamentals of High-Impact ASMR Filming & Editing for 2024</u></a></li>
+<li><a href="https://some-tips.techidaily.com/updated-transcribe-speech-absolutely-gratis/"><u>[Updated] Transcribe Speech, Absolutely Gratis</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/approved-maestro-of-visual-and-sonic-harmony-creation/"><u>2024 Approved Maestro of Visual & Sonic Harmony Creation</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/approved-your-path-to-youtube-prominence-effective-tactics-unveiled/"><u>2024 Approved Your Path to YouTube Prominence Effective Tactics Unveiled</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/enhancing-chatgpt-talks-the-ultimate-guide-to-citing-your-tailored-generative-models/"><u>Enhancing ChatGPT Talks: The Ultimate Guide to Citing Your Tailored Generative Models</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/imate-strategies-to-amass-over-a-million-youtube-views-for-2024/"><u>Legitimate Strategies to Amass Over a Million YouTube Views for 2024</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/quick-and-effective-ways-to-refresh-graphic-card-drivers-on-windows-systems/"><u>Quick and Effective Ways to Refresh Graphic Card Drivers on Windows Systems</u></a></li>
+</ul></div>
 

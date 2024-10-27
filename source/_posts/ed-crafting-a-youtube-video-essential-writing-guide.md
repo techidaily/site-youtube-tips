@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Crafting a YouTube Video  Essential Writing Guide\""
-date: 2024-09-11T19:17:33.589Z
-updated: 2024-09-16T19:33:51.189Z
+date: 2024-10-20T01:34:37.245Z
+updated: 2024-10-27T07:23:18.068Z
 tags:
   - ai video
   - ai youtube
@@ -44,9 +44,23 @@ You have a great idea for a video, but you’re just not sure how to express it 
 
 Here are some things to do before you start writing your script for YouTube:
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137203/26400" target="_top" id="2137203">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137203" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137203/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 1\. Collect Ideas
 
 Before you write the script, it’s a good idea to gather ideas. If you think of something, or if something funny happens, write it down right away. Keep a pen and notebook handy that way you will not forget about it.
+
+<!-- affiliate ads begin -->
+<a href="https://united.elfm.net/c/5597632/517826/4704" target="_top" id="517826">
+  <img src="//a.impactradius-go.com/display-ad/4704-517826" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://united.elfm.net/i/5597632/517826/4704" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 2\. Find an area that is not distracting
 
@@ -56,16 +70,16 @@ Once you have gathered enough ideas for the YouTube video, the next step is to f
 
 Now that you're ready to sit down and write, here's what you do:
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134227/18498" target="_top" id="2134227">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134227" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134227/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 1\. Create an outline for your story
 
 The first step in writing a script is to develop an outline for the story. You might think that it is an unnecessary step, but it’s one of the most important steps to writing a script. The outline serves as a guide that will make the finished product better compared to when you just tried to wing it. One tip on how to write a script for a YouTube video is to have an outline for the beginning, middle, and ending of the video. Once you have all the elements of the story, then you can start with the first draft of the script.
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137220/26400" target="_top" id="2137220">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137220" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137220/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 2\. Set the tone
 
@@ -76,10 +90,10 @@ The tone you pick for the video will depend on your audience. It’s safe to ass
 When you start writing it is important that you keep on doing it no matter what happens. Just write down everything that comes into your mind. After that, read what you’ve written. If you think that something needs to be replaced, then replace it. If you get more inspiration and think that the script is lacking, then add to it.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115931/19272" target="_top" id="2115931">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115931" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2100541/7443" target="_top" id="2100541">
+  <img src="//a.impactradius-go.com/display-ad/7443-2100541" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115931/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100541/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 4\. Make sure that the script is well structured
@@ -116,13 +130,6 @@ Creating subtitles with Wondershare Filmora is very easy and a newbie can easily
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2130533/26400" target="_top" id="2130533">
-  <img src="//a.impactradius-go.com/display-ad/26400-2130533" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130533/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 Richard Bennett
@@ -144,5 +151,26 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-info.techidaily.com/new-2024-approved-from-camera-roll-to-feed-adding-photos-on-instagram/"><u>[New] 2024 Approved From Camera Roll to Feed Adding Photos on Instagram</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/new-2024-approved-unraveling-the-itunes-radio-download-process/"><u>[New] 2024 Approved Unraveling the iTunes Radio Download Process</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ot-takes-dailys-most-popular-video-tracks/"><u>[New] Hot Takes Daily's Most Popular Video Tracks</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-15plus-best-iphoneipad-video-editing-tools-in-free-market/"><u>[New] In 2024, 15+ Best iPhone/iPad Video Editing Tools in Free Market</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/new-in-2024-free-vimeo-tutorial-to-craft-engaging-videos/"><u>[New] In 2024, Free Vimeo Tutorial to Craft Engaging Videos</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-cut-down-clutter-discover-these-7-ultimate-android-app-blockers/"><u>[Updated] Cut Down Clutter Discover These 7 Ultimate Android App Blockers</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-in-2024-flawless-playlist-integration-techniques-in-web-development/"><u>[Updated] In 2024, Flawless Playlist Integration Techniques in Web Development</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-maximizing-engagement-the-power-of-tailored-cards-and-ends-on-yt-for-2024/"><u>[Updated] Maximizing Engagement The Power of Tailored Cards & Ends on YT for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-rise-above-the-crowd-10-proven-techniques-for-video-standout-for-2024/"><u>[Updated] Rise Above the Crowd 10 Proven Techniques for Video Standout for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-unveiling-the-art-of-auditory-enhancement-on-youtube/"><u>[Updated] Unveiling the Art of Auditory Enhancement on YouTube</u></a></li>
+<li><a href="https://howto.techidaily.com/4-ways-to-fix-android-blue-screen-of-death-on-vivo-y100i-power-5g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>4 Ways to Fix Android Blue Screen of Death On Vivo Y100i Power 5G | Dr.fone</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/budget-friendly-apple-watch-se-evaluation/"><u>Budget-Friendly Apple Watch SE Evaluation</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/g-into-the-world-of-youtubers-starting-your-channel-earning-cash-for-2024/"><u>Diving Into the World of Youtubers Starting Your Channel, Earning Cash for 2024</u></a></li>
+<li><a href="https://fake-location.techidaily.com/how-to-fake-gps-on-itel-p55plus-for-mobile-legends-drfone-by-drfone-virtual-android/"><u>How To Fake GPS On Itel P55+ For Mobile Legends? | Dr.fone</u></a></li>
+<li><a href="https://howto.techidaily.com/how-to-fix-it-vivo-x90s-wont-turn-on-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How to Fix It Vivo X90S Wont Turn On | Dr.fone</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/in-2024-capturing-and-saving-your-favorite-facebook-stories-pcmobile/"><u>In 2024, Capturing & Saving Your Favorite Facebook Stories (PC/Mobile)</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/next-gen-wraps-for-virtual-reality-enthusiasts/"><u>Next-Gen Wraps for Virtual Reality Enthusiasts</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/revolutionary-ascendancy-five-drives-of-gpts-escalation/"><u>Revolutionary Ascendancy: Five Drives of GPT's Escalation</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/standing-vimeos-unique-value-over-youtube-for-2024/"><u>Understanding Vimeo's Unique Value over YouTube for 2024</u></a></li>
+</ul></div>
 

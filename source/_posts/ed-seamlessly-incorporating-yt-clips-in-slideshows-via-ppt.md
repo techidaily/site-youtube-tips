@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Seamlessly Incorporating YT Clips in Slideshows via PPT"
-date: 2024-10-14T16:01:22.867Z
-updated: 2024-10-21T16:00:57.613Z
+date: 2024-10-20T05:48:00.271Z
+updated: 2024-10-26T20:47:00.683Z
 tags:
   - ai video
   - ai youtube
@@ -54,32 +54,25 @@ Open your default web browser, go to the YouTube video you want to embed to Powe
 ![ embed YouTube video to PowerPoint ](https://images.wondershare.com/filmora/article-images/embed-youtube-video-via-url.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135354/19272" target="_top" id="2135354">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135354" border="0" alt="https://techidaily.com" width="250" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2006941/19272" target="_top" id="2006941">
+  <img src="//a.impactradius-go.com/display-ad/19272-2006941" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135354/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006941/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Launch PowerPoint if it is not already open, go to the slide you want to embed the YouTube video to, click **Insert** from menu bar present above the Ribbon, click **Video** from the **Media** section at the right end of the Ribbon, click **Online Video** from the list that appears, in the **Enter the URL for the online video** field on the **Online Video** box, paste the URL that you copied earlier, and click **Insert** to **insert YouTube video into PowerPoint**.
 
 ![ embed YouTube video to PowerPoint ](https://images.wondershare.com/filmora/article-images/embed-youtube-video-in-powerpoint-via-url-2.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135418/19272" target="_top" id="2135418">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135418" border="0" alt="https://techidaily.com" width="468" height="60"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135418/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 **Step 3: Position the Player**
 
 Once the video is added to the PowerPoint slide, drag its frame and reposition it to a suitable location.
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137211/26400" target="_top" id="2137211">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137211" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2037338/7443" target="_top" id="2037338">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037338" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137211/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037338/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Method 2: Embed a YouTube Video with Embed Code (For Microsoft PowerPoint 2016)
@@ -91,6 +84,13 @@ Unlike PowerPoint 2019 that accepts URLs and embed codes in a single URL field, 
 Go to the YouTube video you want to embed to your PowerPoint slide, click the **SHARE** icon from the left area under the video player, click the **Embed** icon in the **Share** box, and click **COPY** from the bottom-right corner of the **Embed Video** box that appears next.
 
 ![ embed YouTube video code to PowerPoint ](https://images.wondershare.com/filmora/article-images/embed-youtube-video-in-powerpoint-via-embed-code.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2087484/7443" target="_top" id="2087484">
+  <img src="//a.impactradius-go.com/display-ad/7443-2087484" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087484/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 **Step 2: Get to the PowerPoint’s Insert Video Box**
 
@@ -112,13 +112,6 @@ Use the process explained in **Step 2** of **Method 2** to get to the **Insert V
 
 In the **Search YouTube** field next to the **YouTube** option, type the name of the video you want to search on YouTube, press **Enter**, select the video you want to embed, and click **Insert** to **insert YouTube video into PowerPoint**.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068417/7443" target="_top" id="2068417">
-  <img src="//a.impactradius-go.com/display-ad/7443-2068417" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068417/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Method 4: Insert Video from PC
 
 Another method to **embed YouTube video in PowerPoint** is by downloading the clip to your PC, and then inserting the footage from there. You can use any free YouTube downloader to obtain a video that is available on YouTube.
@@ -138,6 +131,19 @@ Click the **Video** icon from the **Media** section of the Ribbon, click **Video
 **Step 3: Resize and/or Modify the Video**
 
 Grab any of the six handles of the video you inserted, and drag it inward to decrease the size of the frame. It is advisable to use the corner handle and drag them diagonally to maintain proper aspect ratio of the player’s frame. Next, right-click anywhere inside the frame, click **Format Video** from the context menu, and use the options that appear in the right pane to make necessary adjustments to the clip like color correction, manage brightness and contrast, etc.
+
+<!-- affiliate ads begin -->
+<span id="1743243">
+					<video width="200" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1743243.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/19272-1743243">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1743243.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Faligracehair.sjv.io%2Fc%2F5597632%2F1743243%2F19272'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1743243/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## YouTube Embedding Supported PowerPoint Version Checklist
 
@@ -199,17 +205,20 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-footage.techidaily.com/new-2024-approved-a-guide-to-essential-asmr-video-facts/"><u>[New] 2024 Approved A Guide to Essential ASMR Video Facts</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/astering-visual-clarity-the-art-of-background-softening-on-youtube/"><u>[New] Mastering Visual Clarity The Art of Background Softening on Youtube</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-in-2024-skyrocketing-your-presence-on-youtube-with-live-games/"><u>[Updated] In 2024, Skyrocketing Your Presence on YouTube with Live Games</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-solutions-for-missing-shorts-thumbnails-on-youtube-for-2024/"><u>[Updated] Solutions for Missing Shorts Thumbnails on YouTube for 2024</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/updated-unveiling-the-techniques-of-premium-vr-gametime-captures-for-2024/"><u>[Updated] Unveiling the Techniques of Premium VR Gametime Captures for 2024</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-yt-shorts-soundtrack-hits-top-10-trending-sounds-for-2024/"><u>[Updated] YT Shorts Soundtrack Hits Top 10 Trending Sounds for 2024</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/best-task-management-tools-the-ultimate-top-6-list-for-productivity-zdnet-review/"><u>Best Task Management Tools: The Ultimate Top 6 List for Productivity | ZDNET Review</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/easily-unlock-your-realme-narzo-60-5g-device-sim-by-drfone-android/"><u>Easily Unlock Your Realme Narzo 60 5G Device SIM</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/cing-visual-impact-a-guide-to-jump-cut-techniques/"><u>Enhancing Visual Impact A Guide to Jump Cut Techniques</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/section-4c-qandas-with-solutions/"><u>Section 4C: Q&As with Solutions</u></a></li>
-<li><a href="https://howto.techidaily.com/top-4-android-system-repair-software-for-oppo-reno-11f-5g-bricked-devices-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Top 4 Android System Repair Software for Oppo Reno 11F 5G Bricked Devices | Dr.fone</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/understanding-dvd-video-quality-exploring-common-resolutions-of-dvds/"><u>Understanding DVD Video Quality - Exploring Common Resolutions of DVDs</u></a></li>
+<li><a href="https://extra-information.techidaily.com/new-cinematic-basics-a-list-of-essential-camera-movements/"><u>[New] Cinematic Basics A List of Essential Camera Movements</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-twitbook-transforms-best-tweeting-with-gifs-2024-edition/"><u>[New] TwitBook Transforms Best Tweeting With Gifs, 2024 Edition</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-in-2024-transforming-your-videos-for-igtv-excellence-3-methods/"><u>[Updated] In 2024, Transforming Your Videos for IGTV Excellence (3 Methods)</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-mastering-free-melodies-a-guide-for-youtube-producers-for-2024/"><u>[Updated] Mastering Free Melodies A Guide for YouTube Producers for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-maximizing-video-impact-with-elite-rank-tracker-software-solutions-for-2024/"><u>[Updated] Maximizing Video Impact with Elite Rank Tracker Software Solutions for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-snapcutmaster-insights-full-scrutiny/"><u>[Updated] SnapCutMaster Insights – Full Scrutiny</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-the-art-of-economy-streamlining-youtube-videos-for-2024/"><u>[Updated] The Art of Economy Streamlining YouTube Videos for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-unlocking-seo-the-essentials-of-keyword-analysis-on-youtube/"><u>[Updated] Unlocking SEO The Essentials of Keyword Analysis on YouTube</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/2024-approved-deciding-the-best-for-screens-is-obs-more-effective-than-fraps/"><u>2024 Approved Deciding the Best for Screens Is OBS More Effective than Fraps?</u></a></li>
+<li><a href="https://data-safeguard.techidaily.com/download-free-photo-recovery-tool-to-restore-damaged-images/"><u>Download Free Photo Recovery Tool to Restore Damaged Images</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/how-to-fix-hyperx-cloud-alpha-headset-microphone-issues-a-complete-guide/"><u>How to Fix HyperX Cloud Alpha Headset Microphone Issues: A Complete Guide</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-repair-a-damaged-video-file-of-13t-pro-using-video-repair-utility-on-mac-by-stellar-video-repair-mobile-video-repair/"><u>How to Repair a Damaged video file of 13T Pro using Video Repair Utility on Mac?</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/in-2024-streaming-titans-clash-streamlabs-versus-obs-in-the-arena/"><u>In 2024, Streaming Titans Clash Streamlabs versus OBS in the Arena</u></a></li>
+<li><a href="https://common-error.techidaily.com/mastering-the-red-screen-dilemma-expert-tips-and-tricks-unveiled/"><u>Mastering the Red Screen Dilemma: Expert Tips and Tricks Unveiled!</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/gateway-to-success-with-a-bundle-of-50-free-adornments-in-2024/"><u>Your Gateway to Success with a Bundle of 50 FREE Adornments, In 2024</u></a></li>
 </ul></div>
 

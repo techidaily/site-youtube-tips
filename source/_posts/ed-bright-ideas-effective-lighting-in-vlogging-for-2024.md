@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Bright Ideas  Effective Lighting in Vlogging for 2024\""
-date: 2024-10-20T16:12:45.113Z
-updated: 2024-10-21T16:17:27.339Z
+date: 2024-10-21T02:01:44.736Z
+updated: 2024-10-27T00:36:23.165Z
 tags:
   - ai video
   - ai youtube
@@ -49,20 +49,14 @@ The **fill light** is less bright than the primary source of light and it is pla
 
 The final step to creating three point lighting is to set up another light behind you. This is your 'Backlight', and it will help you stand out from your background. **Backlight or Hair light** is always placed behind and above the subject to create separation between the subject in the shot and the background. This basic lighting technique can be applied in almost every scene you shoot, which is why it is important to keep an open mind and to continue experimenting with possible light setups.
 
-<!-- affiliate ads begin -->
-<span id="1531882">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1531882.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1531882">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1531882.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1531882%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1531882/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Watch Video! Top Lighting Tips for Vlogging
+
+<!-- affiliate ads begin -->
+<a href="https://aidotcom.pxf.io/c/5597632/2129043/19576" target="_top" id="2129043">
+  <img src="//a.impactradius-go.com/display-ad/19576-2129043" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2129043/19576" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Lightning Tips for Aspiring YouTube Videographers
 
@@ -91,10 +85,10 @@ Sets of reflectors are often under $50, so they are fairly affordable. However, 
 ![lighting tips](https://images.wondershare.com/filmora/article-images/lighting-tips01.JPG)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2037351/7443" target="_top" id="2037351">
-  <img src="//a.impactradius-go.com/display-ad/7443-2037351" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2043661/7443" target="_top" id="2043661">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043661" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037351/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043661/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 If your strong main light is too hard on your eyes then you can use a translucent 'reflector' to soften it. Set your translucent reflector, or other screen, up in front of your main light to diffuse it.
@@ -104,10 +98,10 @@ If you are hosting a **beauty vlog** then you might consider a slightly differen
 ![lighting tips](https://images.wondershare.com/filmora/article-images/lighting-tips02.JPG)
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2123512/26400" target="_top" id="2123512">
-  <img src="//a.impactradius-go.com/display-ad/26400-2123512" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2145009/26400" target="_top" id="2145009">
+  <img src="//a.impactradius-go.com/display-ad/26400-2145009" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2123512/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2145009/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 If you are using all of the lighting options available to you and your video still looks too dark then you can try brightening it by **opening up the aperture of your camera** lens/setting a lower f-stop. Letting more light into your camera can help your footage look brighter, although you also run the risk of making things look overexposed/ washed out if you are not careful.
@@ -117,10 +111,10 @@ If you are stuck shooting in **low light conditions** it is best to use a lens w
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135363/19272" target="_top" id="2135363">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135363" border="0" alt="https://techidaily.com" width="120" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2036496/19272" target="_top" id="2036496">
+  <img src="//a.impactradius-go.com/display-ad/19272-2036496" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135363/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2036496/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -144,18 +138,17 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-tips.techidaily.com/fficient-broadcast-techniques-incorporating-youtube-loops-on-tv/"><u>[New] Efficient Broadcast Techniques Incorporating YouTube Loops on TV</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/updated-2024-approved-transform-virtual-engagements-the-10-free-applications-you-need/"><u>[Updated] 2024 Approved Transform Virtual Engagements The 10 Free Applications You Need</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/updated-cost-free-webm-playback-the-top-10-players-reviewed/"><u>[Updated] Cost-Free WebM Playback The Top 10 Players Reviewed</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/updated-extensive-outlay-review-crafting-your-first-podcast/"><u>[Updated] Extensive Outlay Review Crafting Your First Podcast</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-in-2024-get-smart-with-your-youtube-thumbnails-using-a-mac/"><u>[Updated] In 2024, Get Smart with Your YouTube Thumbnails, Using a Mac</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-screen-spectrum-your-gateway-to-gameplay-for-2024/"><u>[Updated] Screen Spectrum Your Gateway to Gameplay for 2024</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-substitute-film-gems-for-fans-top-7-lists/"><u>[Updated] Substitute Film Gems for Fans - Top 7 Lists</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-the-secrets-of-captivating-audiences-in-your-videos-for-2024/"><u>[Updated] The Secrets of Captivating Audiences in Your Videos for 2024</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/2024-approved-master-zoom-recording-with-essential-gear/"><u>2024 Approved Master Zoom Recording with Essential Gear</u></a></li>
-<li><a href="https://windows11.techidaily.com/exploring-variance-in-offline-versus-online-windows-installation-methods/"><u>Exploring Variance in Offline Versus Online Windows Installation Methods</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/has-control-slipped-from-openais-hands-with-chatgpt/"><u>Has Control Slipped From OpenAI's Hands with ChatGPT?</u></a></li>
-<li><a href="https://youtube-help.techidaily.com/in-2024-the-scripted-shutdown-of-stories/"><u>In 2024, The Scripted Shutdown of Stories</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/mastering-powerpoint-updates-a-comprehensive-guide-for-professionals/"><u>Mastering PowerPoint Updates: A Comprehensive Guide for Professionals</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/levate-video-exposure-mastering-the-art-of-appropriate-tags-for-2024/"><u>[New] Elevate Video Exposure Mastering the Art of Appropriate Tags for 2024</u></a></li>
+<li><a href="https://article-files.techidaily.com/new-in-2024-microsofts-vision-of-tomorrow-with-hololens-exploration/"><u>[New] In 2024, Microsoft’s Vision of Tomorrow With HoloLens Exploration</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-10-best-youtube-keyword-tools-to-get-more-views-filmora/"><u>[Updated] 10 Best YouTube Keyword Tools to Get More Views - Filmora</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-2024-approved-online-overtures-10-influential-youtube-stars/"><u>[Updated] 2024 Approved Online Overtures 10 Influential YouTube Stars</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-average-revenue-what-every-view-contributes-to-creators-for-2024/"><u>[Updated] Average Revenue What Every View Contributes to Creators for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-smartphone-guide-crafting-engaging-video-content-for-2024/"><u>[Updated] Smartphone Guide Crafting Engaging Video Content for 2024</u></a></li>
+<li><a href="https://techtrends.techidaily.com/beginners-tutorial-creating-an-oculus-questquest-2-user-profile/"><u>Beginner's Tutorial: Creating an Oculus Quest/Quest 2 User Profile</u></a></li>
+<li><a href="https://win-docs.techidaily.com/defending-your-digital-self-a-guide-to-fortifying-your-microsoft-account-from-malicious-actors/"><u>Defending Your Digital Self: A Guide to Fortifying Your Microsoft Account From Malicious Actors</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/in-2024-dynamic-diversity-30plus-fresh-biographical-strategies-to-triple-your-views-following-on-tiktok-filmora-platform/"><u>In 2024, Dynamic Diversity 30+ Fresh Biographical Strategies to Triple Your Views, Following on TikTok-Filmora Platform</u></a></li>
+<li><a href="https://android-frp.techidaily.com/in-2024-latest-guide-how-to-bypass-oppo-a1-5g-frp-without-computer-by-drfone-android/"><u>In 2024, Latest Guide How To Bypass Oppo A1 5G FRP Without Computer</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/navigating-upgrades-safely-with-tpm-and-secure-boot-enablement/"><u>Navigating Upgrades Safely with TPM and Secure Boot Enablement</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/op-technique-for-the-digital-content-wanderer/"><u>YT Loop Technique for the Digital Content Wanderer</u></a></li>
 </ul></div>
 

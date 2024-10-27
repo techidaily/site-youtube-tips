@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  How to Edit Youtube Videos by the YouTube Video Editor\""
-date: 2024-10-18T16:25:37.449Z
-updated: 2024-10-21T16:03:30.134Z
+date: 2024-10-21T21:29:48.413Z
+updated: 2024-10-26T16:53:00.808Z
 tags:
   - ai video
   - ai youtube
@@ -67,26 +67,6 @@ Learn more about [Upload MP3 to YouTube](https://tools.techidaily.com/wondershar
 
 ![youtube video editor](https://images.wondershare.com/images/multimedia/video-editor/youtube-video-editor.jpg "youtube video editor")
 
-<!-- affiliate ads begin -->
-<span id="1977032">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1977032.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1977032">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977032.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977032%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977032/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135374/19272" target="_top" id="2135374">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135374" border="0" alt="https://techidaily.com" width="468" height="60"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135374/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Step 2. Add your videos to the timeline
 
 After getting to the editor, all your YouTube videos will appear. If you want to add a clip from the pool of videos into the project, simply drag it onto the timeline or hit the plus icon in the top right hand corner of each clip. You can also add any YouTube videos that were uploaded with a "Creative Commons" license.
@@ -96,10 +76,10 @@ To do this, go to the CC tab, find a video and drag it to the timeline.
 ![youtube video editor](https://images.wondershare.com/images/multimedia/video-editor/import-video-youtube.jpg "youtube video editor")
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2016170/19272" target="_top" id="2016170">
-  <img src="//a.impactradius-go.com/display-ad/19272-2016170" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135406/19272" target="_top" id="2135406">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135406" border="0" alt="https://techidaily.com" width="120" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2016170/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135406/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Looking for best YouTube video editor alternatives? Check this [complete guide here](https://tools.techidaily.com/wondershare/filmora/download/) \>>
@@ -121,13 +101,6 @@ With the YouTube video editor, you can quick fix your videos, add audio track of
 To cut or split your video, hover over the target clip and hit the scissor icon to cut the clip into pieces. You can also cursor over the edge of your video in the timeline and drag the handle to shorten or trim your video.
 
 ![youtube video editor](https://images.wondershare.com/topic/video-editing/youtube-video-editor-split.png "youtube video editor trim video")
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2049364/7443" target="_top" id="2049364">
-  <img src="//a.impactradius-go.com/display-ad/7443-2049364" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049364/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 #### #2 Change video settings
 
@@ -155,6 +128,13 @@ YouTube also allows you to swap out the audio with one of its licensed tracks. T
 
 ![youtube video editor tip](https://images.wondershare.com/images/multimedia/video-editor/add-music-youtube.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://united.elfm.net/c/5597632/2139557/4704" target="_top" id="2139557">
+  <img src="//a.impactradius-go.com/display-ad/4704-2139557" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://united.elfm.net/i/5597632/2139557/4704" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Note: You should note that some are songs are subject to licensing agreements, which means YouTube will automatically add advertisements to the video clip.
 
 Another short coming is that you can't edit the audio track at all. If a song is longer than your video, you can do nothing but let it play from the beginning until your video stops.
@@ -165,6 +145,13 @@ If several video clips have been added to the timeline, you need transition to m
 
 ![how to use youtube video editor](https://images.wondershare.com/images/multimedia/video-editor/add-transition-youtube.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2075471/7443" target="_top" id="2075471">
+  <img src="//a.impactradius-go.com/display-ad/7443-2075471" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075471/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 YouTube Video Editor is really easy to use, but it only provides some basic video editing functions and is really easy to crash when dealing with large file. If you want to make your video more professional, try [Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/).
 
 This desktop video editing tool can help you easily complete video editing tasks.
@@ -173,13 +160,20 @@ Download it now to have a try!
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2148639/16836" target="_top" id="2148639">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148639" border="0" alt="https://techidaily.com" width="180" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148639/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135398/19272" target="_top" id="2135398">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135398" border="0" alt="https://techidaily.com" width="250" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135373/19272" target="_top" id="2135373">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135373" border="0" alt="https://techidaily.com" width="392" height="72"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135398/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135373/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -203,24 +197,24 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-tips.techidaily.com/eletion-methods-for-youtubes-backlogged-video-collection-for-2024/"><u>[New] Deletion Methods for YouTube's Backlogged Video Collection for 2024</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ransforming-self-doubt-into-youtube-dominance/"><u>[New] Transforming Self-Doubt Into YouTube Dominance</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-2024-approved-curbing-common-mishaps-youtube-short-edition/"><u>[Updated] 2024 Approved Curbing Common Mishaps YouTube Short Edition</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ed-crafting-prime-valorant-video-thumbnails-on-youtube/"><u>[Updated] Crafting Prime Valorant Video Thumbnails on YouTube</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-revolutionize-your-content-with-these-top-10-editing-strategies/"><u>[Updated] Revolutionize Your Content with These Top 10 Editing Strategies</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-step-by-step-techniques-for-seamless-youtube-subtitling-and-captions-for-2024/"><u>[Updated] Step-by-Step Techniques for Seamless YouTube Subtitling & Captions for 2024</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/11-fast-passes-to-the-control-settings-hub/"><u>11 Fast Passes to the Control Settings Hub</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/approved-channel-command-center-mastering-your-digital-domain/"><u>2024 Approved Channel Command Center Mastering Your Digital Domain</u></a></li>
-<li><a href="https://some-skills.techidaily.com/2024-approved-unveiling-the-true-value-of-smoothing-in-adobes-arsenal/"><u>2024 Approved Unveiling the True Value of Smoothing in Adobe’s Arsenal</u></a></li>
-<li><a href="https://howto.techidaily.com/best-methods-for-oppo-a59-5g-wont-turn-on-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Best Methods for Oppo A59 5G Wont Turn On | Dr.fone</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ing-your-channels-pathway-youtubian-starter-pack-earning-money/"><u>Creating Your Channel's Pathway Youtubian Starter Pack, Earning Money</u></a></li>
-<li><a href="https://facebook.techidaily.com/expressive-exchanges-textual-embellishments-in-messages/"><u>Expressive Exchanges: Textual Embellishments in Messages</u></a></li>
-<li><a href="https://activate-lock.techidaily.com/how-to-fix-ipad-or-apple-iphone-14-plus-stuck-on-activation-lock-by-drfone-ios/"><u>How to Fix iPad or Apple iPhone 14 Plus Stuck On Activation Lock?</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/how-to-intercept-text-messages-on-infinix-note-30-5g-drfone-by-drfone-virtual-android/"><u>How to Intercept Text Messages on Infinix Note 30 5G | Dr.fone</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/24-exploring-profit-sharing-in-youtube-short-creation/"><u>In 2024, Exploring Profit Sharing in YouTube Short Creation</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/24-the-ultimate-tutorial-on-youtube-data-analysis/"><u>In 2024, The Ultimate Tutorial on YouTube Data Analysis</u></a></li>
-<li><a href="https://data-safeguard.techidaily.com/video-tutorial-mastering-data-security-with-techniques-for-encrypting-decrypting-and-recovering-your-macs-hdd/"><u>Video Tutorial: Mastering Data Security with Techniques for Encrypting, Decrypting & Recovering Your Mac's HDD</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/visionary-vr-game-engines-transforming-2023s-gaming-landscape/"><u>Visionary VR Game Engines Transforming 2023'S Gaming Landscape</u></a></li>
-<li><a href="https://driver-download.techidaily.com/windows-users-guide-downloading-and-setting-up-asus-mousepad-driver/"><u>Windows Users Guide: Downloading and Setting Up ASUS Mousepad Driver</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ccess-10-free-thumbnail-downloader-apps/"><u>[New] Access 10 Free Thumbnail Downloader Apps</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-capture-the-scene-right-basic-cinematography-for-new-directors/"><u>[New] Capture the Scene Right Basic Cinematography for New Directors</u></a></li>
+<li><a href="https://extra-information.techidaily.com/new-craft-stunning-iphone-snaps-heed-these-10-guidelines/"><u>[New] Craft Stunning iPhone Snaps - Heed These 10 Guidelines</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-in-2024-top-10-facebook-video-downloader-for-android-updated/"><u>[New] In 2024, Top 10 Facebook Video Downloader for Android - Updated</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/he-youtube-studio-essential-checklist-for-video-mastery/"><u>[New] The YouTube Studio Essential Checklist for Video Mastery</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-2024-approved-guide-to-incorited-visuals-in-text-without-cost/"><u>[Updated] 2024 Approved Guide to Incorited Visuals in Text Without Cost</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-in-2024-from-capture-to-air-expert-tips-for-streaming-upside-down-videos-on-youtube/"><u>[Updated] In 2024, From Capture to Air Expert Tips for Streaming Upside-Down Videos on Youtube</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-in-2024-how-to-rotate-youtube-videos-by-any-angle/"><u>[Updated] In 2024, How to Rotate YouTube Videos by Any Angle</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-insightful-pricing-comparison-for-cloud-platforms/"><u>[Updated] Insightful Pricing Comparison for Cloud Platforms</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-the-ultimate-checklist-for-optimizing-videos-with-pro-tags/"><u>[Updated] The Ultimate Checklist for Optimizing Videos with Pro Tags</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ting-video-branding-the-art-and-science-of-youtube-image-designs/"><u>Elevating Video Branding The Art and Science of Youtube Image Designs</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ting-youtube-prominence-with-expert-use-of-the-hub/"><u>Elevating Youtube Prominence with Expert Use of the Hub</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/how-to-cast-oneplus-nord-n30-5g-screen-to-pc-using-wifi-drfone-by-drfone-android/"><u>How to Cast OnePlus Nord N30 5G Screen to PC Using WiFi | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/how-to-use-ispoofer-on-itel-p40-drfone-by-drfone-virtual-android/"><u>How to use iSpoofer on Itel P40? | Dr.fone</u></a></li>
+<li><a href="https://android-location.techidaily.com/in-2024-3-effective-methods-to-fake-gps-location-on-android-for-your-vivo-y27-4g-drfone-by-drfone-virtual/"><u>In 2024, 3 Effective Methods to Fake GPS location on Android For your Vivo Y27 4G | Dr.fone</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/24-quick-turn-artistry-professionally-crafted-valorant-game-imagery/"><u>In 2024, Quick-Turn Artistry Professionally Crafted Valorant Game Imagery</u></a></li>
+<li><a href="https://driver-download.techidaily.com/1722976000566-unleash-powerhouse-performance-with-new-z270-gaming-pro-carbon-order-now/"><u>Unleash Powerhouse Performance with New Z270 Gaming Pro Carbon - Order Now</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/ways-to-find-unlocking-codes-for-lava-agni-2-5g-phones-by-drfone-android/"><u>Ways To Find Unlocking Codes For Lava Agni 2 5G Phones</u></a></li>
+<li><a href="https://techidaily.com/your-complete-guide-to-reset-vivo-y100t-drfone-by-drfone-reset-android-reset-android/"><u>Your Complete Guide To Reset Vivo Y100t | Dr.fone</u></a></li>
 </ul></div>
 

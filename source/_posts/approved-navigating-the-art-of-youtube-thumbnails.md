@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Navigating the Art of YouTube Thumbnails\""
-date: 2024-10-16T16:06:54.658Z
-updated: 2024-10-21T16:25:43.342Z
+date: 2024-10-25T00:52:33.295Z
+updated: 2024-10-27T00:33:10.390Z
 tags:
   - ai video
   - ai youtube
@@ -49,13 +49,6 @@ Here are some examples of popular thumbnail styles.
 
  ![Popular YouTube Thumbnail Layout](https://images.wondershare.com/filmora/article-images/popular-youtube-thumbnail-layout.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1528688/16446" target="_top" id="1528688">
-  <img src="//a.impactradius-go.com/display-ad/16446-1528688" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528688/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 1\. The Classic Thumbnail (Photo or Screenshot)
 
 A photo that shows what happens in your video – whether that means the finished ‘look’ from your makeup tutorial or you posing in front of the landmark you shot your travel vlog in front of – is a great way to let viewers know what to expect. While curiosity can be a big motive behind clicking on a video thumbnail (or anything online), when people have searched for a specific topic they want to be convinced that your video has what they’re looking for.
@@ -81,6 +74,13 @@ In some cases you might use text to make it clear what type of video you’ve ma
 You should also avoid fonts that are harder to read. Fonts with a lot of curves can be harder to read, and you want to make sure you choose a color that stands out from your background. Yellow might work against black, but it probably won’t work against the beige wall of your sunny bedroom. Sans serif fonts tend to be best.
 
 Another tactic used in successful thumbnails is to add small graphics, like emojis or small images (i.e. pumpkins for a Halloween video), which are related to your video’s content. As with text, you don’t want to overload your thumbnail with images, but they’re a great way to add something eye-catching that’s a bit different from competing thumbnails.
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137207/26400" target="_top" id="2137207">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137207" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137207/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 2\. The Emotional Laser (Background + Face Reacting)
 
@@ -113,10 +113,10 @@ In your thumbnail maker or a program like Photoshop, you’ll need to put your p
 If instead of an object you plan to fill the other side of your thumbnail with text, question marks, emojis, or some other graphic element then now is the time to add it.
 
 <!-- affiliate ads begin -->
-<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/2137976/21526" target="_top" id="2137976">
-  <img src="//a.impactradius-go.com/display-ad/21526-2137976" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136624/26400" target="_top" id="2136624">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136624" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://zebaoaffiliateprogram.pxf.io/i/5597632/2137976/21526" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136624/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 2: How to Upload a YouTube Thumbnail
@@ -135,13 +135,6 @@ Remember when you’re uploading custom thumbnails that you need to use a .JPG, 
 YouTube recommends that thumbnail images have a resolution of **1280x720px**, and you cannot upload an image with a width of less than 640 pixels.
 
 Make sure that all of your thumbnails adhere to YouTube’s Community guidelines. Anything sexually suggestive, violent, or otherwise graphic could result in your video being age-restricted.
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134489/18498" target="_top" id="2134489">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134489" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134489/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Part 3: YouTube Thumbnail Makers
 
@@ -195,6 +188,13 @@ Type your video’s title or topic into the search engine on YouTube and look at
 
 Generally, if most of the thumbnails have the same layout, you’ll want to mimic that layout. Where you can break from the crowd is in the colors, fonts, and graphics you use.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144276/7443" target="_top" id="2144276">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144276" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144276/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 5: Animated YouTube Thumbnails
 
 Whether or not you upload a custom thumbnail to YouTube, YouTube’s A.I will choose what it thinks are the 3 juiciest seconds of your video (you cannot choose for yourself) and play them as a GIF-like animation when people mouseover your video thumbnails.
@@ -209,14 +209,14 @@ As one of the most widely used video editing software in YouTube video editing, 
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
-![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
-
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2036486/19272" target="_top" id="2036486">
-  <img src="//a.impactradius-go.com/display-ad/19272-2036486" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135403/19272" target="_top" id="2135403">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135403" border="0" alt="https://techidaily.com" width="392" height="72"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2036486/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135403/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 Richard Bennett
 
@@ -239,22 +239,17 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-videos.techidaily.com/new-2024-approved-navigating-the-best-instagram-performance-insight-platforms/"><u>[New] 2024 Approved Navigating the Best Instagram Performance Insight Platforms</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/plus-software-choices-download-youtube-music-as-mp3-for-iphone-users-for-2024/"><u>[New] 6+ Software Choices Download YouTube Music as MP3 for iPhone Users for 2024</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/n-2024-navigate-through-creating-stellar-educational-video-content-for-online-platforms/"><u>[New] In 2024, Navigate Through Creating Stellar Educational Video Content for Online Platforms</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/new-screen-snatching-made-easy-analyzing-no-cost-recording-apps/"><u>[New] Screen Snatching Made Easy – Analyzing No-Cost Recording Apps</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/he-art-of-ad-free-earning-on-youtube-strategies-for-self-reliance-creators-for-2024/"><u>[New] The Art of Ad-Free Earning on YouTube Strategies for Self-Reliance Creators for 2024</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-from-dull-to-delightful-how-to-craft-standout-youtube-thumbnails-for-2024/"><u>[Updated] From Dull to Delightful How To Craft Standout YouTube Thumbnails for 2024</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ed-in-2024-leveraging-finalcut-pro-for-high-quality-youtube-production/"><u>[Updated] In 2024, Leveraging FinalCut Pro for High-Quality YouTube Production</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-mobile-creativity-boost-identifying-the-best-video-editing-tools/"><u>[Updated] Mobile Creativity Boost Identifying the Best Video Editing Tools</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-social-media-live-showdown-facebook-vs-youtube-and-twitter-periscope-for-2024/"><u>[Updated] Social Media Live Showdown Facebook Vs. YouTube & Twitter Periscope for 2024</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/2024-approved-the-ultimate-guide-to-syma-x5c-your-first-drones-best-friend/"><u>2024 Approved The Ultimate Guide to Syma X5C – Your First Drone's Best Friend</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/through-youtube-success-essential-tips-from-creator-studio-guide/"><u>Breakthrough YouTube Success Essential Tips From Creator Studio Guide</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/te-your-gameplay-videos-the-ultimate-collection-of-freefire-tags-for-2024/"><u>Elevate Your Gameplay Videos The Ultimate Collection of FreeFire Tags for 2024</u></a></li>
-<li><a href="https://article-posts.techidaily.com/elevating-your-video-with-expert-gopro-studio-techniques/"><u>Elevating Your Video with Expert GoPro Studio Techniques</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/expediting-the-epic-games-universe-download-process/"><u>Expediting the Epic Games Universe Download Process</u></a></li>
-<li><a href="https://buynow-help.techidaily.com/huawei-mediapad-m5-a-masterclass-in-picture-perfection-and-sonic-brilliance/"><u>Huawei MediaPad M5 - A Masterclass in Picture Perfection and Sonic Brilliance</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/in-2024-transform-your-igtv-backgrounds-with-style/"><u>In 2024, Transform Your IGTV Backgrounds with Style</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/quatre-exemples-francais-un-merci-accepte/"><u>Quatre Exemples Français: Un 'Merci' Accepté</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/remium-online-platforms-for-video-intro-creation-for-2024/"><u>[New] Premium Online Platforms for Video Intro Creation for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-typhoon-h-unveiled-yuneecs-aerial-marvel-for-2024/"><u>[New] Typhoon H Unveiled Yuneec's Aerial Marvel for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/nleashing-creativity-secrets-of-unique-yt-short-content/"><u>[New] Unleashing Creativity Secrets of Unique YT Short Content</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-beyond-simplicity-exploring-the-intricacies-of-youtubes-view-count-algorithm-for-2024/"><u>[Updated] Beyond Simplicity Exploring the Intricacies of YouTube’s View Count Algorithm for 2024</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/updated-personalize-and-protect-youtube-channel-url-made-simple/"><u>[Updated] Personalize & Protect YouTube Channel URL Made Simple</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-top-8-pitfalls-for-novice-youtube-creators/"><u>[Updated] Top 8 Pitfalls for Novice YouTube Creators</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ng-edge-video-editing-in-youtube-studio-explained-for-2024/"><u>Cutting-Edge Video Editing in YouTube Studio Explained for 2024</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/effortless-audio-verification-master-the-art-of-microphone-tests/"><u>Effortless Audio Verification: Master the Art of Microphone Tests!</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/essential-guide-why-secure-your-experience-with-a-vpn-on-xr-devices-like-vision-pro/"><u>Essential Guide: Why Secure Your Experience with a VPN on XR Devices Like Vision Pro</u></a></li>
+<li><a href="https://fox-http.techidaily.com/evaluating-m1s-capabilities-for-heavy-duty-media-editing/"><u>Evaluating M1's Capabilities for Heavy-Duty Media Editing</u></a></li>
+<li><a href="https://win-dash.techidaily.com/install-newly-updated-epson-scanner-driver-now-get-it-here/"><u>Install Newly Updated Epson Scanner Driver Now – Get It Here!</u></a></li>
+<li><a href="https://smart-video-editing.techidaily.com/new-in-2024-easter-eggstravaganza-wondershare-filmora-promo-code-inside/"><u>New In 2024, Easter Eggstravaganza Wondershare Filmora Promo Code Inside</u></a></li>
 </ul></div>
 

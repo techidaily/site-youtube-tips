@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] From Dull to Delightful  How To Craft Standout YouTube Thumbnails for 2024\""
-date: 2024-09-13T05:26:09.635Z
-updated: 2024-09-16T16:09:05.517Z
+date: 2024-10-23T09:36:35.059Z
+updated: 2024-10-27T02:16:31.879Z
 tags:
   - ai video
   - ai youtube
@@ -47,6 +47,13 @@ Here are 5 easy tips for creating thumbnails that get views.
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2087484/7443" target="_top" id="2087484">
+  <img src="//a.impactradius-go.com/display-ad/7443-2087484" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087484/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## 1\. Have a Consistent Layout
 
 Your thumbnails all must look like part of the same set. You want viewers to recognize your videos like yours, and they are more likely to do that if you build up a standard layout that they can start associating with you.
@@ -55,6 +62,13 @@ An example of a standard layout could be you in the middle of the screen wearing
 
 ![Consistent Layout](https://images.wondershare.com/filmora/article-images/consistent-layout.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://malaysia-healthcare-travel-council.pxf.io/c/5597632/1557743/17382" target="_top" id="1557743">
+  <img src="//a.impactradius-go.com/display-ad/17382-1557743" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://malaysia-healthcare-travel-council.pxf.io/i/5597632/1557743/17382" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **2\. Use Your Face**
 
 People feel automatically connected and drawn into images that make eye contact. This makes thumbnails which feature faces more click-able than thumbnails which don’t, in most genres (i.e. if you make food videos then this may not apply – featuring the food might be more important than featuring your face). [Check out more tips like this here](https://tools.techidaily.com/wondershare/filmora/download/).
@@ -62,10 +76,10 @@ People feel automatically connected and drawn into images that make eye contact.
 Also, if somebody recognizes you in your thumbnail from a previous video of yours, that will go a long way towards making them click.
 
 <!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2123470/16836" target="_top" id="2123470">
-  <img src="//a.impactradius-go.com/display-ad/16836-2123470" border="0" alt="https://techidaily.com" width="180" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1934288/19272" target="_top" id="1934288">
+  <img src="//a.impactradius-go.com/display-ad/19272-1934288" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123470/16836" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934288/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## 3\. Use Graphics/Emojis that are On Topic
@@ -74,18 +88,18 @@ Anybody can take a screenshot of themselves in their video and use it as a thumb
 
 Make sure the images you choose are relevant to the topic of your video.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135371/19272" target="_top" id="2135371">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135371" border="0" alt="https://techidaily.com" width="320" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135371/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## 4\. Make Your Text Huge
 
 If you use text in your thumbnail (you don’t have to) then it should be to add context. For example, if the main image is just you smiling then you might need some text to let viewers know the video is a makeup tutorial.
 
 Thumbnails might look large while you’re putting them together in your image editor, but when they’re displayed on YouTube they’re a lot smaller. That goes double if a viewer is watching on their phone. So, make sure that any text you use is large enough that it can be read easily on small screens.
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2130533/26400" target="_top" id="2130533">
+  <img src="//a.impactradius-go.com/display-ad/26400-2130533" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130533/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## 5\. Keep it Clutter-Free
 
@@ -118,5 +132,24 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-secrets-when-to-share-content-for-youtube-success/"><u>[New] In 2024, Secrets When to Share Content for YouTube Success</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-2024-approved-distinguished-artists-best-instragram-hlv-designs-online/"><u>[Updated] 2024 Approved Distinguished Artists Best Instragram HLV Designs Online</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-2024-approved-top-ten-must-watch-vr-scenes-on-youtube/"><u>[Updated] 2024 Approved Top Ten Must-Watch VR Scenes on Youtube</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/updated-in-2024-navigating-google-meet-discussions-tips-and-tricks/"><u>[Updated] In 2024, Navigating Google Meet Discussions Tips & Tricks</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-micro-business-video-advertising-insights-for-2024/"><u>[Updated] Micro-Business Video Advertising Insights for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-quick-tips-incorporating-video-from-youtube-into-google-presentations/"><u>[Updated] Quick Tips Incorporating Video From YouTube Into Google Presentations</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/approved-analytics-unlocked-your-step-by-step-youtube-guide/"><u>2024 Approved Analytics Unlocked Your Step-by-Step YouTube Guide</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/approved-does-immediate-subscribing-affect-content-recommendations/"><u>2024 Approved Does Immediate Subscribing Affect Content Recommendations?</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/approved-maximizing-youtube-profits-strategies-for-revenue-growth/"><u>2024 Approved Maximizing YouTube Profits Strategies for Revenue Growth</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/2024-approved-unleash-the-power-of-digital-beats-with-our-free-tools/"><u>2024 Approved Unleash the Power of Digital Beats with Our Free Tools</u></a></li>
+<li><a href="https://techtrends.techidaily.com/discover-the-hottest-imessage-game-picks-of-2024-you-dont-want-to-miss/"><u>Discover the Hottest iMessage Game Picks of 2024 You Don't Want to Miss!</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/24-evaluating-tseries-business-model-with-youtube-viewership-metrics/"><u>In 2024, Evaluating TSeries' Business Model with YouTube Viewership Metrics</u></a></li>
+<li><a href="https://extra-information.techidaily.com/premier-listing-sierras-best-video-maker-apps/"><u>Premier Listing Sierra's Best Video Maker Apps</u></a></li>
+<li><a href="https://data-wizards.techidaily.com/quick-fix-for-smooth-latency-free-vlc/"><u>Quick Fix for Smooth, Latency-Free VLC</u></a></li>
+<li><a href="https://techtrends.techidaily.com/step-by-step-solutions-to-tackle-the-bsod-error-and-save-your-computer/"><u>Step-by-Step Solutions to Tackle the BSOD Error and Save Your Computer</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/nary-artisan-merging-sights-and-sounds/"><u>Visionary Artisan Merging Sights and Sounds</u></a></li>
+<li><a href="https://common-error.techidaily.com/winning-the-battle-with-windows-11-enabling-your-hosted-wifi-network-successfully/"><u>Winning the Battle with Windows 11: Enabling Your Hosted WiFi Network Successfully</u></a></li>
+</ul></div>
 

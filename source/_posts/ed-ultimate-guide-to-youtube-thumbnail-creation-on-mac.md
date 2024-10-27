@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Ultimate Guide to YouTube Thumbnail Creation on Mac"
-date: 2024-10-16T16:03:42.492Z
-updated: 2024-10-21T16:06:09.806Z
+date: 2024-10-20T11:23:30.170Z
+updated: 2024-10-26T17:10:52.317Z
 tags:
   - ai video
   - ai youtube
@@ -47,22 +47,15 @@ thumbnails are a significant factor in determining the number of views a Youtube
 
 If you don’t create a thumbnail then youtube will generate one by itself which may not be so enticing for viewers. The purpose of the thumbnail is to make your videos stand out among the rest so you need to pay attention to it!
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2130533/26400" target="_top" id="2130533">
-  <img src="//a.impactradius-go.com/display-ad/26400-2130533" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130533/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## How to make Youtube Thumbnails on Mac
 
 You can easily create interesting thumbnails for youtube videos using a thumbnail maker like[FilmoraX](https://tools.techidaily.com/wondershare/filmora/download/) . Here is a step by step guide:
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1868575/19272" target="_top" id="1868575">
-  <img src="//a.impactradius-go.com/display-ad/19272-1868575" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://laganoo.pxf.io/c/5597632/1484945/16446" target="_top" id="1484945">
+  <img src="//a.impactradius-go.com/display-ad/16446-1484945" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1868575/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484945/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 1. Preview the video and choose the still snapshot
@@ -77,6 +70,13 @@ You can easily choose the frame from the video or use the preview frame button t
 
 ![thumbnails editor](https://images.wondershare.com/filmora/Mac-articles/thumbnails-editor.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://review-au.sjv.io/c/5597632/2135316/14409" target="_top" id="2135316">
+  <img src="//a.impactradius-go.com/display-ad/14409-2135316" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2135316/14409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 2. Add text, shape, and image overlays
 
 Once you’ve chosen the frame for the thumbnail, the next step would be to add text to it to catch the attention of the audience. You can also adjust the thumbnail size as per your requirement, however, the ideal size would be 1280x720 pixels with a minimum width of 640 pixels.
@@ -84,17 +84,10 @@ Once you’ve chosen the frame for the thumbnail, the next step would be to add 
 ![add text on thumbnail](https://images.wondershare.com/filmora/Mac-articles/add-text-on-thumbnail.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151873/7443" target="_top" id="2151873">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151873" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2068411/7443" target="_top" id="2068411">
+  <img src="//a.impactradius-go.com/display-ad/7443-2068411" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151873/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135411/19272" target="_top" id="2135411">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135411" border="0" alt="https://techidaily.com" width="180" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135411/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068411/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 3. Add effects
@@ -116,6 +109,19 @@ So, using this thumbnail maker you can easily create custom thumbnails for your 
 Hopefully, the above-mentioned steps have given you enough insight and clarity on making creative and good youtube thumbnails. Using [FilmoraX](https://tools.techidaily.com/wondershare/filmora/download/) will further simplify the process for you with its amazing tools and features!
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
+
+<!-- affiliate ads begin -->
+<span id="1770544">
+					<video width="240" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1770544.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/20702-1770544">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1770544.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftokenmetrics.sjv.io%2Fc%2F5597632%2F1770544%2F20702'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1770544/20702" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
@@ -140,18 +146,20 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-tips.techidaily.com/new-2024-approved-master-the-charm-of-darker-digital-images/"><u>[New] 2024 Approved Master the Charm of Darker Digital Images</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/new-in-2024-navigating-the-maze-mastering-inverted-visual-lookups-in-instagram-photos/"><u>[New] In 2024, Navigating the Maze Mastering Inverted Visual Lookups in Instagram Photos</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/n-2024-youtubes-edge-and-dailymotions-charms-an-in-depth-look/"><u>[New] In 2024, YouTube's Edge & Dailymotion's Charms An In-Depth Look</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/nlock-your-youtube-personality-top-6-creator-categories-for-2024/"><u>[New] Unlock Your YouTube Personality Top 6 Creator Categories for 2024</u></a></li>
-<li><a href="https://fox-info.techidaily.com/updated-2024-approved-essential-principles-of-animated-visual-content/"><u>[Updated] 2024 Approved Essential Principles of Animated Visual Content</u></a></li>
-<li><a href="https://fox-access.techidaily.com/updated-in-2024-9-command-center-of-live-gaming-streams/"><u>[Updated] In 2024, 9 Command Center of Live Gaming Streams</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-in-2024-youtube-shorts-earning-strategies-what-you-need-how-much-you-can-make/"><u>[Updated] In 2024, Youtube Shorts Earning Strategies What You Need, How Much You Can Make</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-learn-the-low-cost-way-of-designing-winning-youtube-ad-campaigns-for-2024/"><u>[Updated] Learn the Low-Cost Way of Designing Winning YouTube Ad Campaigns for 2024</u></a></li>
-<li><a href="https://driver-install.techidaily.com/boost-your-yoga-900s-speed-effortlessly/"><u>Boost Your Yoga 900'S Speed Effortlessly</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/l-bliss-filmed-alike-high-quality-8-marriage-videos-online-for-2024/"><u>Bridal Bliss Filmed Alike High-Quality 8 Marriage Videos Online for 2024</u></a></li>
-<li><a href="https://ios-location-track.techidaily.com/how-to-track-a-lost-apple-iphone-11-pro-max-for-free-drfone-by-drfone-virtual-ios/"><u>How to Track a Lost Apple iPhone 11 Pro Max for Free? | Dr.fone</u></a></li>
-<li><a href="https://ai-video-apps.techidaily.com/updated-2024-approved-get-noticed-20-stunning-adobe-premiere-intro-templates-free-to-download/"><u>Updated 2024 Approved Get Noticed 20 Stunning Adobe Premiere Intro Templates Free to Download</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/be-playlist-building-step-by-step-expertise/"><u>YouTube Playlist Building Step-by-Step Expertise</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-2024-approved-twitters-top-10-giggle-generators/"><u>[New] 2024 Approved Twitter's Top 10 Giggle Generators</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-six-websites-where-youtube-imagery-breaks-the-mould/"><u>[New] In 2024, Six Websites Where YouTube Imagery Breaks the Mould</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/aximizing-profits-on-youtube-the-latest-policy/"><u>[New] Maximizing Profits on YouTube The Latest Policy</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/alking-head-tricks-simple-steps-for-stunning-online-presence/"><u>[New] Talking-Head Tricks Simple Steps for Stunning Online Presence</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-2024-approved-leveraging-your-google-id-for-private-yt-video-distribution/"><u>[Updated] 2024 Approved Leveraging Your Google ID for Private YT Video Distribution</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-conquering-the-world-of-instagram-reels-tips-inside-for-2024/"><u>[Updated] Conquering the World of Instagram Reels – Tips Inside for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-instructions-removing-videos-from-youtubes-watchlater-for-2024/"><u>[Updated] Instructions Removing Videos From YouTube's Watchlater for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-rapid-growth-on-youtube-harnessing-the-potential-of-outros/"><u>[Updated] Rapid Growth on YouTube Harnessing the Potential of Outros</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/2024-approved-agriculture-adventures-the-ultimate-farmers-game-guide/"><u>2024 Approved Agriculture Adventures The Ultimate Farmer's Game Guide</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/approved-pro-video-essentials-selecting-superior-camera-lenses/"><u>2024 Approved Pro Video Essentials Selecting Superior Camera Lenses</u></a></li>
+<li><a href="https://extra-information.techidaily.com/in-2024-a-list-mobile-camera-utilities-for-iphone/"><u>In 2024, A-List Mobile Camera Utilities for iPhone</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/in-2024-leading-edge-speech-to-text-programs/"><u>In 2024, Leading Edge Speech-to-Text Programs</u></a></li>
+<li><a href="https://techtrends.techidaily.com/sfc-scannow-repair-windows-system-files/"><u>SFC /SCANNOW: Repair Windows System Files</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/solutions-to-clear-up-fuzzy-videos-for-mobile-users/"><u>Solutions to Clear Up Fuzzy Videos for Mobile Users</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/tackling-muted-frames-on-snapchat-videos-the-ultimate-solution/"><u>Tackling Muted Frames on Snapchat Videos - The Ultimate Solution</u></a></li>
 </ul></div>
 

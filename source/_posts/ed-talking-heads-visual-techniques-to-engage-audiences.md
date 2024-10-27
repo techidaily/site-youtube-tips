@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Talking Heads  Visual Techniques to Engage Audiences\""
-date: 2024-10-19T16:24:24.614Z
-updated: 2024-10-21T16:25:27.004Z
+date: 2024-10-21T05:18:06.977Z
+updated: 2024-10-26T17:16:15.075Z
 tags:
   - ai video
   - ai youtube
@@ -42,21 +42,7 @@ We’ve summarized the key points about setting up talking head style video shot
 
 ![ Setting up Talking Heads Video Shots for YouTube](https://images.wondershare.com/filmora/article-images/talking-heads-youtube-video-shots-set-up.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1959773/19272" target="_top" id="1959773">
-  <img src="//a.impactradius-go.com/display-ad/19272-1959773" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1959773/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## How to Set Up Your Talking-Head Shots for YouTube \[4 Ways\]
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1934142/19272" target="_top" id="1934142">
-  <img src="//a.impactradius-go.com/display-ad/19272-1934142" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934142/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 1.  Close Quarters Wide-Angle Vlog Set-Up
 
@@ -71,6 +57,13 @@ In the video above, Sean Cannell demonstrates this set-up. As you can see from t
 Objects and people that just make it into the sides of the frame will appear more stretched out as the wide-angle causes distortion and enhances perspectives.
 
 If you look closely into Sean’s eyes, you can also see a specular highlight in the shape of a circle. Many people like the way eyes look against a ring light.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144271/7443" target="_top" id="2144271">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144271" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144271/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 2.  Medium Vlog Set-Up
 
@@ -94,6 +87,13 @@ If you look back at the 39-second mark of deadmau5’s Masterclass trailer, you 
 
 With two people, though, you’ll want to set up your mic slightly differently. Rather than using a directional shotgun mic with a narrow area of sensitivity, you’ll want to use a directional mic with a wider area of sensitivity.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151889/7443" target="_top" id="2151889">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151889" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151889/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 4.  Long Teleprompter Vlog Set-Up
 
 If you want to read over a script but still make it appear like you’re looking straight into the camera, you’ll need to use a long teleprompter vlog set-up.
@@ -111,10 +111,16 @@ It is difficult to know whether the movement in his eyes is caused by not being 
 Looking to find the right lights for your video recording set? Check out our [Top 17 Video Lighting Equipment For YouTubers](https://www.filmora.io/community-blog/top-17-video-lighting-equipment-for-youtubers-440.html).
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1934288/19272" target="_top" id="1934288">
-  <img src="//a.impactradius-go.com/display-ad/19272-1934288" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934288/19272" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1983472">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983472.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983472">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983472.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983472%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983472/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Tips for Making a Talking Head Video Better
@@ -124,10 +130,16 @@ To make a talking-head video more interesting, you can add some background music
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135403/19272" target="_top" id="2135403">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135403" border="0" alt="https://techidaily.com" width="392" height="72"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135403/19272" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1702748">
+					<video width="192" height="320" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1702748.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/18544-1702748">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1702748.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:120px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftwopages.pxf.io%2Fc%2F5597632%2F1702748%2F18544'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1702748/18544" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
@@ -153,17 +165,18 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://vimeo-videos.techidaily.com/new-in-2024-demystifying-vimeo-top-choice-for-filmmakers/"><u>[New] In 2024, Demystifying Vimeo Top Choice for Filmmakers</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/outube-slow-how-to-slow-down-youtube-videos-3-ways-for-2024/"><u>[New] YouTube Slow How to Slow Down YouTube Videos [3 Ways] for 2024</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-in-2024-navigating-the-undisclosed-terrain-of-youtube-archives/"><u>[Updated] In 2024, Navigating the Undisclosed Terrain of YouTube Archives</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/updated-in-2024-top-ranked-mac-pro-video-maker-plus-audio/"><u>[Updated] In 2024, Top-Ranked Mac Pro Video Maker Plus Audio</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-the-most-inexpensive-video-cameras-reviewed/"><u>[Updated] The Most Inexpensive Video Cameras Reviewed</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/approved-how-many-viewer-thumbs-up-equals-money-youtube-tips/"><u>2024 Approved How Many Viewer Thumbs Up Equals Money? YouTube Tips</u></a></li>
-<li><a href="https://change-location.techidaily.com/in-2024-3utools-virtual-location-not-working-on-nokia-c12-fix-now-drfone-by-drfone-virtual-android/"><u>In 2024, 3uTools Virtual Location Not Working On Nokia C12? Fix Now | Dr.fone</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/24-expanding-your-audience-stream-successfully-across-30plus-outlets/"><u>In 2024, Expanding Your Audience Stream Successfully Across 30+ Outlets</u></a></li>
-<li><a href="https://android-frp.techidaily.com/in-2024-how-to-bypass-google-frp-lock-from-sony-xperia-5-v-devices-by-drfone-android/"><u>In 2024, How to Bypass Google FRP Lock from Sony Xperia 5 V Devices</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/inverse-viewing-in-youtube-original-ideas-for-rewinders/"><u>Inverse Viewing in YouTube Original Ideas for Rewinders</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/top-techniques-for-stunning-android-time-lapse-captures-for-2024/"><u>Top Techniques for Stunning Android Time-Lapse Captures for 2024</u></a></li>
-<li><a href="https://audio-shaping.techidaily.com/updated-simplified-sound-alteration-methods-examination-of-capabilities-directives-and-variants/"><u>Updated Simplified Sound Alteration Methods Examination of Capabilities, Directives, and Variants</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-top-techniques-for-crafting-engaging-youtube-shorts-templates/"><u>[New] In 2024, Top Techniques for Crafting Engaging YouTube Shorts Templates</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/new-seamless-techniques-for-saving-facetime-chats-live/"><u>[New] Seamless Techniques for Saving FaceTime Chats Live</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-seamless-viewing-at-no-extra-charge-free-vob-for-pc-and-mac/"><u>[New] Seamless Viewing at No Extra Charge Free VOB for PC & Mac</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-social-media-blend-adding-youtube-content-to-stories-for-2024/"><u>[New] Social Media Blend Adding YouTube Content to Stories for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ncover-the-10-best-makeup-experts-on-youtube-you-cant-ignore/"><u>[New] Uncover the 10 Best Makeup Experts on YouTube You Can't Ignore</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-2024-approved-masterful-content-creation-and-branding-via-top-5-youtube-strategies/"><u>[Updated] 2024 Approved Masterful Content Creation and Branding via #Top 5 YouTube Strategies</u></a></li>
+<li><a href="https://article-helps.techidaily.com/updated-2024-approved-pros-choice-9-premium-streaming-services/"><u>[Updated] 2024 Approved Pro's Choice 9 Premium Streaming Services</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-gamers-sound-selection-top-5-noise-canceling-earbuds/"><u>[Updated] Gamers’ Sound Selection Top 5 Noise-Canceling Earbuds</u></a></li>
+<li><a href="https://win-forum.techidaily.com/comparing-the-giants-of-digital-sharing-facebook-twitter-instagram-and-youtube/"><u>Comparing the Giants of Digital Sharing: Facebook, Twitter, Instagram and YouTube</u></a></li>
+<li><a href="https://win-superb.techidaily.com/exploring-the-world-of-cloud-antivirus-why-its-superior-to-conventional-antivirus-programs/"><u>Exploring the World of Cloud Antivirus - Why It's Superior to Conventional Antivirus Programs</u></a></li>
+<li><a href="https://win-webmaster.techidaily.com/fehler-bei-der-smartphone-kameraverbindungsproblemlosung-tipps-and-tricks/"><u>Fehler Bei Der Smartphone-Kameraverbindungsproblemlösung: Tipps & Tricks</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/24-elevate-video-appeal-crafting-unforgettable-thumbnail-images/"><u>In 2024, Elevate Video Appeal Crafting Unforgettable Thumbnail Images</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/bes-retro-playlist-trick-how-to-go-in-arrears-for-2024/"><u>Youtube's Retro Playlist Trick How to Go in Arrears for 2024</u></a></li>
 </ul></div>
 

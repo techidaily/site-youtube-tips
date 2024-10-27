@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] The Art of the End Scene  Tutorials & Templates for YouTube for 2024\""
-date: 2024-10-15T16:13:17.346Z
-updated: 2024-10-21T16:24:38.517Z
+date: 2024-10-22T04:21:46.504Z
+updated: 2024-10-27T10:16:46.762Z
 tags:
   - ai video
   - ai youtube
@@ -96,16 +96,16 @@ Another way to get your YouTube end screens for free, of course, is to make them
 
 ![create-outro-end-screen-with-canva-1](https://images.wondershare.com/filmora/article-images/create-outro-end-screen-with-canva-1.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2047406/19272" target="_top" id="2047406">
+  <img src="//a.impactradius-go.com/display-ad/19272-2047406" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2047406/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 2\. Once logged in, select “use custom dimensions” and plug in “1920” pixels as your width and “1080” pixels as your height (this, of course, may vary depending on the resolution of your video project).
 
 ![create-outro-end-screen-with-canva  ](https://images.wondershare.com/filmora/article-images/create-outro-end-screen-with-canva-2.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/857869/11832" target="_top" id="857869">
-  <img src="//a.impactradius-go.com/display-ad/11832-857869" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/857869/11832" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 3\. After clicking “Design!,” a new browser will open with a blank canvas.
 
@@ -113,31 +113,37 @@ Another way to get your YouTube end screens for free, of course, is to make them
 
 ![download-youtube-outro-end-screen](https://images.wondershare.com/filmora/article-images/download-youtube-outro-end-screen.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://imp.i357552.net/c/5597632/1006793/11832" target="_top" id="1006793">
+  <img src="//a.impactradius-go.com/display-ad/11832-1006793" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1006793/11832" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 5\. Upload the image onto your Canva project.
 
 ![upload-downloaded-youtube-end-screen-canva ](https://images.wondershare.com/filmora/article-images/upload-downloaded-youtube-end-screen-canva.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151882/7443" target="_top" id="2151882">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151882" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151882/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 6\. Stretch your image to the ends of your canvas.
 
 ![stretch-end-screen-templates-canva ](https://images.wondershare.com/filmora/article-images/stretch-end-screen-templates-canva.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1936838">
+					<video width="374" height="48" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1936838.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/18409-1936838">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1936838.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:234px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fcoinrule.sjv.io%2Fc%2F5597632%2F1936838%2F18409'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1936838/18409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 7\. Insert your own shapes, lines, colours, images, and text over the image.
 
 ![adjust-end-screen-templates-in-canva](https://images.wondershare.com/filmora/article-images/adjust-end-screen-templates-in-canva.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1657395/16446" target="_top" id="1657395">
-  <img src="//a.impactradius-go.com/display-ad/16446-1657395" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1657395/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 8\. When you’re done, delete the original image so that you’re left with just your own design. Go ahead and click “download.”
 
@@ -147,14 +153,14 @@ If you're looking for other options to design your end screen, make sure to also
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
-![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
-
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2105883/7443" target="_top" id="2105883">
-  <img src="//a.impactradius-go.com/display-ad/7443-2105883" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2111967/7443" target="_top" id="2111967">
+  <img src="//a.impactradius-go.com/display-ad/7443-2111967" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105883/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111967/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 Richard Bennett
 
@@ -177,18 +183,24 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://extra-approaches.techidaily.com/new-optimal-drone-cameras-film-and-snapshot-heroes-10/"><u>[New] Optimal Drone Cameras Film & Snapshot Heroes #10</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-audience-market-leaders-in-youtubes-short-clips-downloads-for-2024/"><u>[Updated] Audience’ Market Leaders in YouTube's Short Clips Downloads for 2024</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-in-2024-expert-advice-at-your-screen-the-finest-15-stock-channels/"><u>[Updated] In 2024, Expert Advice at Your Screen The Finest 15 Stock Channels</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-skyrocket-to-partner-status-crush-that-critical-10000-view-benchmark-for-2024/"><u>[Updated] Skyrocket to Partner Status Crush that Critical 10,000-View Benchmark for 2024</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-techniques-for-safe-youtube-audio-extraction-at-no-cost-for-2024/"><u>[Updated] Techniques for Safe YouTube Audio Extraction at No Cost for 2024</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-transforming-raw-footage-into-youtube-gold-via-sony-vegas/"><u>[Updated] Transforming Raw Footage Into YouTube Gold via Sony Vegas</u></a></li>
-<li><a href="https://win-special.techidaily.com/1-two-effective-ways-to-transfer-your-iphone-data-to-google-drive/"><u>1. Two Effective Ways to Transfer Your iPhone Data to Google Drive</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/2024-approved-exploring-premier-applications-for-changing-vtuber-sounds/"><u>2024 Approved Exploring Premier Applications for Changing Vtuber Sounds</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/e-fables-enthralling-channel-names-for-epicureans/"><u>Foodie Fables Enthralling Channel Names for Epicureans</u></a></li>
-<li><a href="https://win-dash.techidaily.com/how-to-easily-upgrade-and-install-amd-radeon-vega-64-drivers-for-windows-systems/"><u>How to Easily Upgrade and Install AMD Radeon Vega 64 Drivers for Windows Systems</u></a></li>
-<li><a href="https://change-location.techidaily.com/how-to-use-special-features-virtual-location-on-samsung-galaxy-m14-4g-drfone-by-drfone-virtual-android/"><u>How To Use Special Features - Virtual Location On Samsung Galaxy M14 4G? | Dr.fone</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/kingdoms-collide-ranking-top-7-total-war-historical-games-for-2024/"><u>Kingdoms Collide Ranking Top 7 Total War Historical Games for 2024</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/moto-g-power-analysis-unmatched-endurance-and-impressive-operating-efficiency/"><u>Moto G Power Analysis: Unmatched Endurance & Impressive Operating Efficiency</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-transforming-doubt-into-action-channeling-vlogger-excellence/"><u>[New] In 2024, Transforming Doubt Into Action Channeling Vlogger Excellence</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/nstantly-boost-youtube-performance-master-render-and-upload/"><u>[New] Instantly Boost YouTube Performance - Master Render and Upload</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ailoring-thumbnails-for-increased-video-engagement-on-youtube/"><u>[New] Tailoring Thumbnails for Increased Video Engagement on YouTube</u></a></li>
+<li><a href="https://tiktok-video-files.techidaily.com/updated-2024-approved-the-smart-content-creator-legal-checks-for-pre-upload-videos/"><u>[Updated] 2024 Approved The Smart Content Creator Legal Checks for Pre-Upload Videos</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-digital-footprint-how-to-share-your-short-videos-on-computers-and-phones/"><u>[Updated] Digital Footprint How to Share Your Short Videos on Computers & Phones</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-in-2024-bite-size-broadcasting-battle-which-platform-dominates-in-shorter-videos/"><u>[Updated] In 2024, Bite-Size Broadcasting Battle Which Platform Dominates in Shorter Videos?</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/updated-in-2024-offline-android-delights-9-most-addictive-mobile-games/"><u>[Updated] In 2024, Offline Android Delights 9 Most Addictive Mobile Games</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-quickly-adapt-to-changing-video-speeds-on-youtube/"><u>[Updated] Quickly Adapt to Changing Video Speeds on YouTube</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-saturating-the-market-precision-in-sharing-through-shorts/"><u>[Updated] Saturating the Market Precision in Sharing Through Shorts</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/approved-direct-to-youtube-stepwise-process-of-mobile-and-desktop-video-posting/"><u>2024 Approved Direct to YouTube Stepwise Process of Mobile & Desktop Video Posting</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/easy-tips-for-successfully-refreshing-cpu-driver-software-in-windows-os/"><u>Easy Tips for Successfully Refreshing CPU Driver Software in Windows OS</u></a></li>
+<li><a href="https://hardware-reviews.techidaily.com/1723341695805-expert-analysis-raspberry-pi-5-enhanced-by-pi-52s-cooling-tower-speedy-performance-uncovered/"><u>Expert Analysis: Raspberry Pi 5 Enhanced by Pi 52'S Cooling Tower - Speedy Performance Uncovered!</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/from-low-to-high-a-beginners-guide-to-video-frame-rates-and-resolutions-for-2024/"><u>From Low to High A Beginner's Guide to Video Frame Rates & Resolutions for 2024</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/how-to-unlock-icloud-activation-lock-and-icloud-account-on-iphone-8-plus-by-drfone-ios/"><u>How to Unlock iCloud Activation Lock and iCloud Account On iPhone 8 Plus?</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/24-optimal-youtube-video-formats-a-comprehensive-guide/"><u>In 2024, Optimal YouTube Video Formats A Comprehensive Guide</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/in-2024-perfect-your-wedding-countdown-experience-with-these-top-apps-androidios/"><u>In 2024, Perfect Your Wedding Countdown Experience with These Top Apps (Android/iOS)</u></a></li>
+<li><a href="https://fox-links.techidaily.com/in-2024-picture-perfect-prose-exploring-apps-for-image-text-edits/"><u>In 2024, Picture Perfect Prose Exploring Apps for Image Text Edits</u></a></li>
+<li><a href="https://driver-install.techidaily.com/instant-airlink-for-windows-7-users/"><u>Instant Airlink for Windows 7 Users</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/ultimate-psd-transparency-tricks/"><u>Ultimate PSD Transparency Tricks</u></a></li>
 </ul></div>
 

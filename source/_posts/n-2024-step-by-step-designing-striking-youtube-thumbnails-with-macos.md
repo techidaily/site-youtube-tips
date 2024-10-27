@@ -1,7 +1,7 @@
 ---
 title: "\"[New] In 2024, Step-by-Step  Designing Striking Youtube Thumbnails with macOS\""
-date: 2024-09-16T03:45:43.829Z
-updated: 2024-09-17T00:44:16.965Z
+date: 2024-10-25T08:29:53.913Z
+updated: 2024-10-26T20:46:37.614Z
 tags:
   - ai video
   - ai youtube
@@ -63,24 +63,24 @@ You can easily choose the frame from the video or use the preview frame button t
 
 ![thumbnails editor](https://images.wondershare.com/filmora/Mac-articles/thumbnails-editor.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1743243">
+					<video width="200" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1743243.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/19272-1743243">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1743243.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Faligracehair.sjv.io%2Fc%2F5597632%2F1743243%2F19272'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1743243/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 2. Add text, shape, and image overlays
 
 Once you’ve chosen the frame for the thumbnail, the next step would be to add text to it to catch the attention of the audience. You can also adjust the thumbnail size as per your requirement, however, the ideal size would be 1280x720 pixels with a minimum width of 640 pixels.
 
 ![add text on thumbnail](https://images.wondershare.com/filmora/Mac-articles/add-text-on-thumbnail.jpg)
-
-<!-- affiliate ads begin -->
-<span id="1630055">
-					<video width="192" height="320" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1630055.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/18460-1630055">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1630055.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:120px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fcaperobbin.sjv.io%2Fc%2F5597632%2F1630055%2F18460'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1630055/18460" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 3. Add effects
 
@@ -89,10 +89,17 @@ FilmoraX has a wide range of effects that you can apply to your videos or pictur
 ![filter9](https://images.wondershare.com/filmora/guide/filter-9-mac.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118323/7443" target="_top" id="2118323">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118323" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://review-au.sjv.io/c/5597632/2098705/14409" target="_top" id="2098705">
+  <img src="//a.impactradius-go.com/display-ad/14409-2098705" border="0" alt="https://techidaily.com" width="250" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118323/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098705/14409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2080333/19272" target="_top" id="2080333">
+  <img src="//a.impactradius-go.com/display-ad/19272-2080333" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2080333/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 4. Save the thumbnail
@@ -112,10 +119,10 @@ Hopefully, the above-mentioned steps have given you enough insight and clarity o
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135370/19272" target="_top" id="2135370">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135370" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1948905/19272" target="_top" id="1948905">
+  <img src="//a.impactradius-go.com/display-ad/19272-1948905" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135370/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948905/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Shanoon Cox
@@ -137,5 +144,24 @@ Follow @Shanoon Cox
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-tips.techidaily.com/ssential-5-video-editing-software-excluding-youtube/"><u>[New] Essential 5 Video Editing Software Excluding Youtube</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/armonize-your-preferences-how-to-create-an-engaging-youtube-playlist/"><u>[New] Harmonize Your Preferences How to Create an Engaging YouTube Playlist</u></a></li>
+<li><a href="https://video-capture.techidaily.com/new-in-2024-breaking-down-techniques-for-recording-google-meet-participants/"><u>[New] In 2024, Breaking Down Techniques for Recording Google Meet Participants</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-efficient-techniques-ios-screenshots-and-youtube-content-creation/"><u>[New] In 2024, Efficient Techniques IOS Screenshots and YouTube Content Creation</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-flavor-forge-30-epicurean-titles-that-resonate/"><u>[New] In 2024, Flavor Forge 30 Epicurean Titles That Resonate</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-how-to-render-and-upload-youtube-videos-faster/"><u>[New] In 2024, How to Render and Upload YouTube Videos Faster?</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-starting-a-successful-vlog-and-earning-potential/"><u>[New] In 2024, Starting a Successful Vlog and Earning Potential</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/new-the-cutting-edge-in-camera-technology-2024-edition/"><u>[New] The Cutting Edge in Camera Technology - 2024 Edition</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-in-2024-zeroing-in-on-audio-quality-achievable-sans-mic/"><u>[Updated] In 2024, Zeroing in on Audio Quality Achievable Sans Mic</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-unleash-creativity-with-top-10-youtube-short-video-editors/"><u>[Updated] Unleash Creativity with Top 10 YouTube Short Video Editors</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/boost-your-surround-sound-experience-seamlessly-binding-multiple-bluetooth-speakers-with-a-single-input-unit/"><u>Boost Your Surround Sound Experience: Seamlessly Binding Multiple Bluetooth Speakers with a Single Input Unit</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/elevating-your-gameplay-experience-a-critical-analysis-of-fifa-esports-champion-fifa-19/"><u>Elevating Your Gameplay Experience: A Critical Analysis of FIFA eSports Champion, FIFA 19</u></a></li>
+<li><a href="https://win-able.techidaily.com/enhance-playing-experience-by-increasing-fps-and-reducing-lag-in-call-of-duty/"><u>Enhance Playing Experience by Increasing FPS and Reducing Lag in Call of Duty</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/from-small-to-large-impact-evaluating-the-value-of-spyro-reignited-trilogy/"><u>From Small to Large Impact: Evaluating the Value of Spyro Reignited Trilogy</u></a></li>
+<li><a href="https://review-topics.techidaily.com/huawei-wont-play-hevc-h265-media-how-to-fix-by-aiseesoft-video-converter-play-hevc-video-on-android/"><u>Huawei won’t play HEVC H.265 media, how to fix?</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ct-plugin-placement-for-game-channels/"><u>Perfect Plugin Placement for Game Channels</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/the-best-water-and-liquid-worlds-you-can-play-for-2024/"><u>The Best Water & Liquid Worlds You Can Play for 2024</u></a></li>
+</ul></div>
 
