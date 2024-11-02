@@ -1,7 +1,7 @@
 ---
 title: "Enlightening Your YouTube Footage with Proper Lighting"
-date: 2024-10-22T16:51:31.660Z
-updated: 2024-10-27T11:54:26.017Z
+date: 2024-10-29T19:10:36.706Z
+updated: 2024-11-02T01:22:57.391Z
 tags:
   - ai video
   - ai youtube
@@ -52,27 +52,20 @@ Window lighting for me was especially difficult to work with because I live in a
 
 ![  YouTube Video Lighting ](https://images.wondershare.com/filmora/article-images/window-lighting-comparison.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135397/19272" target="_top" id="2135397">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135397" border="0" alt="https://techidaily.com" width="180" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135397/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Above are two freeze frames from one of Daniel's past window-lit vlogs. Although these two frames are both from the same vlog, you can see that the image on the right looks brighter due to clearer skies at that moment. These varying amounts of light is what you will have to deal with if you choose to light your YouTube video with window lighting.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1925565/19272" target="_top" id="1925565">
+  <img src="//a.impactradius-go.com/display-ad/19272-1925565" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925565/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 2. Home Lighting
 
 Home lighting is another source of light that many new YouTubers use. In the past, when my window light wasn’t strong enough to light my video recording space, I would turn on the ceiling light.
 
 ![Mixed Lighting](https://images.wondershare.com/filmora/article-images/home-lighting-for-youtube-videos.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135355/19272" target="_top" id="2135355">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135355" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135355/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Notice how the color of Daniel's skin looks much more orange here (above) than the color of the skin in the two side-by-side window lighting examples? The side of the face also appears to look bluer. This all happened because he mixed up different color temperatures shining out of the two lights (cooler window light and warmer ceiling light).
 
@@ -81,19 +74,39 @@ Most home lighting is warmer in its color temperature. If you want to use your h
 Ceiling lights are also typically situated in the center of a room in order to light an entire room evenly. This is not likely to be the best location for your filming video. Since the ceiling light was directly above the face in the above example, you can see harder shadows beneath his cheeks.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123749/7443" target="_top" id="2123749">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123749" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2037319/7443" target="_top" id="2037319">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037319" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123749/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037319/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 2: Home Studio Lighting
 
 If you rather not deal with all the window and home lighting challenges, you can set up studio lighting in your home.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2037335/7443" target="_top" id="2037335">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037335" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037335/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 1. Light Control
 
 The first thing you’ll want to do to set up studio lighting in your home is to pick a room to film in and eliminate as much external lighting as you can. Use blinds, curtains, towels, or any thick fabric to block sunlight from shining into your room.
+
+<!-- affiliate ads begin -->
+<span id="1743243">
+					<video width="200" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1743243.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/19272-1743243">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1743243.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Faligracehair.sjv.io%2Fc%2F5597632%2F1743243%2F19272'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1743243/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 2. 3-Point Lighting
 
@@ -121,13 +134,6 @@ For more information on lighting equipment, check out my [Top 17 Video Lighting 
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2006928/19272" target="_top" id="2006928">
-  <img src="//a.impactradius-go.com/display-ad/19272-2006928" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006928/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 Richard Bennett
@@ -151,14 +157,20 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-tips.techidaily.com/024-approved-cost-effective-growth-tactic-for-youtube-fanbases/"><u>[New] 2024 Approved Cost-Effective Growth Tactic for YouTube Fanbases</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/024-approved-score-high-on-youtube-with-these-ranking-factors/"><u>[New] 2024 Approved Score High on YouTube with These Ranking Factors</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/new-in-2024-revolutionize-tiktok-experience-with-personalized-numbers/"><u>[New] In 2024, Revolutionize TikTok Experience with Personalized Numbers</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/updated-enchanting-viewers-the-art-of-crafting-engaging-youtube-description-templates/"><u>[Updated] Enchanting Viewers The Art of Crafting Engaging YouTube Description Templates</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/-snippet-analysis-for-beginners/"><u>Brief Snippet Analysis for Beginners</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/mastering-ghostwire-tokyo-performance-solutions-for-persistent-pc-game-crashes/"><u>Mastering Ghostwire: Tokyo Performance: Solutions for Persistent PC Game Crashes</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/-10-sound-enhancers-pc-mac-mobile-devices/"><u>Prime 10 Sound Enhancers PC, Mac, Mobile Devices</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/steps-to-remedy-windows-11s-afc-camera-bug/"><u>Steps to Remedy Windows 11'S AFC Camera Bug</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/tips-and-tricks-for-setting-up-your-tecno-pova-5-pro-phone-pattern-lock-by-drfone-android/"><u>Tips and Tricks for Setting Up your Tecno Pova 5 Pro Phone Pattern Lock</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/024-approved-unleashing-video-potential-efficiently-add-subtitlescc-to-your-youtube-videos/"><u>[New] 2024 Approved Unleashing Video Potential Efficiently Add Subtitles/CC to Your YouTube Videos</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/new-peak-meme-smile-crafting-program/"><u>[New] Peak Meme Smile Crafting Program</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-effortless-documentation-speech-to-text-conversion-via-microsoft-word-for-2024/"><u>[Updated] Effortless Documentation Speech-to-Text Conversion via Microsoft Word for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-spearheading-social-media-select-the-best-video-editors-for-ig-for-2024/"><u>[Updated] Spearheading Social Media Select the Best Video Editors for IG for 2024</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/clova-ocrflexicapture/"><u>日本語の手書き文字を効果的に読み取るCLOVA OCRとFlexiCaptureの連携方法</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/24-8-sites-to-download-free-green-screen-backgrounds-and-footage/"><u>In 2024, 8 Sites to Download Free Green Screen Backgrounds and Footage</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/24-achieving-financial-gain-with-youtube-shorts-essentials-opportunities-and-earning-prospects/"><u>In 2024, Achieving Financial Gain with Youtube Shorts Essentials, Opportunities & Earning Prospects</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/24-boosting-youtube-popularity-two-simple-strategies/"><u>In 2024, Boosting YouTube Popularity Two Simple Strategies</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/24-building-an-online-empire-ramp-up-video-views/"><u>In 2024, Building an Online Empire Ramp Up Video Views</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/24-chuckle-trail-your-guide-to-hilarious-online-stars/"><u>In 2024, Chuckle Trail Your Guide to Hilarious Online Stars</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/24-comprehensive-review-of-ios-free-video-editing-apps/"><u>In 2024, Comprehensive Review of iOS Free Video Editing Apps</u></a></li>
+<li><a href="https://win11.techidaily.com/quick-guide-to-audio-extraction-from-dvds-speedy-software-solutions/"><u>Quick Guide to Audio Extraction From DVDs - Speedy Software Solutions</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/uniting-zooms-power-with-facebook-live-streaming/"><u>Uniting Zoom's Power with Facebook LIVE Streaming</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/unveiling-the-impact-why-gemini-version-15s-million-token-capacity-alters-everything/"><u>Unveiling the Impact: Why Gemini Version 1.5'S Million-Token Capacity Alters Everything</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/why-the-new-iphone-16s-innovative-capabilities-make-it-time-for-an-update-insights/"><u>Why The New iPhone 16'S Innovative Capabilities Make It Time for an Update - Insights</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "[New] In 2024, Mastering YouTube Video Illumination Techniques"
-date: 2024-10-26T10:58:26.314Z
-updated: 2024-10-27T10:48:45.542Z
+date: 2024-10-27T23:39:44.355Z
+updated: 2024-11-01T23:37:13.703Z
 tags:
   - ai video
   - ai youtube
@@ -45,10 +45,10 @@ Below, I’ll go into detail on how you can set up your lighting equipment to ma
 Most beginner YouTubers light their videos with what they already have. That’s what I did to start as well. In the past, my video recording space consisted of natural sunlight coming from my window and ceiling light for times when the sunlight wasn’t strong enough.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2049383/7443" target="_top" id="2049383">
-  <img src="//a.impactradius-go.com/display-ad/7443-2049383" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135361/19272" target="_top" id="2135361">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135361" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049383/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135361/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 1.  Window Lighting
@@ -59,13 +59,6 @@ Window lighting for me was especially difficult to work with because I live in a
 
 ![  YouTube Video Lighting ](https://images.wondershare.com/filmora/article-images/window-lighting-comparison.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135359/19272" target="_top" id="2135359">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135359" border="0" alt="https://techidaily.com" width="392" height="72"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135359/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Above are two freeze frames from one of Daniel's past window-lit vlogs. Although these two frames are both from the same vlog, you can see that the image on the right looks brighter due to clearer skies at that moment. These varying amounts of light is what you will have to deal with if you choose to light your YouTube video with window lighting.
 
 ### 2. Home Lighting
@@ -73,6 +66,13 @@ Above are two freeze frames from one of Daniel's past window-lit vlogs. Although
 Home lighting is another source of light that many new YouTubers use. In the past, when my window light wasn’t strong enough to light my video recording space, I would turn on the ceiling light.
 
 ![Mixed Lighting](https://images.wondershare.com/filmora/article-images/home-lighting-for-youtube-videos.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135363/19272" target="_top" id="2135363">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135363" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135363/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Notice how the color of Daniel's skin looks much more orange here (above) than the color of the skin in the two side-by-side window lighting examples? The side of the face also appears to look bluer. This all happened because he mixed up different color temperatures shining out of the two lights (cooler window light and warmer ceiling light).
 
@@ -85,10 +85,16 @@ Ceiling lights are also typically situated in the center of a room in order to l
 If you rather not deal with all the window and home lighting challenges, you can set up studio lighting in your home.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135419/19272" target="_top" id="2135419">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135419" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135419/19272" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1975658">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1975658.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1975658">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975658.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975658%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975658/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 1. Light Control
@@ -100,6 +106,13 @@ The first thing you’ll want to do to set up studio lighting in your home is to
 The most common setup for studio lighting is 3-point lighting. For this kind of lighting you’ll need three lights: a key light, a fill light, and a back light (also called a hair light).
 
 ![3-Point Lighting](https://images.wondershare.com/filmora/article-images/youtube-lighting-3-point-lighting.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2130890/7443" target="_top" id="2130890">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130890" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130890/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Out of the three lights, the key light should be the brightest. When it is positioned to the left of you (as shown in the diagram above) your right side will have shadows.
 
@@ -120,13 +133,6 @@ For more information on lighting equipment, check out my [Top 17 Video Lighting 
 [Filmora](https://tools.techidaily.com/wondershare/filmora/download/) is one of the best video editing software for YouTube beginners to start the YouTube channel. So, if you find the lighting isn't perfect after recording, you can use the Auto Color Enhancement feature in Filmora to adjust the color with one-click. Or, you can change the white balance, Light, color, and HSL manually. Filmora also features some presets and [LUTs templates](https://tools.techidaily.com/wondershare/filmora/download/), which allows you to apply pre-programmed effects to video for color correction faster.
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
-
-<!-- affiliate ads begin -->
-<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/2137973/21526" target="_top" id="2137973">
-  <img src="//a.impactradius-go.com/display-ad/21526-2137973" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://zebaoaffiliateprogram.pxf.io/i/5597632/2137973/21526" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
@@ -151,17 +157,24 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-tips.techidaily.com/n-2024-the-investors-handbook-for-monetized-youtubers/"><u>[New] In 2024, The Investor's Handbook for Monetized Youtubers</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-2024-approved-prime-opening-strategies-top-16-youtube-vids-that-thrive/"><u>[Updated] 2024 Approved Prime Opening Strategies Top 16 YouTube Vids That Thrive</u></a></li>
-<li><a href="https://vimeo-videos.techidaily.com/updated-downloading-from-vimeo-made-simple-software-free-or-not/"><u>[Updated] Downloading From Vimeo Made Simple Software-Free or Not?</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/updated-strategic-steps-for-effective-annotations-and-cards-on-your-youtube-videos/"><u>[Updated] Strategic Steps for Effective Annotations & Cards on Your YouTube Videos</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/approved-harnessing-the-power-of-filmora-for-youtube-video-promotions/"><u>2024 Approved Harnessing the Power of Filmora for YouTube Video Promotions</u></a></li>
-<li><a href="https://win11.techidaily.com/how-to-sidestep-the-vac-rejected-issue-in-gaming/"><u>How to Sidestep the “VAC Rejected” Issue in Gaming</u></a></li>
-<li><a href="https://techidaily.com/how-to-update-apple-iphone-15-pro-max-to-the-latest-ios-version-drfone-by-drfone-ios-system-repair-ios-system-repair/"><u>How to Update Apple iPhone 15 Pro Max to the Latest iOS Version? | Dr.fone</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/in-2024-guide-to-mirror-your-infinix-note-30-vip-to-other-android-devices-drfone-by-drfone-android/"><u>In 2024, Guide to Mirror Your Infinix Note 30 VIP to Other Android devices | Dr.fone</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/24-the-right-tools-for-your-youtube-journey-camera-lenses-explained/"><u>In 2024, The Right Tools For Your YouTube Journey - Camera Lenses Explained</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/navigating-the-path-to-an-official-instagram-business-page-for-2024/"><u>Navigating the Path to an Official Instagram Business Page for 2024</u></a></li>
-<li><a href="https://ai-vdieo-software.techidaily.com/wax-video-editing-software-tips-tricks-and-tutorials/"><u>Wax Video Editing Software Tips, Tricks, and Tutorials</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/windowsmac-meeting-record-skype-guide/"><u>Windows/Mac Meeting Record - Skype Guide</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-architectural-marvels-for-vr-display/"><u>[New] Architectural Marvels for VR Display</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-retro-playback-inverting-your-youtube-content/"><u>[New] In 2024, Retro Playback Inverting Your YouTube Content</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/tep-by-step-process-to-craft-memorable-gifs-from-any-youtube-video-on-devices-for-2024/"><u>[New] Step-by-Step Process to Craft Memorable GIFs From Any YouTube Video on Devices for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-2024-approved-maximize-impact-aspect-ratio-expertise-for-youtube-experts/"><u>[Updated] 2024 Approved Maximize Impact Aspect Ratio Expertise for YouTube Experts</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-2024-approved-safe-no-cost-methods-for-youtube-tracks-extraction/"><u>[Updated] 2024 Approved Safe, No-Cost Methods for YouTube Tracks Extraction</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-crafting-emotional-impact-in-personal-youtube-content/"><u>[Updated] Crafting Emotional Impact in Personal YouTube Content</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/updated-in-2024-free-high-quality-edits-explore-these-9-cloud-apps/"><u>[Updated] In 2024, Free, High-Quality Edits Explore These 9 Cloud Apps</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-the-top-platform-trio-which-one-triumphs-vimeo-youtube-dailymotion-for-2024/"><u>[Updated] The Top Platform Trio Which One Triumphs – Vimeo, YouTube, Dailymotion for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/st-have-keyword-gurus-for-video-success-for-2024/"><u>10 Must-Have Keyword Gurus for Video Success for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/approved-youtube-masterclass-advanced-techniques-for-video-commentary-embedding/"><u>2024 Approved YouTube Masterclass Advanced Techniques for Video Commentary Embedding</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/comedic-calls-ringtones-best-picks-online-for-2024/"><u>Comedic Calls Ringtones' Best Picks Online for 2024</u></a></li>
+<li><a href="https://video-capture.techidaily.com/in-2024-enhance-your-presentations-with-aiseesofts-screencast-tools/"><u>In 2024, Enhance Your Presentations with Aiseesoft's Screencast Tools</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/24-top-bargain-video-snippets-grab-youtube-images-without-cost/"><u>In 2024, Top Bargain Video Snippets - Grab YouTube Images Without Cost!</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/mastering-cleanup-on-macos-with-schedule-wizard-of-stellar-file-eraser-5s-standard-package/"><u>Mastering Cleanup on macOS with Schedule Wizard of Stellar File Eraser 5'S Standard Package</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/mastering-the-art-of-srt-files-an-all-inclusive-guide-to-subtitles/"><u>Mastering the Art of SRT Files An All-Inclusive Guide to Subtitles</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/preserving-your-nintendo-switch-experiences-a-guide/"><u>Preserving Your Nintendo Switch Experiences A Guide</u></a></li>
+<li><a href="https://app-tips.techidaily.com/the-gateway-to-artificial-intelligence-made-simple-with-superduperdb-exclusive-analysis-by-zdnet/"><u>The Gateway to Artificial Intelligence Made Simple with SuperDuperDB – Exclusive Analysis by ZDNet</u></a></li>
+<li><a href="https://win-answers.techidaily.com/troubleshooting-civilization-vi-solutions-for-launch-issues-on-windows-10/"><u>Troubleshooting Civilization VI: Solutions for Launch Issues on Windows 10</u></a></li>
+<li><a href="https://ai-video-tools.techidaily.com/updated-watch-local-videos-on-chromecast-a-comprehensive-guide-for-windows-mac-android-and-ios-users/"><u>Updated Watch Local Videos on Chromecast A Comprehensive Guide for Windows, Mac, Android, and iOS Users</u></a></li>
 </ul></div>
 

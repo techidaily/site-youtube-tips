@@ -1,7 +1,7 @@
 ---
 title: "\"Thriving on Both Sides  Work and YouTubing Tips for 2024\""
-date: 2024-10-23T11:18:48.331Z
-updated: 2024-10-26T21:57:31.766Z
+date: 2024-11-01T04:10:47.319Z
+updated: 2024-11-01T18:09:37.376Z
 tags:
   - ai video
   - ai youtube
@@ -52,30 +52,50 @@ So, to save you and your viewers some of the same struggles, here are 5 tips I r
 I know what you’re thinking - “What?! That’s insane.” The first piece of advice I received about YouTube was to create a schedule of days to post so your viewers look forward to videos. That just doesn’t work for me. Whenever I became too busy with work, I couldn’t stick to my typical Tuesday or Thursday schedule. I think it’s best to focus on how many times you can post in a week rather than a specific day. I try to post at least once a week and that’s my goal. You can always increase as your workload gets lighter or you when you are able to do YouTube full-time.
 
 <!-- affiliate ads begin -->
-<a href="https://review-au.sjv.io/c/5597632/2135316/14409" target="_top" id="2135316">
-  <img src="//a.impactradius-go.com/display-ad/14409-2135316" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2134241/18498" target="_top" id="2134241">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134241" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2135316/14409" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134241/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## 2. Keep track of all your ideas in one notebook planner
 
 A notebook planner is essential for keeping my life organized and on track. When I first started my channel, I had a separate planner just for my YouTube videos – this didn’t work cause I never looked at it. It worked best when I kept track of my entire life, including YouTube, in one planner since I look at it every day. Then I could also see which days I wanted to post a video or see what topics worked best around specific holidays and such.
 
+<!-- affiliate ads begin -->
+<span id="1304647">
+					<video width="240" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1304647.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/15852-1304647">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1304647.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1304647%2F15852'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1304647/15852" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## 3. Check the weather forecast in advance
 
 When starting a YouTube channel, many YouTubers like myself don’t have the money to afford all the fancy lighting you see other creators using. [I use natural light](https://tools.techidaily.com/wondershare/filmora/download/), which means I have to make sure it’s going to be a sunny day or at least bright enough for my videos to be clear. I check the forecast for the week on Sunday evenings so I can plan out my best days to film, this keeps my video shooting schedule productive.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1886048/19272" target="_top" id="1886048">
-  <img src="//a.impactradius-go.com/display-ad/19272-1886048" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2151866/7443" target="_top" id="2151866">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151866" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886048/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151866/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## 4. Create 3-5 videos in advance
 
 This week I am on PTO (paid time off) which has given me a lot more time to film videos I can post for next month. Life happens and it can set you back on filming. If you happen to get a major break in your workweek, use the opportunity to film a bunch of videos, edit them, and have them waiting in your pocket. I filmed three videos in one day – I planned and set-up the night before, which made filming much smoother. Trust me, this tip works wonders!
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2027195/19272" target="_top" id="2027195">
+  <img src="//a.impactradius-go.com/display-ad/19272-2027195" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2027195/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## 5. Be creative! Create audios (audio-only videos)
 
@@ -91,21 +111,7 @@ Just try it and create your own YouTube video!
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2105870/7443" target="_top" id="2105870">
-  <img src="//a.impactradius-go.com/display-ad/7443-2105870" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105870/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2006919/19272" target="_top" id="2006919">
-  <img src="//a.impactradius-go.com/display-ad/19272-2006919" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006919/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -128,20 +134,15 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-tips.techidaily.com/024-approved-engage-in-enlightening-youtube-exchanges/"><u>[New] 2024 Approved Engage in Enlightening YouTube Exchanges</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/elevised-content-ease-youtube-loop-integration-guide-for-2024/"><u>[New] Televised Content Ease YouTube Loop Integration Guide for 2024</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/he-secret-sauce-to-outstanding-online-identity-creation/"><u>[New] The Secret Sauce to Outstanding Online Identity Creation</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-discovering-top-10-must-watch-business-video-hubs/"><u>[Updated] Discovering Top 10 Must-Watch Business Video Hubs</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/updated-in-2024-beginners-glossary-for-instagram-chat-rooms/"><u>[Updated] In 2024, Beginner's Glossary for Instagram Chat Rooms</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-in-2024-perfect-ending-for-youtubers-best-practices-and-pro-files/"><u>[Updated] In 2024, Perfect Ending for YouTubers Best Practices and Pro Files</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-the-ultimate-camera-selection-for-youtube-success/"><u>[Updated] The Ultimate Camera Selection for YouTube Success</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-ultimate-voice-transformation-devices-for-creators-for-2024/"><u>[Updated] Ultimate Voice Transformation Devices for Creators for 2024</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/updated-unveiling-your-own-distinctive-tiktok-stream-key-for-2024/"><u>[Updated] Unveiling Your Own Distinctive TikTok Stream Key for 2024</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/2024-approved-crafting-sound-saturated-instagram-visuals/"><u>2024 Approved Crafting Sound-Saturated Instagram Visuals</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/24-launching-into-youtube-success-a-starter-guide-for-profit/"><u>In 2024, Launching Into Youtube Success A Starter Guide for Profit</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/in-2024-the-ultimate-guide-how-to-bypass-swipe-screen-to-unlock-on-nokia-device-by-drfone-android/"><u>In 2024, The Ultimate Guide How to Bypass Swipe Screen to Unlock on Nokia Device</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/sealoc-55-inch-4k-outdoor-tv-a-comprehensive-review-and-guide/"><u>Sealoc 55-Inch 4K Outdoor TV: A Comprehensive Review and Guide.</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/troubleshooting-and-repairing-msvcrtdll-could-not-be-located-error-messages/"><u>Troubleshooting and Repairing 'MSVCRT.DLL Could Not Be Located' Error Messages</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/troubleshooting-iphone-battery-drain-post-ios-1751-update-expert-solutions/"><u>Troubleshooting iPhone Battery Drain Post-iOS 17.5.1 Update Expert Solutions</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-2024-approved-unleashing-the-power-of-youtube-to-mp3-conversion/"><u>[Updated] 2024 Approved Unleashing the Power of YouTube-to-MP3 Conversion</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-accessing-your-curated-music-lists-on-youtube/"><u>[Updated] Accessing Your Curated Music Lists on Youtube</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-in-2024-essential-guide-understanding-digital-narrative-creation/"><u>[Updated] In 2024, Essential Guide Understanding Digital Narrative Creation</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-quick-guide-enhancing-youtube-clips-using-windows-movie-maker/"><u>[Updated] Quick Guide Enhancing YouTube Clips Using Windows Movie Maker</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/2024-approved-the-art-of-dialogue-in-writing-scripts/"><u>2024 Approved The Art of Dialogue in Writing Scripts</u></a></li>
+<li><a href="https://buynow-marvelous.techidaily.com/affordable-and-high-quality-fossil-watches-in-depth-product-reviews/"><u>Affordable & High-Quality Fossil Watches: In-Depth Product Reviews</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ce-your-shorts-appeal-with-personalized-thumbnails-for-2024/"><u>Enhance Your Shorts' Appeal with Personalized Thumbnails for 2024</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/how-and-where-to-find-a-shiny-stone-pokemon-for-nokia-150-2023-drfone-by-drfone-virtual-android/"><u>How and Where to Find a Shiny Stone Pokémon For Nokia 150 (2023)? | Dr.fone</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/skip-unverified-warning-in-adobe-software/"><u>Skip Unverified Warning in Adobe Software</u></a></li>
+<li><a href="https://solve-outstanding.techidaily.com/step-by-step-guide-mastering-the-process-of-software-installation-and-removal/"><u>Step-by-Step Guide: Mastering the Process of Software Installation & Removal</u></a></li>
 </ul></div>
 

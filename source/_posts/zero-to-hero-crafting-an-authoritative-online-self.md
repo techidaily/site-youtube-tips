@@ -1,7 +1,7 @@
 ---
 title: "\"From Zero to Hero  Crafting an Authoritative Online Self\""
-date: 2024-10-19T16:28:12.915Z
-updated: 2024-10-27T01:35:03.016Z
+date: 2024-10-25T19:47:58.764Z
+updated: 2024-11-02T02:59:22.881Z
 tags:
   - ai video
   - ai youtube
@@ -47,10 +47,10 @@ No Doubt, Filmora is the one of the best tools for newbie editors, vloggers and 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1959759/19272" target="_top" id="1959759">
-  <img src="//a.impactradius-go.com/display-ad/19272-1959759" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2137412/7443" target="_top" id="2137412">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137412" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1959759/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137412/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Your Brand is Your Unique Message
@@ -58,10 +58,10 @@ No Doubt, Filmora is the one of the best tools for newbie editors, vloggers and 
 Competing on YouTube is all about offering value. Viewers should be able to find something on your channel that they can’t find anywhere else. This doesn’t mean you need to bend over backwards trying to[invent brand new video ideas that nobody has ever tried before](https://www.filmora.io/community-blog/how-to-be-original-on-youtube-289.html) – it just means you need to focus on building your unique brand. That is what will make viewers subscribe to you instead of just watching one of your videos and then clicking away.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082527/7443" target="_top" id="2082527">
-  <img src="//a.impactradius-go.com/display-ad/7443-2082527" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://bluettius.sjv.io/c/5597632/2139109/17108" target="_top" id="2139109">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139109" border="0" alt="https://techidaily.com" width="320" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082527/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139109/17108" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## The Elevator Pitch
@@ -80,13 +80,6 @@ You need to be able to do that when you talk about your channel.
 
 Work on developing an elevator pitch for your channel. It will help you define your brand for yourself, and it’ll be useful if you make a channel trailer.
 
-<!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2014859/22899" target="_top" id="2014859">
-  <img src="//a.impactradius-go.com/display-ad/22899-2014859" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014859/22899" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## How to Start Building Your Brand
 
 Building a brand should be intentional. You need to be yourself, but it’s not enough to just ‘be’. You need to create yourself.
@@ -96,6 +89,13 @@ Building a brand should be intentional. You need to be yourself, but it’s not 
 You will notice patterns. There will be things you do in your video that people consistently like more and less. The way you build your brand is by cutting out the stuff that isn’t working and focusing more intentionally on the stuff that is. If people like it when you do meme humor, for example, do more meme humor and make incorporating that in your videos part of your brand.
 
 Banners and thumbnails are also a part of your brand. [More on that here](https://www.filmora.io/community-blog/how-to-make-youtube-banners-and-thumbnails-316.html).
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135413/19272" target="_top" id="2135413">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135413" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135413/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Being Consistent
 
@@ -118,16 +118,10 @@ When you intentionally create your personal brand on YouTube, you take charge of
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 <!-- affiliate ads begin -->
-<span id="1983471">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983471.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983471">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983471.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983471%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983471/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/1896510/19272" target="_top" id="1896510">
+  <img src="//a.impactradius-go.com/display-ad/19272-1896510" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896510/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Shanoon Cox
@@ -151,24 +145,18 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-tips.techidaily.com/024-approved-a-deep-dive-into-youtubes-income-models/"><u>[New] 2024 Approved A Deep Dive Into YouTube’s Income Models</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/024-approved-beat-makers-paradise-downloading-premium-dj-visuals/"><u>[New] 2024 Approved Beat Makers' Paradise Downloading Premium DJ Visuals</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/024-approved-disrupt-bot-patterns-for-natural-viewer-increase/"><u>[New] 2024 Approved Disrupt Bot Patterns for Natural Viewer Increase</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/024-approved-elevate-your-content-game-on-youtube-top-11-video-seo-insights/"><u>[New] 2024 Approved Elevate Your Content Game on YouTube Top 11 Video SEO Insights</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/024-approved-infuse-your-visuals-with-melody-adding-music-in-youtube-editing/"><u>[New] 2024 Approved Infuse Your Visuals With Melody Adding Music in YouTube Editing</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/024-approved-palate-pleasers-brainstorming-topical-food-channel-names/"><u>[New] 2024 Approved Palate Pleasers Brainstorming Topical Food Channel Names</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/024-approved-tap-into-endless-creativity-our-compilation-of-over-50-free-advertising-masterpieces/"><u>[New] 2024 Approved Tap Into Endless Creativity – Our Compilation of over 50 FREE Advertising Masterpieces!</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/024-approved-the-first-time-filmmakers-guide-to-gear-selection/"><u>[New] 2024 Approved The First-Time Filmmaker's Guide to Gear Selection</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/024-approved-the-ultimate-checklist-for-confirming-yt-account/"><u>[New] 2024 Approved The Ultimate Checklist for Confirming YT Account</u></a></li>
-<li><a href="https://video-capture.techidaily.com/new-breakdown-the-broadcasting-barrier-easy-windows-pc-guide-to-live-tv-recording/"><u>[New] Breakdown the Broadcasting Barrier Easy Windows PC Guide to Live TV Recording</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-mastering-mind-games-top-trivia-channels-for-24-for-2024/"><u>[Updated] Mastering Mind Games – Top Trivia Channels for '24 for 2024</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-real-vs-fake-quick-ways-to-audit-your-insta-circle/"><u>[Updated] Real Vs. Fake Quick Ways to Audit Your Insta Circle</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/updated-sony-ps-players-voice-modification-techniques/"><u>[Updated] Sony PS Players' Voice Modification Techniques</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/2024-approved-elevating-video-quality-incorporating-bb-and-lc-elements-in-fb/"><u>2024 Approved Elevating Video Quality Incorporating BB and LC Elements in FB</u></a></li>
-<li><a href="https://blog-min.techidaily.com/8-ways-to-transfer-photos-from-vivo-g2-to-iphone-easily-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>8 Ways to Transfer Photos from Vivo G2 to iPhone Easily | Dr.fone</u></a></li>
-<li><a href="https://win-blog.techidaily.com/error-2024-in-cyberpunk-2077-understanding-and-fixing-the-issue/"><u>Error 2024 in Cyberpunk 2077: Understanding and Fixing the Issue</u></a></li>
-<li><a href="https://review-topics.techidaily.com/how-to-change-location-on-facebook-dating-for-your-vivo-v29-drfone-by-drfone-virtual-android/"><u>How to Change Location On Facebook Dating for your Vivo V29 | Dr.fone</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/in-2024-tailoring-your-windows-photos-display-filters-and-audio-options/"><u>In 2024, Tailoring Your Windows Photos Display Filters & Audio Options</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/tudent-vids-essential-histories-channel-list/"><u>Top Student Vids Essential Histories Channel List</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-mac-users-mastering-chic-videos-for-your-first-youtube-post/"><u>[New] In 2024, Mac Users Mastering Chic Videos for Your First YouTube Post</u></a></li>
+<li><a href="https://fox-access.techidaily.com/new-master-your-images-with-the-best-overlay-apps-for-ios-and-android-for-2024/"><u>[New] Master Your Images with the Best Overlay Apps for iOS & Android for 2024</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-step-by-step-livestream-guide-for-pre-recorded-videos-on-fb-for-2024/"><u>[New] Step-by-Step Livestream Guide for Pre-Recorded Videos on FB for 2024</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-hidden-facts-about-instagram-stories-a-closer-look-for-viewers/"><u>[Updated] Hidden Facts About Instagram Stories A Closer Look for Viewers</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-in-2024-share-the-moment-effortlessly-push-photos-to-social-networks/"><u>[Updated] In 2024, Share the Moment Effortlessly Push Photos to Social Networks</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-streamline-your-thumbnail-design-journey-today-for-2024/"><u>[Updated] Streamline Your Thumbnail Design Journey Today for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-the-blueprint-for-influential-video-arrangements-for-2024/"><u>[Updated] The Blueprint for Influential Video Arrangements for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-the-insiders-look-at-youtube-content-regulations/"><u>[Updated] The Insider's Look at YouTube Content Regulations</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-the-ultimate-guide-to-finding-the-right-youtube-keywords/"><u>[Updated] The Ultimate Guide to Finding the Right YouTube Keywords</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/discover-the-best-ai-tools-with-these-9-innovative-communities/"><u>Discover the Best AI Tools with These 9 Innovative Communities</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/in-2024-caption-kings-and-queens-top-10-mobile-writing-aids-iosandroid/"><u>In 2024, Caption Kings and Queens Top 10 Mobile Writing Aids (iOS/Android)</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/24-free-best-youtube-video-editor-apps-for-android/"><u>In 2024, FREE Best YouTube Video Editor Apps for Android</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/unravel-the-value-of-economical-high-definition-pet-cams-by-petcube/"><u>Unravel the Value of Economical, High Definition Pet Cams by Petcube</u></a></li>
 </ul></div>
 

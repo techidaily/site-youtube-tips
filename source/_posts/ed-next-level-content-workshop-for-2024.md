@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Next Level Content Workshop for 2024"
-date: 2024-09-11T08:09:45.239Z
-updated: 2024-09-12T08:09:45.239Z
+date: 2024-10-27T04:09:29.969Z
+updated: 2024-11-01T22:44:52.493Z
 tags:
   - ai video
   - ai youtube
@@ -64,16 +64,16 @@ _Tess takes you to some of her favorite places in Dumbo._
 
 Dumbo is home to an interesting mix of ‘past’ and ‘future’. The creators who attended the summit probably had a lot of fun exploring it.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144274/7443" target="_top" id="2144274">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144274" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144274/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## 2\. Post Cards
 
 One of the major benefits of attending this summit would have been networking with other creators, but because of how busy everyone was and how awkward it can be to arrange ‘bumping into’ someone YouTube created a way for creators to send each other notes. All they had to do was write a note on one of the postcards YouTube provided them with and stick it in one of the red mailboxes at the event. YouTube took care of making sure the person it was addressed to got it.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130886/7443" target="_top" id="2130886">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130886" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130886/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## 3\. S’well bottle
 
@@ -86,25 +86,19 @@ To help them relax after long days at the summit, YouTube provided creators with
 ![Branded slippers - 2017 YouTube Creator Summit](https://images.wondershare.com/filmora/article-images/youtube-creator-summit-branded-slippers.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2014853/22899" target="_top" id="2014853">
-  <img src="//a.impactradius-go.com/display-ad/22899-2014853" border="0" alt="https://techidaily.com" width="320" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2105883/7443" target="_top" id="2105883">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105883" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014853/22899" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105883/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 _thinknoodles wearing his YouTube slippers._
 
 <!-- affiliate ads begin -->
-<span id="1983552">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983552.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983552">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983552.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983552%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983552/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2068426/7443" target="_top" id="2068426">
+  <img src="//a.impactradius-go.com/display-ad/7443-2068426" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068426/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## 5\. Pins, pins, pins
@@ -117,13 +111,6 @@ A denim jacket with a play button on it was also in the box. The idea was that c
 
 _![Denim jacket- 2017 YouTube Creator Summit](https://images.wondershare.com/filmora/article-images/youtube-creator-summit-denim-jacket.jpg)_
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137209/26400" target="_top" id="2137209">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137209" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137209/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 _Hannah Hart posted this photo from a river cruise she and other YouTubers went on while in New York for the summit._
 
 Most creators here on Filmora are still trying to grow their channels, but one day I hope you’ll be able to attend an event like the YouTube Creator Summit and tell us all about it!
@@ -132,20 +119,13 @@ Want to join the YouTube Creator Summit in the future? We all know that there is
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136613/26400" target="_top" id="2136613">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136613" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136613/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134496/18498" target="_top" id="2134496">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134496" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135403/19272" target="_top" id="2135403">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135403" border="0" alt="https://techidaily.com" width="392" height="72"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134496/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135403/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -167,5 +147,21 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-mirroring-recording.techidaily.com/new-in-2024-enhancing-your-video-with-professional-voice-overs/"><u>[New] In 2024, Enhancing Your Video with Professional Voice Overs</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-2024-approved-creating-cash-flow-on-youtube-an-ad-free-blueprint-for-income/"><u>[Updated] 2024 Approved Creating Cash Flow on YouTube An Ad-Free Blueprint for Income</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-2024-approved-elevate-view-count-prime-hashtags-strategy/"><u>[Updated] 2024 Approved Elevate View Count Prime Hashtags Strategy</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-finding-the-right-angle-for-your-fb-videos-for-2024/"><u>[Updated] Finding the Right Angle for Your FB Videos for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-making-your-mark-with-youtubes-creative-commons-tools/"><u>[Updated] Making Your Mark with YouTube’s Creative Commons Tools</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-mastering-instagram-video-dimensions-for-peak-performance/"><u>[Updated] Mastering Instagram Video Dimensions for Peak Performance</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/updated-the-art-of-speech-interpretation-via-googles-technology-for-2024/"><u>[Updated] The Art of Speech Interpretation via Google's Technology for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-the-essence-of-elegance-in-video-color-balancing/"><u>[Updated] The Essence of Elegance in Video Color Balancing</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-transforming-your-footage-into-shareable-youtube-stories/"><u>[Updated] Transforming Your Footage Into Shareable YouTube Stories</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-unlock-enhanced-video-playback-and-app-functionality-with-chromes-pip-for-2024/"><u>[Updated] Unlock Enhanced Video Playback and App Functionality with Chrome’s PIP for 2024</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/8-cutting-edge-skins-perfect-for-your-laptop-for-2024/"><u>8 Cutting-Edge Skins Perfect for Your Laptop for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/24-compreeve-youtube-extraction-11-tools-reviewed/"><u>In 2024, Compreeve YouTube Extraction 11 Tools Reviewed</u></a></li>
+<li><a href="https://network-issues.techidaily.com/nvidia-driver-anomaly-corrected-display-normalized/"><u>Nvidia Driver Anomaly Corrected - Display Normalized</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/transform-your-listening-experience-airpods-pro-now-include-hearing-aid-mode-with-latest-ios-update-say-goodbye-to-compatibility-hassles/"><u>Transform Your Listening Experience: AirPods Pro Now Include Hearing Aid Mode with Latest iOS Update - Say Goodbye to Compatibility Hassles.</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "[New] Mastering YouTube Notes & Alerts Implementation"
-date: 2024-10-21T01:17:16.850Z
-updated: 2024-10-27T07:00:25.050Z
+date: 2024-10-28T23:13:24.109Z
+updated: 2024-11-02T01:08:39.527Z
 tags:
   - ai video
   - ai youtube
@@ -73,10 +73,10 @@ YouTube **Cards** are similar to annotations but more interactive. They allow th
 * Apply changes and exit
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144274/7443" target="_top" id="2144274">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144274" border="0" alt="https://techidaily.com" width="600" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137227/26400" target="_top" id="2137227">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137227" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144274/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137227/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## How to add YouTube annotations
@@ -90,10 +90,10 @@ YouTube Annotation is addition of a text layer, link or hotspots over your video
 ![](https://images.wondershare.com/filmora/article-images/add-annotations-to-youtube-video.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2002019/7443" target="_top" id="2002019">
-  <img src="//a.impactradius-go.com/display-ad/7443-2002019" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://electronicx.pxf.io/c/5597632/1166360/14483" target="_top" id="1166360">
+  <img src="//a.impactradius-go.com/display-ad/14483-1166360" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2002019/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://electronicx.pxf.io/i/5597632/1166360/14483" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 * On the right panel click on "+ Add Element" and select the kind of annotation you want to add
@@ -102,10 +102,10 @@ YouTube Annotation is addition of a text layer, link or hotspots over your video
 ![](https://images.wondershare.com/filmora/article-images/add-annotation-to-youtube-1.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136618/26400" target="_top" id="2136618">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136618" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1918703/19272" target="_top" id="1918703">
+  <img src="//a.impactradius-go.com/display-ad/19272-1918703" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136618/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918703/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 * Apply changes
@@ -147,10 +147,10 @@ No matter what kind of annotations you are using, you should never use more than
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135411/19272" target="_top" id="2135411">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135411" border="0" alt="https://techidaily.com" width="180" height="90"/>
+<a href="https://coinrule.sjv.io/c/5597632/1610918/18409" target="_top" id="1610918">
+  <img src="//a.impactradius-go.com/display-ad/18409-1610918" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135411/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://coinrule.sjv.io/i/5597632/1610918/18409" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -174,21 +174,18 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-tips.techidaily.com/024-approved-avoiding-blur-techniques-for-hand-held-stability/"><u>[New] 2024 Approved Avoiding Blur Techniques for Hand-Held Stability</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/024-approved-compiling-leading-short-form-video-editors-iosandroid-edition/"><u>[New] 2024 Approved Compiling Leading Short-Form Video Editors IOS/Android Edition</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/024-approved-flix-fortune-hashtags-for-high-impact-low-length-video-content/"><u>[New] 2024 Approved Flix Fortune Hashtags for High Impact, Low-Length Video Content</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/024-approved-orchestrating-a-journey-through-hidden-youtube-archives/"><u>[New] 2024 Approved Orchestrating a Journey Through Hidden YouTube Archives</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/024-approved-ripple-effects-top-mobile-music-disruptors/"><u>[New] 2024 Approved Ripple Effects Top Mobile Music Disruptors</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/024-approved-streamline-and-simplify-a-user-friendly-approach-to-shorts-thumbnails/"><u>[New] 2024 Approved Streamline & Simplify A User-Friendly Approach to Shorts Thumbnails</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/024-approved-streamline-your-audio-preferences-moving-spotify-playlists-to-youtube-music/"><u>[New] 2024 Approved Streamline Your Audio Preferences Moving Spotify Playlists to YouTube Music</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/new-facebooks-visual-storytelling-what-angle-matters-most/"><u>[New] Facebook's Visual Storytelling What Angle Matters Most?</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/new-how-to-record-screen-on-huawei-mate-10p10-using-a-built-in-recorder/"><u>[New] How to Record Screen On Huawei Mate 10/P10 Using a Built-In Recorder</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/new-unlocking-potential-expert-insights-into-hashtag-usage-on-facebook-for-2024/"><u>[New] Unlocking Potential Expert Insights Into Hashtag Usage on Facebook for 2024</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ed-in-2024-easy-guide-turning-your-favorite-youtube-videos-into-animated-gifs/"><u>[Updated] In 2024, Easy Guide Turning Your Favorite YouTube Videos Into Animated GIFs</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/online-tod-movavi/"><u>「無料で使えるOnline TODファイルを簡単に変換: MOVAVIのコツ」</u></a></li>
-<li><a href="https://fox-info.techidaily.com/2024-approved-from-concept-to-reality-top-7-gadgets-for-metaverse-success/"><u>2024 Approved From Concept to Reality Top 7 Gadgets for Metaverse Success</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/in-2024-android-unlock-code-sim-unlock-your-realme-11-proplus-phone-and-remove-locked-screen-by-drfone-android/"><u>In 2024, Android Unlock Code Sim Unlock Your Realme 11 Pro+ Phone and Remove Locked Screen</u></a></li>
-<li><a href="https://android-frp.techidaily.com/in-2024-how-to-bypass-google-frp-lock-from-motorola-moto-g34-5g-devices-by-drfone-android/"><u>In 2024, How to Bypass Google FRP Lock from Motorola Moto G34 5G Devices</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/the-ultimate-list-of-free-movies-available-on-youtube-this-july/"><u>The Ultimate List of Free Movies Available on YouTube This July</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/024-approved-unlocking-emotional-depth-in-self-narrated-videos-yt/"><u>[New] 2024 Approved Unlocking Emotional Depth in Self-Narrated Videos YT</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/updated-in-2024-direct-guide-to-modifying-macs-default-snapshots/"><u>[Updated] In 2024, Direct Guide to Modifying Mac's Default Snapshots</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/how-to-bypass-icloud-lock-on-apple-iphone-11-by-drfone-ios/"><u>How to Bypass iCloud Lock on Apple iPhone 11</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/how-to-hidefake-snapchat-location-on-your-tecno-spark-20c-drfone-by-drfone-virtual-android/"><u>How to Hide/Fake Snapchat Location on Your Tecno Spark 20C | Dr.fone</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/24-best-free-youtube-video-editing-apps-for-iphone-and-ipad/"><u>In 2024, Best Free YouTube Video Editing Apps for iPhone & iPad</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/24-boost-your-revenue-yielding-earnings-from-youtube-at-500-followers/"><u>In 2024, Boost Your Revenue Yielding Earnings From YouTube at 500 Followers</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/24-bypassing-barriers-a-guide-to-flawless-youtube-shorts/"><u>In 2024, Bypassing Barriers A Guide to Flawless YouTube Shorts</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/24-convert-audio-online-mp3-to-youtube-live-upload-guide/"><u>In 2024, Convert Audio Online MP3 to YouTube Live Upload Guide</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/24-cut-the-cost-not-the-creativity-best-free-editing-tools-top-9/"><u>In 2024, Cut The Cost, Not The Creativity Best Free Editing Tools (Top 9)</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/in-2024-simplified-steps-for-snapchat-lens-design/"><u>In 2024, Simplified Steps for Snapchat Lens Design</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/is-the-premium-price-of-the-samsung-un65nu8000fxza-justified-an-in-depth-review-reveals-surprising-findings/"><u>Is the Premium Price of the Samsung UN65NU8000FXZA Justified? An In-Depth Review Reveals Surprising Findings</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/imate-protocols-for-achieving-over-a-million-viewership-for-2024/"><u>Legitimate Protocols for Achieving Over a Million Viewership for 2024</u></a></li>
+<li><a href="https://win-able.techidaily.com/resolved-top-6-solutions-to-eliminate-stuttering-and-lag-in-baldurs-gate/"><u>Resolved: Top 6 Solutions to Eliminate Stuttering and Lag in Baldur's Gate</u></a></li>
 </ul></div>
 

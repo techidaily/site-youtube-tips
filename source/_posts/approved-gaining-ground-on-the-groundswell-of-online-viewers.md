@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Gaining Ground on the Groundswell of Online Viewers\""
-date: 2024-10-23T00:17:40.627Z
-updated: 2024-10-27T08:53:03.312Z
+date: 2024-10-27T00:18:42.607Z
+updated: 2024-11-02T03:07:52.978Z
 tags:
   - ai video
   - ai youtube
@@ -55,19 +55,6 @@ Once all the pieces of the story are captured — including your storytelling, b
 
 Take a look at this example from [Tiffany Alvord](https://www.youtube.com/user/TiffanyAlvord) and notice how there are jump cuts both to skip information that can be assumed by the audience and add the tension to the story she’s telling.
 
-<!-- affiliate ads begin -->
-<span id="1484963">
-					<video width="864" height="864" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1484963.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1484963">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1484963.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1484963%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1484963/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **3\. Surprise and Delight Your Audience**
 
 There is a saying that a great ending to a story is that it is [surprising, yet inevitable](https://www.huffingtonpost.com/david-kudler/writing-the-inevitable-bu%5Fb%5F1630419.html).
@@ -75,6 +62,13 @@ There is a saying that a great ending to a story is that it is [surprising, yet 
 The ending needs to be justified even if there is a twist. Everything before that had worked to build up the tension and when it concludes it needs to be logical. However, the ending cannot be something that the audience can guess. Remember those mystery movies where you know who the murderer is after the first few scenes? Yeah… those aren’t satisfying. A good story ends with a surprise, and with everything prior leading up to it.
 
 The gold standard example of a surprising, yet inevitable end is Casey Neistat's bike lane video. Everything in the video is leading up to the end, but when you watch it the first time it’s unexpected, and that’s why it’s so good.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2087395/7443" target="_top" id="2087395">
+  <img src="//a.impactradius-go.com/display-ad/7443-2087395" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087395/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **4\. Be Inviting**
 
@@ -85,10 +79,10 @@ Unlike being invited to a party, there is no obligation when it comes to YouTube
 The opposite of inviting is rejecting, and when you are a vlogger, you don’t want to reject anyone from enjoying your videos.
 
 <!-- affiliate ads begin -->
-<a href="https://bluettide.pxf.io/c/5597632/2141684/17092" target="_top" id="2141684">
-  <img src="//a.impactradius-go.com/display-ad/17092-2141684" border="0" alt="https://techidaily.com" width="120" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2094482/7443" target="_top" id="2094482">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094482" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://bluettide.pxf.io/i/5597632/2141684/17092" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094482/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **5\. Compose the Shot**
@@ -123,6 +117,13 @@ Consider your audience: they are coming home from school or work, where there we
 
 Want to see a vlogger that is awesome at being expressive on camera? Check out [Emma Chamberlain](https://www.youtube.com/channel/UC78cxCAcp7JfQPgKxYdyGrg), if you haven’t already. Every word she says in her video is layered with emotion. We know exactly how she feels.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2087239/19272" target="_top" id="2087239">
+  <img src="//a.impactradius-go.com/display-ad/19272-2087239" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2087239/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **8\. Stay Organized**
 
 The same way you should prepare before filming, it’s also important to be organized comes the editing phase. Editing is arguably the most time-consuming part of the vlogging process, so have a system for categorizing and finding your footages.
@@ -147,20 +148,13 @@ If you want to find a video editing solution that empowers your imagination and 
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2148619/17108" target="_top" id="2148619">
-  <img src="//a.impactradius-go.com/display-ad/17108-2148619" border="0" alt="https://techidaily.com" width="100" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2148619/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2094479/7443" target="_top" id="2094479">
-  <img src="//a.impactradius-go.com/display-ad/7443-2094479" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1938745/19272" target="_top" id="1938745">
+  <img src="//a.impactradius-go.com/display-ad/19272-1938745" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094479/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938745/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -184,20 +178,22 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-recording.techidaily.com/new-2024-approved-craft-viral-stories-on-fb-with-pro-tips/"><u>[New] 2024 Approved Craft Viral Stories on FB with Pro Tips</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/024-approved-step-by-step-guide-embedding-company-imagery-in-video-posts/"><u>[New] 2024 Approved Step-by-Step Guide Embedding Company Imagery in Video Posts</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/n-2024-master-the-art-of-customization-for-youtube-shorts-thumbnails/"><u>[New] In 2024, Master the Art of Customization for YouTube Shorts Thumbnails</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/eep-it-real-keep-it-right-tips-for-authentic-daily-videos-for-2024/"><u>[New] Keep It Real, Keep It Right Tips for Authentic Daily Videos for 2024</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-2024-approved-easy-steps-how-to-master-the-best-of-9-free-youtube-logomakers/"><u>[Updated] 2024 Approved Easy Steps How to Master the Best of 9 Free YouTube Logomakers</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-in-2024-video-masterclass-crafting-youtube-trailers-using-filmora/"><u>[Updated] In 2024, Video Masterclass Crafting YouTube Trailers Using Filmora</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/updated-zoom-for-broadcasts-bridging-the-gap-to-fb-live-for-2024/"><u>[Updated] ZOOM for Broadcasts Bridging the Gap to FB Live for 2024</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/converting-horizontals-for-igtv-tips-and-techniques-explored-for-2024/"><u>Converting Horizontals for IGTV Tips & Techniques Explored for 2024</u></a></li>
-<li><a href="https://win-bits.techidaily.com/how-to-recover-a-deleted-partition-in-windows-10-or-windows-11-step-by-step-guide/"><u>How to Recover a Deleted Partition in Windows 10 or Windows 11 - Step by Step Guide</u></a></li>
-<li><a href="https://fox-access.techidaily.com/in-2024-interface-feedback-for-screen-players-choice/"><u>In 2024, Interface Feedback for Screen Players' Choice</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/24-the-cash-flow-of-creative-content-youtubers-earnings-per-sponsored-video/"><u>In 2024, The Cash Flow of Creative Content Youtuber's Earnings per Sponsored Video?</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/rating-your-day-job-with-passionate-online-content/"><u>Integrating Your Day Job with Passionate Online Content</u></a></li>
-<li><a href="https://win-answers.techidaily.com/silence-broken-comprehensive-guide-to-restore-audio-in-skyrim/"><u>Silence Broken: Comprehensive Guide to Restore Audio in Skyrim</u></a></li>
-<li><a href="https://win-bytes.techidaily.com/systemdateien-backup-auf-der-wiederherstellungsspeicheroberflache-zu-empfehlen-oder-nicht/"><u>Systemdateien-Backup Auf Der Wiederherstellungsspeicheroberfläche - Zu Empfehlen Oder Nicht?</u></a></li>
-<li><a href="https://common-error.techidaily.com/troubleshooting-and-repairing-laptop-keyboards-for-windows-users-win-10-8-and-7/"><u>Troubleshooting and Repairing Laptop Keyboards for Windows Users [WIN 10, 8 & 7]</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/new-brushbuddies-full-examination-and-manual-2024/"><u>[New] BrushBuddies Full Examination & Manual 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ive-into-creating-alluring-youtube-video-intros/"><u>[New] Dive Into Creating Alluring YouTube Video Intros</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-maximizing-youtube-gaming-income/"><u>[New] In 2024, Maximizing YouTube Gaming Income</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-youtube-shorts-solutions-to-frequent-problems/"><u>[New] In 2024, YouTube Shorts Solutions to Frequent Problems</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/nverted-playback-the-hidden-technique-for-a-reversed-youtube-list/"><u>[New] Inverted Playback The Hidden Technique for a Reversed YouTube List</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-2024-approved-clipcraft-designer/"><u>[Updated] 2024 Approved ClipCraft Designer</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-in-2024-canvas-clearance-techniques-for-uncluttered-image-frames/"><u>[Updated] In 2024, Canvas Clearance Techniques for Uncluttered Image Frames</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-trek-through-the-territory-of-talkative-thoughts/"><u>[Updated] Trek Through the Territory of Talkative Thoughts</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/analyzing-the-yin-and-yang-of-ai-and-creativity/"><u>Analyzing the Yin & Yang of AI and Creativity</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/artists-youtubes-most-followed-sages-for-2024/"><u>Apex Artists YouTube's Most-Followed Sages for 2024</u></a></li>
+<li><a href="https://discover-excellent.techidaily.com/could-buying-certain-products-lead-to-loss-of-trademark-rights-discover-insights-on-flipbuildercom/"><u>Could Buying Certain Products Lead to Loss of Trademark Rights? Discover Insights on FlipBuilder.com</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/tudents-discover-the-top-10-historical-youtube-channels-now-for-2024/"><u>For Students, Discover the Top 10 Historical YouTube Channels Now for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/24-diy-delights-in-motion-personalized-animation-artistry/"><u>In 2024, DIY Delights in Motion Personalized Animation Artistry</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-everything-you-need-to-know-about-lock-screen-settings-on-your-honor-x50iplus-by-drfone-android/"><u>In 2024, Everything You Need to Know about Lock Screen Settings on your Honor X50i+</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/in-2024-the-illustrator-way-how-to-create-stunning-motion-effects/"><u>In 2024, The Illustrator Way How to Create Stunning Motion Effects</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/score-your-dream-deal-today-save-up-to-57-on-the-powerhouse-gaming-laptop-gigabyte-aero-eby-zdnet/"><u>Score Your Dream Deal Today: Save up to 57% on the Powerhouse Gaming Laptop, Gigabyte Aero Eby ZDNET</u></a></li>
+<li><a href="https://fox-that.techidaily.com/top-8-solutions-how-to-get-your-iphone-out-of-persistent-headset-mode/"><u>Top 8 Solutions: How To Get Your iPhone Out Of Persistent Headset Mode</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Visual Storytelling  Crafting Compelling Narratives in YouTube Videos\""
-date: 2024-09-11T08:06:28.361Z
-updated: 2024-09-12T08:06:28.361Z
+date: 2024-10-27T20:13:37.321Z
+updated: 2024-11-02T05:12:00.516Z
 tags:
   - ai video
   - ai youtube
@@ -27,13 +27,6 @@ thumbnail: https://thmb.techidaily.com/667c07bdb92da3d0cfc85ccd305dbbf14b3797ec4
  We have mentioned before about [the equipment you should have to start your YouTube video shooting](https://tools.techidaily.com/wondershare/filmora/download/), however, being methodical in your approach to the video making process and knowing exactly what and where you are going to stage and record will increase the quality of the content. Focus on the technical aspects of your YouTube video before you actually start shooting and strive to be well prepared for all the challenges a day on the set may bring.
 
  These and other useful tips may help you make better videos for your YouTube channel, so let's explore different ways of improving your video making skills.
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2123511/26400" target="_top" id="2123511">
-  <img src="//a.impactradius-go.com/display-ad/26400-2123511" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2123511/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## 10 Tips for Shooting Better YouTube Videos
 
@@ -67,13 +60,6 @@ thumbnail: https://thmb.techidaily.com/667c07bdb92da3d0cfc85ccd305dbbf14b3797ec4
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115926/19272" target="_top" id="2115926">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115926" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115926/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Posting vertically oriented videos to your YouTube channel will make you look unprofessional because portrait mode is never used for capturing videos. YouTubers who record their videos with Smartphones are more likely to fall into this trap, but all you need to do to avoid this is remember to hold the device horizontally.
 
  By switching to portrait mode, you'll be cropping the frame in a way, so you might unknowingly end up removing parts of the shot you wanted to record.
@@ -90,13 +76,6 @@ thumbnail: https://thmb.techidaily.com/667c07bdb92da3d0cfc85ccd305dbbf14b3797ec4
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2120867/26400?prodsku=mars" target="_top" id="2120867">
-  <img src="//a.impactradius-go.com/display-ad/26400-2120867" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2120867/26400?prodsku=mars" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 #### 8. Keep The Shot in Focus
 
  You can always keep the shot in focus by simply enabling the autofocus feature, but if you do so you won't be able to control where the focus is going to be. Pulling focus manually is an art that takes years to master, and you have to keep practicing it as much as you can in order to become good at it.
@@ -106,13 +85,6 @@ thumbnail: https://thmb.techidaily.com/667c07bdb92da3d0cfc85ccd305dbbf14b3797ec4
 #### 9. Put The Camera on a Tripod
 
 ![Camera tripod ](https://images.wondershare.com/filmora/article-images/cartoni-omega-professional-tripod-system.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2120866/26400?prodsku=mars" target="_top" id="2120866">
-  <img src="//a.impactradius-go.com/display-ad/26400-2120866" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2120866/26400?prodsku=mars" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  The footage you produce should be smooth and free of camera shakes. All video cameras pick up vibrations easily, so even the slightest movement or impact can ruin a shot. Putting the camera on a tripod is one of the best ways to stabilize the shot and avoid camera shaking.
 
@@ -136,13 +108,6 @@ thumbnail: https://thmb.techidaily.com/667c07bdb92da3d0cfc85ccd305dbbf14b3797ec4
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115951/19272" target="_top" id="2115951">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115951" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115951/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
@@ -162,5 +127,33 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-from-black-and-white-to-color-classic-video-transition-tips/"><u>[New] In 2024, From Black-and-White to Color Classic Video Transition Tips</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-google-meet-go-live-your-youtube-broadcast-companion/"><u>[New] In 2024, Google Meet Go Live - Your YouTube Broadcast Companion</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-yt-bidirectional-navigating-the-queue-from-the-conclusion-backwards/"><u>[New] In 2024, YT Bidirectional Navigating the Queue From the Conclusion Backwards</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/asterclass-in-effortless-video-acquisition/"><u>[New] Masterclass in Effortless Video Acquisition</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/new-the-essential-iphone-hdr-photography-skills/"><u>[New] The Essential iPhone HDR Photography Skills</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-becoming-a-wise-trader-top-video-tutorials/"><u>[Updated] 2024 Approved Becoming a Wise Trader Top Video Tutorials</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-secrets-to-superior-youtube-videos-mastering-post-upload-editing-for-2024/"><u>[Updated] Secrets to Superior YouTube Videos Mastering Post-Upload Editing for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-the-editors-toolkit-elevating-your-youtube-videos-via-windows-pc/"><u>[Updated] The Editor's Toolkit Elevating Your YouTube Videos via Windows PC</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-the-pathway-to-smart-youtube-frames-free-methods-inside-for-2024/"><u>[Updated] The Pathway to Smart YouTube Frames (Free Methods Inside!) For 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-youtube-shorts-description-everything-you-need-to-know-for-2024/"><u>[Updated] YouTube Shorts Description Everything You Need to Know for 2024</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/2024-approved-elevate-iphone-snapshots-with-these-hacks/"><u>2024 Approved Elevate iPhone Snapshots with These Hacks</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/approved-top-rated-apps-for-capturing-and-saving-videos-online/"><u>2024 Approved Top-Rated Apps for Capturing & Saving Videos Online</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/has-openais-command-over-chatgpt-waned/"><u>Has OpenAI's Command Over ChatGPT Waned?</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/inside-look-the-ins-and-outs-of-t-mobiles-national-roaming-policy/"><u>Inside Look: The Ins and Outs of T-Mobile's National Roaming Policy</u></a></li>
+<li><a href="https://win-blog.techidaily.com/resolve-the-corsair-icue-non-responsive-problems-under-windows-11-with-ease/"><u>Resolve the Corsair iCUE Non-Responsive Problems Under Windows 11 with Ease</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/top-6-ways-to-transfer-text-messages-from-motorola-razr-40-ultra-to-other-android-devices-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>Top 6 Ways to Transfer Text Messages from Motorola Razr 40 Ultra to Other Android Devices | Dr.fone</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/top-strategies-to-defeat-the-closed-terminal-conundrum/"><u>Top Strategies to Defeat the Closed Terminal Conundrum</u></a></li>
+<li><a href="https://howto.techidaily.com/troubleshooting-guide-how-to-fix-an-unresponsive-honor-magic-v2-screen-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Troubleshooting Guide How to Fix an Unresponsive Honor Magic V2 Screen | Dr.fone</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/vr-chronicles-a-timeline-unveiled-for-2024/"><u>VR Chronicles A Timeline Unveiled for 2024</u></a></li>
+</ul></div>
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2094479/7443" target="_top" id="2094479">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094479" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094479/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 

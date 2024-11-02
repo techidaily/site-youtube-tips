@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  YouTube's New Look - Shorts Now on Screen\""
-date: 2024-10-20T18:22:36.152Z
-updated: 2024-10-26T20:28:01.518Z
+date: 2024-10-29T00:09:27.247Z
+updated: 2024-11-02T00:49:52.975Z
 tags:
   - ai video
   - ai youtube
@@ -67,10 +67,10 @@ And, you must note that a YouTube Shorts video consists of two criteria as follo
 * The video must be 60 seconds or less
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1975807/19272" target="_top" id="1975807">
-  <img src="//a.impactradius-go.com/display-ad/19272-1975807" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2144276/7443" target="_top" id="2144276">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144276" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1975807/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144276/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 2: How to Fix YouTube Shorts Not Showing Up?
@@ -85,22 +85,15 @@ Moreover, the option to upload Shorts is now hidden behind the **+** icon. Tap o
 
 ![filmora](https://images.wondershare.com/filmora/youtube-shorts-not-showing-1.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144279/7443" target="_top" id="2144279">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144279" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144279/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Fix 2: Check If Shorts Is Available in Your Country
 
 Now, YouTube Shorts is available globally, but there was a phase when YouTube Shorts was a beta feature. It was only available in India and the US, which could be why you could not view Shorts in the YouTube app.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115946/19272" target="_top" id="2115946">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115946" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2037319/7443" target="_top" id="2037319">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037319" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115946/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037319/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Fix 3: YouTube Shorts Is Mobile-only
@@ -153,6 +146,13 @@ We recommend Wondershare Filmora because it is a production and post-production 
 
 [![Download Filmora Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2094422/7443" target="_top" id="2094422">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094422" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094422/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Moreover, a YouTube Shorts video can be made through Wondershare Filmora using the below-mentioned guide.
 
 **Note:** We are assuming that you have already recorded a vertical video using your smartphone and that it has been transferred to your PC.
@@ -178,10 +178,10 @@ You can choose among three ways to open the Auto Reframe feature in Filmora.
 ![filmora](https://images.wondershare.com/filmora/guide/2-auto-reframe-timeline.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135398/19272" target="_top" id="2135398">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135398" border="0" alt="https://techidaily.com" width="250" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2130875/7443" target="_top" id="2130875">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130875" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135398/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130875/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 * **Way 3:** Lastly, you can choose the **Tools** option on the top menu bar and hit the **Auto Reframe**.
@@ -196,21 +196,28 @@ There are multiple aspect ratio templates available such as square (1:1), vertic
 
 ![filmora](https://images.wondershare.com/filmora/guide/4-select-reframing-aspect-ratio.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2049364/7443" target="_top" id="2049364">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049364" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049364/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 You can adjust the speed of your video in multiple options: keep it at **Auto** or make it **Slow** or **Fast** as per your requirements.
 
 ![filmora](https://images.wondershare.com/filmora/guide/5-select-motion-speed.jpg)
 
 <!-- affiliate ads begin -->
-<span id="1983551">
+<span id="1983584">
 					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983551.png"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983584.png"
            onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983551">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983551.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983584">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983584.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
 	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983551%2F22993'), '_blank');void(0);">Click here</a></div>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983584%2F22993'), '_blank');void(0);">Click here</a></div>
 </span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983551/22993" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983584/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 **Step 3\. Analyze, and Auto Reframe the Video**
@@ -230,20 +237,6 @@ Lastly, you can preview your final video. If the video needs more work, you can 
 Finally, after all the final adjustments, you can hit the **Export** tab, name your file and choose the destination folder.
 
 ![filmora](https://images.wondershare.com/filmora/guide/9-export-reframed-video.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/977686/11832" target="_top" id="977686">
-  <img src="//a.impactradius-go.com/display-ad/11832-977686" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/977686/11832" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1884021/19272" target="_top" id="1884021">
-  <img src="//a.impactradius-go.com/display-ad/19272-1884021" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1884021/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Part 3: FAQs about YouTube Shorts
 
@@ -285,6 +278,13 @@ However, we've mainly defined the editing part of Wondershare Filmora except cre
 
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2148649/16836" target="_top" id="2148649">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148649" border="0" alt="https://techidaily.com" width="720" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148649/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Liza Brown
 
 Liza Brown is a writer and a lover of all things video.
@@ -306,15 +306,22 @@ Follow @Liza Brown
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-10-steps-to-perfect-youtube-reactions-a-trio-guide/"><u>[New] 2024 Approved 10 Steps to Perfect YouTube Reactions – A Trio Guide</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/024-approved-enhancing-watchability-adding-time-stamps-to-youtube-videos/"><u>[New] 2024 Approved Enhancing Watchability Adding Time Stamps to YouTube Videos</u></a></li>
-<li><a href="https://fox-info.techidaily.com/new-2024-approved-epic-game-viewing-venues-the-top-nine/"><u>[New] 2024 Approved Epic Game Viewing Venues The Top Nine</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/024-approved-learn-youtube-live-streaming-with-easy-obs-guide/"><u>[New] 2024 Approved Learn YouTube Live Streaming with Easy OBS Guide</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/024-approved-optimize-video-sharing-preferences-on-youtube/"><u>[New] 2024 Approved Optimize Video Sharing Preferences on YouTube</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/new-in-2024-navigating-the-soundscape-downloading-and-instaling-vrecorder/"><u>[New] In 2024, Navigating the Soundscape Downloading and Instaling VRecorder</u></a></li>
-<li><a href="https://some-skills.techidaily.com/2024-approved-the-basics-of-electronic-story-craftsmanship/"><u>2024 Approved The Basics of Electronic Story Craftsmanship</u></a></li>
-<li><a href="https://common-error.techidaily.com/effective-fixes-for-when-an-aoc-monitor-wont-turn-on-in-windows-11-environment/"><u>Effective Fixes for When an AOC Monitor Won’t Turn On in Windows 11 Environment</u></a></li>
-<li><a href="https://fox-info.techidaily.com/immersive-sound-listening-on-the-go-with-iphone-for-2024/"><u>Immersive Sound Listening on the Go With iPhone for 2024</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/-youtube-rankers-for-content-optimization-revealed-for-2024/"><u>Top 8 YouTube Rankers for Content Optimization Revealed for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/024-approved-top-audiovisual-enhancements-for-video-producers/"><u>[New] 2024 Approved Top Audiovisual Enhancements for Video Producers</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/024-approved-unleashing-potential-youtubes-techniques-for-stellar-videos/"><u>[New] 2024 Approved Unleashing Potential YouTube's Techniques for Stellar Videos</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/024-approved-virtual-vanguard-10-most-liked-youtubers/"><u>[New] 2024 Approved Virtual Vanguard 10 Most Liked YouTubers</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/024-approved-youtube-kiddie-corner-10-year-old-ryan-hits-millionaire-mark/"><u>[New] 2024 Approved YouTube Kiddie Corner 10-Year-Old Ryan Hits Millionaire Mark</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/024-approved-youtube-monetization-carryminati-ajey-nagar-youtube-income-2023/"><u>[New] 2024 Approved YouTube Monetization CarryMinati (Ajey Nagar) YouTube Income 2023</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/new-navigating-legal-boundaries-in-whatsapp-call-recordings/"><u>[New] Navigating Legal Boundaries in WhatsApp Call Recordings</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/updated-2024-approved-prime-selection-the-best-12-pc-games-for-click-enthusiasts/"><u>[Updated] 2024 Approved Prime Selection The Best 12 PC Games for Click Enthusiasts</u></a></li>
+<li><a href="https://article-files.techidaily.com/updated-2024-approved-visionary-verdicts-expert-picks-for-the-top-10-cameras/"><u>[Updated] 2024 Approved Visionary Verdicts Expert Picks for the Top 10 Cameras</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-boosting-buzz-and-views-masterful-strategies-for-youtube-success-for-2024/"><u>[Updated] Boosting Buzz & Views Masterful Strategies for YouTube Success for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-in-2024-making-yt-thumbnails-pop-a-mac-centric-approach/"><u>[Updated] In 2024, Making YT Thumbnails Pop A Mac-Centric Approach</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/updated-the-best-of-both-worlds-screenflow-for-mac-creatives-reviewed-for-2024/"><u>[Updated] The Best of Both Worlds ScreenFlow for Mac Creatives Reviewed for 2024</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/9-best-phone-monitoring-apps-for-infinix-smart-8-hd-drfone-by-drfone-virtual-android/"><u>9 Best Phone Monitoring Apps for Infinix Smart 8 HD | Dr.fone</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/24-affluent-streaming-stars/"><u>In 2024, Affluent Streaming Stars</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/24-charting-growth-the-best-online-stock-yts/"><u>In 2024, Charting Growth The Best Online Stock YTs</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/24-content-creation-crossroads-igtv-vs-youtube-which-one-fits-best/"><u>In 2024, Content Creation Crossroads IGTV Vs. YouTube - Which One Fits Best?</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/things-you-should-know-when-unlocking-total-wireless-of-apple-iphone-7-by-drfone-ios/"><u>Things You Should Know When Unlocking Total Wireless Of Apple iPhone 7</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/ways-to-switch-off-windows-10s-built-in-speaker-amplification-settings/"><u>Ways to Switch Off Windows 10'S Built-In Speaker Amplification Settings</u></a></li>
 </ul></div>
 

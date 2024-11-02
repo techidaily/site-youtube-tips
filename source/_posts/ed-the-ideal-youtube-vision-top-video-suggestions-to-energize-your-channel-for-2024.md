@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] The Ideal YouTube Vision  Top Video Suggestions to Energize Your Channel for 2024\""
-date: 2024-10-23T00:54:17.774Z
-updated: 2024-10-26T16:09:40.882Z
+date: 2024-10-31T23:17:42.742Z
+updated: 2024-11-01T19:03:17.546Z
 tags:
   - ai video
   - ai youtube
@@ -53,13 +53,6 @@ Before we go deeper into the search to find you the best topics for YouTube, let
 
 As you can see, coming up with ideas doesn’t have to be an agonizing drag. It’s all about flexing your creativity muscle and we are here to help you do it. Are you ready to be inspired? Great! Let’s begin this list:
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2111964/7443" target="_top" id="2111964">
-  <img src="//a.impactradius-go.com/display-ad/7443-2111964" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111964/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **2\. Showcase Who You Are**
 
 **Talk About Yourself:** Introduce yourself to the world. You can answer 10 of the most common ice breaker questions you get at social gatherings: “Who are you?” “What do you do for a living?” “What are your hobbies?” In this video, you get to decide how you want to showcase yourself to your audience.
@@ -82,6 +75,13 @@ As you can see, coming up with ideas doesn’t have to be an agonizing drag. It�
 
 **Show and Tell:** Like the elementary school exercise, show and tell is a terrific way to show off something interesting you have and talk about the significance of it. An old childhood toy, a new gadget, a gift from a friend: every item has a story, show and tell it.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135396/19272" target="_top" id="2135396">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135396" border="0" alt="https://techidaily.com" width="160" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135396/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **3\. Challenge Yourself**
 
 **Leave Your Comfort Zone:** Do something that you didn’t think you can do and film it. It might end up being a [Fail](#Fail), but that is how you learn. Learn a new language and talk to a native speaker. Go bungee jumping. Offer free hugs in public. Do something that makes your heart beat faster everyday and film it.
@@ -91,13 +91,6 @@ As you can see, coming up with ideas doesn’t have to be an agonizing drag. It�
  **30 Day Challenge:** Usually a 30-day challenge is associated with partaking in a healthy activity such as exercise or giving up a bad habit. But all that has been done, why not challenge yourself to do something different? Cook all your meals for 30 days. Take a different route to work every day for 30 days. Have a 10-minute long conversation with someone new for 30 days.
 
 **Speed Round:** You think you are good at something? Well, why not try to do it as quickly as possible? Complete a round of video games as quickly as you can. Do a MasterChef mystery box challenge in your kitchen. [Run from one subway station to the next](https://www.youtube.com/watch?v=PH%5FZ8Ghuq6E), beating the tube itself.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1902319/19272" target="_top" id="1902319">
-  <img src="//a.impactradius-go.com/display-ad/19272-1902319" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902319/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **4\. Show Your Talent**
 
@@ -116,6 +109,13 @@ As you can see, coming up with ideas doesn’t have to be an agonizing drag. It�
 **Travel:** Go on a trip and bring your camera with you. Create drama by documenting all the things that didn’t go as planned… and any memorable trip will have hiccups along the way. Discover things along the way and vocalize your thoughts through the trip.
 
 **Discuss Current Events:** As the environmental climate, there is also a social and political climate. Address the current state of events in your city. Are there plans to build new infrastructure? Is there a social injustice that the public should know about? You can discuss international affairs, national politics, or keep it local to start.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2087394/7443" target="_top" id="2087394">
+  <img src="//a.impactradius-go.com/display-ad/7443-2087394" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087394/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **6\. Be An Educator**
 
@@ -153,6 +153,13 @@ As you can see, coming up with ideas doesn’t have to be an agonizing drag. It�
 
 **Unboxing:** Got something new from Amazon? Before you open it, turn on your camera. Unboxing is an easy YouTube video idea that allows your viewers who are considering buying the item to better understand whether it is in fact the right purchase for them.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144285/7443" target="_top" id="2144285">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144285" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144285/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **8\. Nurture Your Curiosity**
 
 **Build Something:** IKEA furniture, a website, a LEGO miniature, a business plan. The best way to get better at something is to just do it. Use your hands and build something and capture it for YouTube.
@@ -181,13 +188,6 @@ As you can see, coming up with ideas doesn’t have to be an agonizing drag. It�
 **Fun Facts:** Grab a deck of questions from Trivial Pursuit and pick a fun fact to explore. Use it as a jumping-off point for exploring an interesting topic. Share it with viewers who might not have known that they were interested in this fact.
 
 **Timeline of a Topic:** Pick any topic and trace the lineage and better understand how it has gotten to this point. Where did it begin, has it hit critical mass, and how has it evolved over the years?
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2094429/7443" target="_top" id="2094429">
-  <img src="//a.impactradius-go.com/display-ad/7443-2094429" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094429/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **9\. Be a Fan and a Critic**
 
@@ -244,10 +244,10 @@ I bet you are bursting and ready to create your next video. Onwards! Remember, w
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082529/7443" target="_top" id="2082529">
-  <img src="//a.impactradius-go.com/display-ad/7443-2082529" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1886048/19272" target="_top" id="1886048">
+  <img src="//a.impactradius-go.com/display-ad/19272-1886048" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082529/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886048/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -271,24 +271,17 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-tips.techidaily.com/024-approved-best-3d-software-for-dynamic-youtube-intros/"><u>[New] 2024 Approved Best 3D Software for Dynamic YouTube Intros</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/024-approved-harnessing-ambiance-with-thoughtful-lighting/"><u>[New] 2024 Approved Harnessing Ambiance with Thoughtful Lighting</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/024-approved-preeminent-zero-price-stock-image-sites/"><u>[New] 2024 Approved Preeminent Zero-Price Stock Image Sites</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/024-approved-revealing-youtubes-showcase-of-notable-user-comments/"><u>[New] 2024 Approved Revealing YouTube's Showcase of Notable User Comments</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/024-approved-scouting-grounds-websites-for-finding-sponsorships-in-videography/"><u>[New] 2024 Approved Scouting Grounds Websites for Finding Sponsorships in Videography</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/new-2024-approved-tall-screen-editing-made-easy-using-fcpx-on-instagram/"><u>[New] 2024 Approved Tall Screen Editing Made Easy Using FCPX on Instagram</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/024-approved-the-pinnacle-of-amusement-select-15-laughing-out-loud-channels/"><u>[New] 2024 Approved The Pinnacle of Amusement Select 15 Laughing-Out-Loud Channels</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/024-approved-the-top-live-streaming-tech-software-and-hardware-for-youtube-enthusiasts/"><u>[New] 2024 Approved The Top Live Streaming Tech Software & Hardware for YouTube Enthusiasts</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/-ultimate-free-online-editors-for-content-creators/"><u>[New] 9 Ultimate Free Online Editors for Content Creators</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ssembling-channel-summaries-that-attract/"><u>[New] Assembling Channel Summaries That Attract</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/he-fundamentals-of-navigating-youtube-regulations/"><u>[New] The Fundamentals of Navigating YouTube Regulations</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/fixing-mic-issues-solutions-when-your-microphone-fails-in-windows-11/"><u>Fixing Mic Issues: Solutions When Your Microphone Fails in Windows 11</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/in-2024-bypassing-google-account-with-vnrom-bypass-for-honor-magic-5-pro-by-drfone-android/"><u>In 2024, Bypassing Google Account With vnROM Bypass For Honor Magic 5 Pro</u></a></li>
-<li><a href="https://extra-information.techidaily.com/perfect-your-pictures-focus-and-soft-edges-quickly/"><u>Perfect Your Picture's Focus & Soft Edges Quickly</u></a></li>
-<li><a href="https://discover-fantastic.techidaily.com/seamless-photo-migration-transitioning-images-from-your-previous-iphone-to-the-latest-model/"><u>Seamless Photo Migration: Transitioning Images From Your Previous iPhone to the Latest Model</u></a></li>
-<li><a href="https://fox-info.techidaily.com/stabilized-snapshots-best-tripods-for-iphonesandroids-for-2024/"><u>Stabilized Snapshots Best Tripods for iPhones/Androids for 2024</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/top-10-highly-rated-torrent-websites-global-ranking-and-insights/"><u>Top 10 Highly-Rated Torrent Websites: Global Ranking and Insights</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/-video-enhancement-cameras-to-skyrocket-your-blogging-for-2024/"><u>Top 7 Video Enhancement Cameras To Skyrocket Your Blogging for 2024</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/ultimate-fb-media-downloader-plus-firefox-enhancements-for-2024/"><u>Ultimate FB Media Downloader + Firefox Enhancements for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-mastering-tv-broadcasts-repeating-youtube-videos-effortlessly/"><u>[New] In 2024, Mastering TV Broadcasts Repeating YouTube Videos Effortlessly</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/wift-valorant-image-crafting-professionally-done-on-the-fly/"><u>[New] Swift Valorant Image Crafting Professionally Done on the Fly</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/new-the-future-of-3d-color-grading-tools/"><u>[New] The Future of 3D Color Grading Tools</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-in-2024-pursuing-popularity-on-platforms-elevating-your-youtube-profile/"><u>[Updated] In 2024, Pursuing Popularity on Platforms Elevating Your Youtube Profile</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-insiders-choice-selecting-the-superior-screen-recorder-for-2024/"><u>[Updated] Insider’s Choice Selecting the Superior Screen Recorder for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-maximizing-impact-strategies-for-overcoming-video-short-snags-for-2024/"><u>[Updated] Maximizing Impact Strategies for Overcoming Video Short Snags for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/approved-wealthy-web-showrunners/"><u>2024 Approved Wealthy Web Showrunners</u></a></li>
+<li><a href="https://discover-community.techidaily.com/best-no-cost-4k-media-apps-top-10-picks-for-windows-macos-and-more/"><u>Best No-Cost 4K Media Apps: Top 10 Picks for Windows, macOS & More</u></a></li>
+<li><a href="https://ai-video-tools.techidaily.com/new-2024-approved-top-10plus-best-free-online-video-editors-for-video-editing-online/"><u>New 2024 Approved Top 10+ Best Free Online Video Editors for Video Editing Online</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/personalizing-photos-on-insta-the-watermark-process-for-2024/"><u>Personalizing Photos on Insta The Watermark Process for 2024</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/reliable-user-guide-to-fix-nokia-c12-running-slow-and-freezing-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Reliable User Guide to Fix Nokia C12 Running Slow and Freezing | Dr.fone</u></a></li>
+<li><a href="https://ai-video-tools.techidaily.com/the-following-are-the-top-10-media-players-with-the-slow-motion-feature-to-give-an-astonishing-experience-to-you-while-you-are-viewing-your-most-loved-video/"><u>The Following Are the Top 10 Media Players with the Slow Motion Feature to Give an Astonishing Experience to You While You Are Viewing Your Most Loved Video for 2024</u></a></li>
 </ul></div>
 

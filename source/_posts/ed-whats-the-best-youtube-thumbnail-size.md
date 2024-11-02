@@ -1,7 +1,7 @@
 ---
 title: "[Updated] What's the Best YouTube Thumbnail Size?"
-date: 2024-09-11T08:12:31.324Z
-updated: 2024-09-12T08:12:31.324Z
+date: 2024-10-30T02:48:03.060Z
+updated: 2024-11-01T19:07:06.041Z
 tags:
   - ai video
   - ai youtube
@@ -37,19 +37,6 @@ Making better YouTube thumbnails will help you get more views, and knowing the b
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-<!-- affiliate ads begin -->
-<span id="1977004">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1977004.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1977004">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977004.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977004%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977004/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **1\. What's the ideal YouTube thumbnail Size and Dimension?**
 
 An essential thing that every YouTube video developer needs to know is about the selection of the right side of the thumbnail for any video. As per the guidelines circulated by Google itself, the most appropriate size for the thumbnail image is 1280x720 pixels, where the recommended minimal pixel width is 640 pixels. Generally, the 16:9 ratio is considered as an ideal choice for Most of YouTube previews and players.
@@ -61,10 +48,10 @@ Here is one interesting thing that you need to know; the thumbnail of videos app
 [ How to Download YouTube Thumbnail in 3 Ways \[Online/Win/Mac\] >>](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135409/19272" target="_top" id="2135409">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135409" border="0" alt="https://techidaily.com" width="125" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2144288/7443" target="_top" id="2144288">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144288" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135409/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144288/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **2\. Tips for Perfect Thumbnails**
@@ -90,16 +77,10 @@ Window users are advised to access Windows Key with Print Screen option to get t
 Once you are ready with your video specific still image, then simply get it uploaded on YouTube using the edit video page.
 
 <!-- affiliate ads begin -->
-<span id="1484963">
-					<video width="864" height="864" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1484963.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1484963">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1484963.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1484963%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1484963/16446" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aidotcom.pxf.io/c/5597632/2134500/19576" target="_top" id="2134500">
+  <img src="//a.impactradius-go.com/display-ad/19576-2134500" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134500/19576" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## 3\. Making Better Thumbnails for YouTube
@@ -133,19 +114,19 @@ If you want to find a video editing solution that empowers your imagination and 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://download.wondershare.com/filmora9-mac%5Ffull718.zip)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130870/7443" target="_top" id="2130870">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130870" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2087485/7443" target="_top" id="2087485">
+  <img src="//a.impactradius-go.com/display-ad/7443-2087485" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130870/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087485/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134238/18498" target="_top" id="2134238">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134238" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2043618/7443" target="_top" id="2043618">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043618" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134238/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043618/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -167,5 +148,20 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://twitter-videos.techidaily.com/new-effortless-media-transfer-twitter-videos-on-whatsapp/"><u>[New] Effortless Media Transfer Twitter Videos on WhatsApp</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/new-identifying-ideal-release-moments-for-podcasts-for-2024/"><u>[New] Identifying Ideal Release Moments for Podcasts for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/nsta-popularity-on-youtube-jake-pauls-story-unfolded/"><u>[New] Insta-Popularity on Youtube Jake Paul’s Story Unfolded</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/vercoming-virtual-negativity-a-content-makers-guide/"><u>[New] Overcoming Virtual Negativity A Content Maker's Guide</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-premium-designers-stellar-instagram-hlv-page-builders-for-2024/"><u>[New] Premium Designers Stellar Instagram HLV Page Builders for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-premier-select-affordable-youtube-sbs-extraction/"><u>[Updated] Premier Select Affordable YouTube SBS Extraction</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-youtubes-financial-frontier-maximizing-your-content-revenue/"><u>[Updated] YouTube's Financial Frontier Maximizing Your Content Revenue</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/buffer-free-viewing-permanent-solution-to-kodis-playback-problem/"><u>Buffer-Free Viewing: Permanent Solution to Kodi's Playback Problem</u></a></li>
+<li><a href="https://extra-information.techidaily.com/crafting-characters-the-art-of-3d-text-design/"><u>Crafting Characters The Art of 3D Text Design</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/iphoneipad-zoom-controls-unveiled-enhance-your-screen-experience/"><u>IPhone/iPad Zoom Controls Unveiled: Enhance Your Screen Experience</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/maximizing-efficiency-discover-the-leading-speech-to-text-apps-for-macos/"><u>Maximizing Efficiency Discover the Leading Speech-to-Text Apps for MacOS</u></a></li>
+<li><a href="https://techidaily.com/unlock-android-phone-if-you-don-t-have-motorola-razr-40-ultra-fingerprint-by-drfone-android-unlock-android-unlock/"><u>Unlock android phone if you don't have Motorola Razr 40 Ultra fingerprint</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/what-is-a-sim-network-unlock-pin-get-your-samsung-phone-network-ready-by-drfone-android/"><u>What Is a SIM Network Unlock PIN? Get Your Samsung Phone Network-Ready</u></a></li>
+</ul></div>
 

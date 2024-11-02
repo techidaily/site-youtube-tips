@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Leveraging Google Trends Data for Idea Genesis in Videography"
-date: 2024-10-22T05:32:21.079Z
-updated: 2024-10-27T11:03:20.841Z
+date: 2024-10-29T20:18:43.910Z
+updated: 2024-11-02T07:11:57.399Z
 tags:
   - ai video
   - ai youtube
@@ -61,13 +61,6 @@ On top you will see two drop-down menus, one is for the category and one is for 
 
 ![Google Trends Video Ideas](https://images.wondershare.com/filmora/article-images/google-trends-video-ideas.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135415/19272" target="_top" id="2135415">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135415" border="0" alt="https://techidaily.com" width="320" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135415/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Under **All categories** select the general theme your channel falls under.
 
 Your options are business, entertainment, health, Sci/Tech, sports, and top stories.
@@ -102,16 +95,22 @@ What happens after you click **enter** is pretty much magic. Say I want to make 
 
 ![Google Trends YouTube Video Keywords](https://images.wondershare.com/filmora/article-images/google-trends-search-term.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135393/19272" target="_top" id="2135393">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135393" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135393/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 You can see near the top that this chart represents searches for the topic over the last 5 years, which isn’t necessarily useful (although it is sort of cool that you can see when Filmora was ‘born’). I’m going to narrow that down to results from the U.S in the last week.
 
 ![Google Trends YouTube Video Ideas Filmora](https://images.wondershare.com/filmora/article-images/google-trends-search-term-time-range.jpg)
+
+<!-- affiliate ads begin -->
+<span id="1975503">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1975503.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1975503">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975503.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975503%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975503/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 There, now I can see how the popularity of Filmora as a search term has spiked on specific days and times (if you hover over a spike it tells you the time and day) and plan to post my video at a time that capitalizes on these trends.
 
@@ -120,10 +119,10 @@ Next, what other words do I want to include in my video title? Is this a review,
 ![Google Trends Filmora Keywords](https://images.wondershare.com/filmora/article-images/google-trends-search-term-comparison.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2105863/7443" target="_top" id="2105863">
-  <img src="//a.impactradius-go.com/display-ad/7443-2105863" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://malaysia-healthcare-travel-council.pxf.io/c/5597632/1576474/17382" target="_top" id="1576474">
+  <img src="//a.impactradius-go.com/display-ad/17382-1576474" border="0" alt="https://techidaily.com" width="160" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105863/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://malaysia-healthcare-travel-council.pxf.io/i/5597632/1576474/17382" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 _I also ‘zoomed out’ to 90 days – if I’d only looked at how they compared over the last week my results could have been skewed._
@@ -135,10 +134,16 @@ Although, when you do a comparison like this you should also go to YouTube and s
 ![YouTube search Filmora Keyword](https://images.wondershare.com/filmora/article-images/google-trends-youtube-keyword-search.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2044583/7443" target="_top" id="2044583">
-  <img src="//a.impactradius-go.com/display-ad/7443-2044583" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2044583/7443" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1492813">
+					<video width="1024" height="576" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1492813.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/14559-1492813">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1492813.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:640px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fpropmoneyinc.pxf.io%2Fc%2F5597632%2F1492813%2F14559'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1492813/14559" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 _If my view of YouTube looks different from yours it’s because I’m using the [VidIQ plugin for Chrome](https://chrome.google.com/webstore/detail/vidiq-vision-for-youtube/pachckjkecffpdphbpmfolblodfkgbhl?hl=en). It’s free and it gives you all kinds of extra info about videos and channels._
@@ -156,6 +161,19 @@ Want to make coming up with YouTube video ideas a habit? [This post here](https:
 As one of the most widely used video editing software among YouTubers, Filmora provides plentiful editing tools, such as cut, trim, [video stabilization](https://tools.techidaily.com/wondershare/filmora/download/), [noise removal](https://tools.techidaily.com/wondershare/filmora/download/), [chroma key compositing](https://tools.techidaily.com/wondershare/filmora/download/), and color grading. Besides, there are royalty-free music track and sound effects available in the built-in Audio library, and title templates and presets, as well as elements and effects. Download the free trial version below and get started now.
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
+
+<!-- affiliate ads begin -->
+<span id="1770544">
+					<video width="240" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1770544.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/20702-1770544">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1770544.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftokenmetrics.sjv.io%2Fc%2F5597632%2F1770544%2F20702'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1770544/20702" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
@@ -180,20 +198,15 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-tips.techidaily.com/024-approved-leading-audio-visual-artists-collaborating-photos/"><u>[New] 2024 Approved Leading Audio-Visual Artists Collaborating Photos</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/024-approved-mastering-youtube-the-ultimate-guide-to-earning/"><u>[New] 2024 Approved Mastering YouTube The Ultimate Guide to Earning</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/024-approved-navigating-netflix-and-youtubers-how-jake-paul-succeeded/"><u>[New] 2024 Approved Navigating Netflix & YouTubers How Jake Paul Succeeded</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/024-approved-quick-overview-of-colour-difference-filming/"><u>[New] 2024 Approved Quick Overview of Colour Difference Filming</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/024-approved-social-media-live-services-showdown-facebook-vs-youtube-vs-twitter-spaces/"><u>[New] 2024 Approved Social Media Live Services Showdown Facebook Vs. YouTube Vs. Twitter Spaces</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/024-approved-the-numbers-game-estimating-income-from-viral-content/"><u>[New] 2024 Approved The Numbers Game Estimating Income From Viral Content</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/new-in-2024-cleanest-recording-app-ad-aware-edition/"><u>[New] In 2024, Cleanest Recording App - Ad-Aware Edition</u></a></li>
-<li><a href="https://facebook-video-files.techidaily.com/updated-in-2024-reach-broader-audiences-link-your-twitch-live-streams-to-facebook/"><u>[Updated] In 2024, Reach Broader Audiences Link Your Twitch Live Streams to Facebook</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-in-2024-voice-versus-video-making-the-right-media-selection/"><u>[Updated] In 2024, Voice Versus Video Making the Right Media Selection</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/facebook-video-wonders-your-must-see-list/"><u>Facebook Video Wonders - Your Must-See List</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/gratitude-archive-complete-collection-freepaid/"><u>Gratitude Archive Complete Collection (Free/Paid)</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/how-to-transfer-data-from-oppo-a78-5g-to-any-ios-devices-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Data from Oppo A78 5G to Any iOS Devices | Dr.fone</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-ways-to-trade-pokemon-go-from-far-away-on-sony-xperia-5-v-drfone-by-drfone-virtual-android/"><u>In 2024, Ways to trade pokemon go from far away On Sony Xperia 5 V? | Dr.fone</u></a></li>
-<li><a href="https://win-able.techidaily.com/stabilizing-your-gameplay-overcoming-pc-collapses-in-formula-one-2021/"><u>Stabilizing Your Gameplay: Overcoming PC Collapses in Formula One 2021</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/-towards-joining-filmoras-certified-creative-circle-for-2024/"><u>Steps Towards Joining Filmora's Certified Creative Circle for 2024</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-snapchat-speed-control-a-detailed-walkthrough/"><u>[New] Snapchat Speed Control A Detailed Walkthrough</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/new-the-ultimate-roundup-best-budget-friendly-virtual-calls/"><u>[New] The Ultimate Roundup Best Budget-Friendly Virtual Calls</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-yuneec-typhoon-h-review/"><u>[New] Yuneec Typhoon H Review</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-2024-approved-accessibility-achieved-the-simple-setup-of-ifunny-app/"><u>[Updated] 2024 Approved Accessibility Achieved The Simple Setup of iFunny App</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-2024-approved-directed-focus-youtubes-easy-ways-for-smoother-borders/"><u>[Updated] 2024 Approved Directed Focus YouTube's Easy Ways for Smoother Borders</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-in-2024-brevity-in-action-the-process-of-shortening-youtube-videos/"><u>[Updated] In 2024, Brevity in Action The Process of Shortening YouTube Videos</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-the-backlink-journey-paving-a-path-to-youtube-success-for-2024/"><u>[Updated] The Backlink Journey Paving a Path to YouTube Success for 2024</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/in-2024-3-effective-ways-to-bypass-activation-lock-on-apple-iphone-13-mini-by-drfone-ios/"><u>In 2024, 3 Effective Ways to Bypass Activation Lock on Apple iPhone 13 mini</u></a></li>
+<li><a href="https://discover-great.techidaily.com/mastering-telegram-call-recording-a-comprehensive-guide-for-cross-device-setup/"><u>Mastering Telegram Call Recording: A Comprehensive Guide for Cross-Device Setup</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/m-at-peak-performance-best-gpu-selection-guide-for-2024/"><u>Stream at Peak Performance Best GPU Selection Guide for 2024</u></a></li>
 </ul></div>
 

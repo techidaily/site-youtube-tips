@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Breakdown of Earnings  How Much Does a Clicky Make?\""
-date: 2024-09-11T08:06:45.123Z
-updated: 2024-09-12T08:06:45.123Z
+date: 2024-10-25T20:02:06.028Z
+updated: 2024-11-02T05:11:09.185Z
 tags:
   - ai video
   - ai youtube
@@ -44,13 +44,6 @@ Want a fast answer about how much money a YouTuber makes? [Check out these calcu
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118322/7443" target="_top" id="2118322">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118322" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118322/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Types of YouTube Ads – What is an Ad Impression?
 
 If you ask YouTubers about how much they make per thousand views, you'll probably get a different answer depending on the person on who you ask. You may have already heard things like $5 per thousand views or $1,000 per 1 million views, but neither of these is for sure.
@@ -58,13 +51,6 @@ If you ask YouTubers about how much they make per thousand views, you'll probabl
 Google’s AdSense service, through which YouTubers make money, pays YouTubers for ad impressions. For most types of ads – including short pre-roll ads, the ads which appear at the bottoms of videos while they play, and the ads which appear as banners to the side of YouTube’s player – an ad impression means someone clicking on the ad and choosing to visit the advertiser’s site. One exception is skippable video ads, for which an impression is created when a viewer watches the ad for 30 seconds.
 
 YouTubers do not make money on the views of their videos, because not all viewers click on ads. Many viewers bypass ads completely using ad-blockers. The amount of money YouTubers earn from a single ad impression is called their CPI or "cost per impression."
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136624/26400" target="_top" id="2136624">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136624" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136624/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## CPI Rates Explained
 
@@ -87,16 +73,10 @@ How much you make from an ad on YouTube depends on your CPI, cost per impression
 Most people tend to assume that CPI rates are between $0.05 and $10\. This huge difference is justified by YouTube by saying that they use a very complicated algorithm to determine your CPI rate. According to them, it includes evaluating factors like the ads, the type of audience who views your video, audience engagement, audience retention, and the price of the ads.
 
 <!-- affiliate ads begin -->
-<span id="1444782">
-					<video width="1024" height="576" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1444782.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/14559-1444782">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1444782.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:640px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fpropmoneyinc.pxf.io%2Fc%2F5597632%2F1444782%2F14559'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1444782/14559" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2111994/7443" target="_top" id="2111994">
+  <img src="//a.impactradius-go.com/display-ad/7443-2111994" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111994/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## How Much Do Big YouTubers Make?
@@ -112,10 +92,16 @@ According to Google, when an advertiser pays $100 to Google, Google pays $68 to 
 ![How Much Do YouTuber Makes](https://images.wondershare.com/filmora/article-images/how-much-do-youtubers-make.png)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130885/7443" target="_top" id="2130885">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130885" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130885/7443" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1938136">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1938136.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1938136">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1938136.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1938136%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1938136/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 _This graphic won't apply to every situation because every situation is unique. It's just an example using assumed numbers._
@@ -149,10 +135,10 @@ Instead of relying on YouTube to pay them, YouTubers need to seek out other ways
 We all agree that being a YouTube star isn't an easy path. However, if you honestly love what you do, then you will be willing to put effort into making great videos regularly. Part of that is also being willing to take the time to promote them and yourself, as well as putting time and effort into forging a good relationship with your audience.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115910/19272" target="_top" id="2115910">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115910" border="0" alt="https://techidaily.com" width="120" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135412/19272" target="_top" id="2135412">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135412" border="0" alt="https://techidaily.com" width="250" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115910/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135412/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Why No Longer 10,000 Views?
@@ -172,10 +158,10 @@ _Are you finding it difficult to earn money on YouTube? Subscribe to the [Filmor
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135399/19272" target="_top" id="2135399">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135399" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135361/19272" target="_top" id="2135361">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135361" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135399/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135361/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -197,5 +183,21 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-the-sound-sphere-navigating-music-uploads/"><u>[New] In 2024, The Sound Sphere Navigating Music Uploads</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/uperior-asmr-video-curation-for-2024/"><u>[New] Superior ASMR Video Curation for 2024</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/updated-2024-approved-avoiding-mishaps-tips-to-enhance-google-meet-chats/"><u>[Updated] 2024 Approved Avoiding Mishaps Tips to Enhance Google Meet Chats</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/updated-elevate-your-videos-the-essential-guide-to-screencasts-today-for-2024/"><u>[Updated] Elevate Your Videos The Essential Guide to Screencasts Today for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-in-2024-essential-freefire-hashtags-to-skyrocket-video-views-on-youtube/"><u>[Updated] In 2024, Essential FreeFire Hashtags to Skyrocket Video Views on YouTube</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-in-2024-yuneec-typhoon-h-deep-dive-aerial-expert-review/"><u>[Updated] In 2024, Yuneec Typhoon H Deep Dive Aerial Expert Review</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-the-comprehensible-guide-to-selecting-popular-youtube-openings-for-2024/"><u>[Updated] The Comprehensible Guide to Selecting Popular YouTube Openings for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/emier-sci-tech-vloggers-for-enlightened-learning/"><u>15 Premier Sci-Tech Vloggers for Enlightened Learning</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/camera-woes-ended-by-fix-obs/"><u>Camera Woes Ended by Fix - OBS</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/elevate-your-video-presence-with-stellar-intros-in-imovie-for-2024/"><u>Elevate Your Video Presence with Stellar Intros in iMovie for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/24-refine-your-recordings-the-art-of-sound-reduction/"><u>In 2024, Refine Your Recordings The Art of Sound Reduction</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/solving-windows-kernel32dll-file-issues-a-step-by-step-guide/"><u>Solving Windows Kernel32.dll File Issues: A Step-by-Step Guide</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/top-performing-work-tablet-a-non-microsoft-non-lenovo-contender-that-exceeds-expectations-insights-from-a-seasoned-reviewer-zdnet/"><u>Top-Performing Work Tablet: A Non-Microsoft, Non-Lenovo Contender That Exceeds Expectations - Insights From a Seasoned Reviewer | ZDNet</u></a></li>
+<li><a href="https://fake-location.techidaily.com/ultimate-guide-to-free-pptp-vpn-for-beginners-on-xiaomi-redmi-note-13-proplus-5g-drfone-by-drfone-virtual-android/"><u>Ultimate Guide to Free PPTP VPN For Beginners On Xiaomi Redmi Note 13 Pro+ 5G | Dr.fone</u></a></li>
+</ul></div>
 

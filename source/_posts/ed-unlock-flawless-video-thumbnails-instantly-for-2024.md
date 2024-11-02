@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Unlock Flawless Video Thumbnails Instantly for 2024"
-date: 2024-09-11T08:08:16.450Z
-updated: 2024-09-12T08:08:16.450Z
+date: 2024-10-31T18:41:19.924Z
+updated: 2024-11-01T20:16:28.663Z
 tags:
   - ai video
   - ai youtube
@@ -43,62 +43,21 @@ With time, Filmora brings new and advanced features for its users to equip them 
 
 ![ai-portrait-thumbnail-step1](https://images.wondershare.com/filmora/article-images/ai-portrait-thumbnail-step1.png)
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134218/18498" target="_top" id="2134218">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134218" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134218/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 **Step 02:** Make sure that the aspect ratio of your project is 16:9\. To do that, click on a screen-shaped icon below the preview screen and select "Change Project Aspect Ratio."
 
 ![ai-portrait-thumbnail-step2](https://images.wondershare.com/filmora/article-images/ai-portrait-thumbnail-step2.png)
-
-<!-- affiliate ads begin -->
-<span id="1982461">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982461.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982461">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982461.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982461%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982461/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 **Step 03:** Change the Aspect Ratio to 16:9 if it is not set to it already. 16:9 aspect ratio is the standard size of Youtube thumbnails that represents the best possible results.
 
 ![ai-portrait-thumbnail-step3](https://images.wondershare.com/filmora/article-images/ai-portrait-thumbnail-step4.png)
 
-<!-- affiliate ads begin -->
-<a href="https://aidotcom.pxf.io/c/5597632/2129043/19576" target="_top" id="2129043">
-  <img src="//a.impactradius-go.com/display-ad/19576-2129043" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2129043/19576" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 **Step 04:** Choose a background of your choice for your thumbnail. You can choose a background from the sample colors provided by Filmora.
 
 ![ai-portrait-thumbnail-step4](https://images.wondershare.com/filmora/article-images/ai-portrait-thumbnail-step4.png)
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134495/18498" target="_top" id="2134495">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134495" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134495/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 **Step 05:** If you want to use your custom background, you can import it into the Filmora by clicking import or dragging and dropping it in the media section.
 
 ![ai-portrait-thumbnail-step5](https://images.wondershare.com/filmora/article-images/ai-portrait-thumbnail-step5.png)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118324/7443" target="_top" id="2118324">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118324" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118324/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 **Step 06:** Import your video the same way into the media folder of Filmora and drag it into the timeline and place it above your background.
 
@@ -108,23 +67,9 @@ With time, Filmora brings new and advanced features for its users to equip them 
 
 ![ai-portrait-thumbnail-step7](https://images.wondershare.com/filmora/article-images/ai-portrait-thumbnail-step11.png)
 
-<!-- affiliate ads begin -->
-<a href="https://aidotcom.pxf.io/c/5597632/2134502/19576" target="_top" id="2134502">
-  <img src="//a.impactradius-go.com/display-ad/19576-2134502" border="0" alt="https://techidaily.com" width="672" height="90"/>
-</a>
-<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134502/19576" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 **Step 08:** Double click on any of these effects to see how they will look like on your footage.
 
 ![ai-portrait-thumbnail-step8](https://images.wondershare.com/filmora/article-images/ai-portrait-thumbnail-step8.png)
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136618/26400" target="_top" id="2136618">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136618" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136618/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 **Step 09:** To make a thumbnail for your Youtube, we have to remove the background of your footage first. To do that we have to apply Human Segmentation to the footage first. It will separate the human from the footage. Drag and drop the Human Segmentation effect into the footage in the timeline. Once you drop it into the footage, it will ask you to purchase this feature to export the footage. Since we are not trying to export the footage, we are only creating a thumbnail, click on "Try It". Once the background is removed, you can add other effects as well. Drag and drop the "Human Border" into the footage. It creates an outline around the human in your footage.
 
@@ -171,5 +116,29 @@ Follow @Shanoon Cox
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-video-capture.techidaily.com/new-2024-approved-critical-review-best-bargain-video-call-apps-ios-and-android/"><u>[New] 2024 Approved Critical Review Best Bargain Video Call Apps - iOS & Android</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-enrich-viewers-experience-a-comprehensive-guide-to-youtube-end-screens/"><u>[New] In 2024, Enrich Viewers' Experience A Comprehensive Guide to Youtube End Screens</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ocial-media-marketing-get-more-viewers-with-youtube-for-2024/"><u>[New] Social Media Marketing Get More Viewers with YouTube for 2024</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-the-prime-camera-choices-revealing-the-best/"><u>[New] The Prime Camera Choices – Revealing the Best</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-in-2024-subtitled-uninterrupted-access-to-9-festive-holiday-movies-free/"><u>[Updated] In 2024, Subtitled, Uninterrupted Access to 9 Festive Holiday Movies - Free</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-subscriber-led-achievement-awards-in-content-space/"><u>[Updated] Subscriber-Led Achievement Awards in Content Space</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-the-ultimate-guide-to-cost-effective-video-cameras-for-2024/"><u>[Updated] The Ultimate Guide to Cost-Effective Video Cameras for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-unlinking-from-youtube-shorts-easy-and-permanent/"><u>[Updated] Unlinking From YouTube Shorts - Easy and Permanent</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/approved-the-artisans-guide-to-blending-sound-with-visual-media-on-youtube/"><u>2024 Approved The Artisan's Guide to Blending Sound with Visual Media on YouTube</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/tial-insights-into-youtube-live-image-crafting-for-2024/"><u>Essential Insights Into YouTube Live Image Crafting for 2024</u></a></li>
+<li><a href="https://win11.techidaily.com/excelling-at-classics-optimal-play-via-scummvm-in-full-hd-windows-environments/"><u>Excelling at Classics: Optimal Play via ScummVM in Full HD Windows Environments</u></a></li>
+<li><a href="https://discover-exclusive.techidaily.com/free-psp-dvd-ripper-effortless-conversion-from-dvd-to-playstation-portable/"><u>Free PSP DVD Ripper: Effortless Conversion From DVD to PlayStation Portable</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/loop-techniques-easy-endless-watching-on-television-for-2024/"><u>Tele-Loop Techniques Easy, Endless Watching on Television for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-case-for-extended-timelines-in-implementing-end-to-end-encryption/"><u>The Case for Extended Timelines in Implementing End-to-End Encryption</u></a></li>
+<li><a href="https://win-forum.techidaily.com/winning-the-battle-against-recurrent-windows-explorer-failures-tips-and-tricks/"><u>Winning the Battle Against Recurrent Windows Explorer Failures: Tips & Tricks</u></a></li>
+</ul></div>
 
+<!-- affiliate ads begin -->
+<a href="https://malaysia-healthcare-travel-council.pxf.io/c/5597632/1557746/17382" target="_top" id="1557746">
+  <img src="//a.impactradius-go.com/display-ad/17382-1557746" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://malaysia-healthcare-travel-council.pxf.io/i/5597632/1557746/17382" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
