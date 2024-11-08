@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Pioneering Visual Stunts From the Ground Up"
-date: 2024-10-30T03:29:17.560Z
-updated: 2024-11-01T19:40:16.670Z
+date: 2024-11-02T18:17:38.365Z
+updated: 2024-11-07T23:04:58.311Z
 tags:
   - ai video
   - ai youtube
@@ -56,10 +56,10 @@ In this post, we’re going to kick things up a bit. Here is a list of places wh
 On this YouTube channel, motion graphics specialist Matt offers free animation tutorials using a variety of programs including Adobe After Effects and Cinema 4D. His lessons are for a range of skill levels, from beginner to advanced. If you are just starting out then Mt.Mograph is a great resource.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082538/7443" target="_top" id="2082538">
-  <img src="//a.impactradius-go.com/display-ad/7443-2082538" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://bluettius.sjv.io/c/5597632/2139114/17108" target="_top" id="2139114">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139114" border="0" alt="https://techidaily.com" width="468" height="60"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082538/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139114/17108" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **[Richard Harrington on Lynda](https://www.lynda.com/Rich-Harrington/120-1.html)**
@@ -69,16 +69,10 @@ Lynda isn’t free, but the 10-day free trial period is definitely long enough f
 What’s great about this course is that it assumes you have no animation experience, and it walks you through the main thing a lot of YouTubers want to learn animation for – creating an animated logo.
 
 <!-- affiliate ads begin -->
-<span id="1982508">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982508.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982508">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982508.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982508%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982508/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://unicoeye.pxf.io/c/5597632/2134494/18498" target="_top" id="2134494">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134494" border="0" alt="https://techidaily.com" width="721" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134494/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **[Bloop Animation](https://www.bloopanimation.com/)**
@@ -86,10 +80,10 @@ What’s great about this course is that it assumes you have no animation experi
  Most of the video animation courses on this site are paid, but they have a lot of cool free tutorials as well. The focus is more on animating figures/cartoons than video effects, but if you have any interest in animation more generally then this is a great place to start learning. They even have a free ebook you can download which is targeted at beginners.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123732/7443" target="_top" id="2123732">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123732" border="0" alt="https://techidaily.com" width="600" height="90"/>
+<a href="https://25home.pxf.io/c/5597632/2148636/16836" target="_top" id="2148636">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148636" border="0" alt="https://techidaily.com" width="120" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123732/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148636/16836" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **[Video Copilot](http://www.videocopilot.net/)**
@@ -99,10 +93,10 @@ This site has a huge number of free After Effects tutorials. There are basic int
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2094476/7443" target="_top" id="2094476">
-  <img src="//a.impactradius-go.com/display-ad/7443-2094476" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2111967/7443" target="_top" id="2111967">
+  <img src="//a.impactradius-go.com/display-ad/7443-2111967" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094476/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111967/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -126,22 +120,22 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-recording.techidaily.com/new-2024-approved-accelerate-profits-using-the-top-15-facebook-data-analyzers/"><u>[New] 2024 Approved Accelerate Profits Using the Top 15 Facebook Data Analyzers</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/aptivating-startups-discovering-the-best-15-video-intros-for-2024/"><u>[New] Captivating Startups Discovering the Best 15 Video Intros for 2024</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/n-2024-navigating-to-your-own-custom-arranged-music-library-on-youtube/"><u>[New] In 2024, Navigating to Your Own Custom-Arranged Music Library on Youtube</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/new-in-2024-vegas-pro-21-reviewed-the-new-frontier-in-sports-betting-software/"><u>[New] In 2024, Vegas Pro '21 Reviewed - The New Frontier in Sports Betting Software</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/n-depth-analysis-of-best-youtube-channel-design-practices-for-2024/"><u>[New] In-Depth Analysis of Best YouTube Channel Design Practices for 2024</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-breakdown-of-mr-beasts-financial-powerhouse/"><u>[Updated] Breakdown of Mr. Beast's Financial Powerhouse</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-in-2024-rise-above-the-rest-how-to-swell-your-youtube-base/"><u>[Updated] In 2024, Rise Above the Rest How to Swell Your YouTube Base</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-navigating-video-migration-youtube-to-dailymotion-process/"><u>[Updated] Navigating Video Migration YouTube to Dailymotion Process</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/updated-outstanding-graphic-revisions/"><u>[Updated] Outstanding Graphic Revisions</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-step-by-step-guide-to-unmicrophonic-audio-recording-for-2024/"><u>[Updated] Step-by-Step Guide to Unmicrophonic Audio Recording for 2024</u></a></li>
-<li><a href="https://program-issues.techidaily.com/fix-not-responding-error-how-to-get-valorant-running-on-your-pc-latest-guide/"><u>Fix 'Not Responding' Error: How to Get Valorant Running on Your PC (Latest Guide)</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/how-to-stop-a-mac-from-going-to-sleep/"><u>How to Stop a Mac From Going to Sleep</u></a></li>
-<li><a href="https://change-location.techidaily.com/in-2024-3-ways-to-change-location-on-facebook-marketplace-for-infinix-note-30-pro-drfone-by-drfone-virtual-android/"><u>In 2024, 3 Ways to Change Location on Facebook Marketplace for Infinix Note 30 Pro | Dr.fone</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/24-driving-income-from-views-on-youtube/"><u>In 2024, Driving Income From Views on YouTube</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/y-sharing-uploading-and-publishing-short-videos-online/"><u>Snappy Sharing Uploading and Publishing Short Videos Online</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/the-audio-avenger-your-pathway-to-sound-in-story-posts-for-2024/"><u>The Audio Avenger Your Pathway to Sound in Story Posts for 2024</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ate-buyers-guide-top-gpus-for-youtube-streamers-for-2024/"><u>Ultimate Buyer's Guide Top GPUs for YouTube Streamers for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ity-planning-for-climate-action-a-comprehensive-guide/"><u>[New] City Planning for Climate Action A Comprehensive Guide</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/lite-content-makers-top-paid-online-stars-for-2024/"><u>[New] Elite Content Makers Top Paid Online Stars for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-unlock-creative-expression-mastering-jump-cut-usage/"><u>[New] In 2024, Unlock Creative Expression Mastering Jump Cut Usage</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/rime-5-tools-shake-off-youtube-video-editing-for-2024/"><u>[New] Prime 5 Tools Shake Off Youtube Video Editing for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/treamlining-revenue-with-youtubes-mobile-monetization-features-for-creators-for-2024/"><u>[New] Streamlining Revenue with YouTube's Mobile Monetization Features for Creators for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-2024-approved-creative-edge-essential-afx-templates-without-investment/"><u>[Updated] 2024 Approved Creative Edge Essential AFX Templates Without Investment</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-beginning-a-blogging-journey-profit-from-your-passion/"><u>[Updated] Beginning a Blogging Journey Profit From Your Passion</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-decoding-the-language-of-asmr-videos/"><u>[Updated] Decoding the Language of ASMR Videos</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-in-2024-brief-beatcasts-role-of-the-melody/"><u>[Updated] In 2024, Brief Beatcasts Role of the Melody</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-in-2024-propel-content-to-prominence-leverage-tubebuddys-power/"><u>[Updated] In 2024, Propel Content to Prominence Leverage TubeBuddy's Power</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/2-speeding-up-h265-hevc-encoding-processes-strategies-for-improved-performance-and-efficiency/"><u>2) Speeding Up H.265 Hevc Encoding Processes - Strategies for Improved Performance and Efficiency</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/easy-lenovo-techniques-for-capturing-your-display/"><u>Easy Lenovo Techniques for Capturing Your Display</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/expert-tips-locating-or-repairing-missing-fm20dll-dependencies-on-your-computer/"><u>Expert Tips: Locating or Repairing Missing fm20.dll Dependencies on Your Computer</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/golden-five-best-dvd-makers-for-macos-sierra-for-2024/"><u>Golden Five Best DVD Makers for macOS Sierra for 2024</u></a></li>
+<li><a href="https://techidaily.com/how-to-upgrade-apple-iphone-6-plus-without-losing-any-data-drfone-by-drfone-ios-system-repair-ios-system-repair/"><u>How to Upgrade Apple iPhone 6 Plus without Losing Any Data? | Dr.fone</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/navigating-apples-podcast-submission-requirements-clearly/"><u>Navigating Apple's Podcast Submission Requirements Clearly</u></a></li>
+<li><a href="https://media-tips.techidaily.com/transform-your-vob-files-into-modern-formats-with-our-expert-mac-video-converter/"><u>Transform Your VOB Files Into Modern Formats with Our Expert Mac Video Converter</u></a></li>
 </ul></div>
 

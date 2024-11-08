@@ -1,7 +1,7 @@
 ---
 title: "Varied Ideas for Daily Vlogging Talks"
-date: 2024-09-11T08:00:24.237Z
-updated: 2024-09-12T08:00:24.237Z
+date: 2024-11-02T21:30:55.790Z
+updated: 2024-11-07T22:35:02.006Z
 tags:
   - ai video
   - ai youtube
@@ -50,13 +50,6 @@ The other reason it’s good to have a niche is that you’ll be able to use key
 
 Here are 4 things to talk about in your daily vlog:
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118323/7443" target="_top" id="2118323">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118323" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118323/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## What are you watching/reading?
 
  If you’re really into a book or tv show, or if you saw a movie recently, then those are all good things to talk about (warn people if you’re going to spoil anything!). You do recaps, reviews, or just share a few thoughts you had. If you’re worried about alienating people who don’t watch/read the same stuff as you then you can keep it more general and just react to a few things from the media you’re consuming while also talking about your day. It’ll give you an anchor to build the rest of your video around, even if it’s not all you talk about.
@@ -64,10 +57,10 @@ Here are 4 things to talk about in your daily vlog:
 By commenting on what you’re watching/reading you have a better chance of capitalizing on a trending topic people are searching for. You could also find yourself an audience by becoming involved in fan communities.
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134498/18498" target="_top" id="2134498">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134498" border="0" alt="https://techidaily.com" width="720" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135419/19272" target="_top" id="2135419">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135419" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134498/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135419/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Snapshots of Your Day
@@ -86,19 +79,6 @@ It does not matter what it is that is making you have this strong reaction (unle
 
 Alternatively: you could do a vlog about how happy you are to have gotten engaged or a vlog about how happy you are that it was sunny today, and your enthusiasm will carry your audience through either video with you.
 
-<!-- affiliate ads begin -->
-<span id="1983551">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983551.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983551">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983551.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983551%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983551/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## What did you learn today?
 
  _Fun fact: The original lyrics Paul McCartney imagined for 'Yesterday' were 'Scrambled eggs, oh my baby how I love your legs'._
@@ -116,38 +96,31 @@ The puya chilensis is a plant that ‘eats’ sheep (sheep get stuck to it, star
 Sea monkeys can survive in space.
 
 <!-- affiliate ads begin -->
-<span id="1424528">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1424528.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1424528">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424528.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424528%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424528/16446" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137209/26400" target="_top" id="2137209">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137209" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137209/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## EVERYTHING
 
 You could also just flick the camera on and tell the full story of your day like you’d do in a traditional daily blog. What did you have for breakfast, how was school/work, did you talk to any friends, how was the weather – anything and everything. Generally, these videos can run a bit long and don’t have a lot of snappy editing. They’re faster to make, which is good if you’re doing them every day, but the unpolished nature of them won’t appeal to everyone. It will be exactly what appeals to some people, though.
 
-<!-- affiliate ads begin -->
-<a href="https://bluettiit.sjv.io/c/5597632/2114263/17093" target="_top" id="2114263">
-  <img src="//a.impactradius-go.com/display-ad/17093-2114263" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettiit.sjv.io/i/5597632/2114263/17093" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Customize Your Vlog Stories with Powerful Video Editor
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2126492/26400" target="_top" id="2126492">
-  <img src="//a.impactradius-go.com/display-ad/26400-2126492" border="0" alt="https://techidaily.com" width="640" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2126492/26400" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1975555">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1975555.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1975555">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975555.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975555%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975555/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 **We’ve got a new eBook out!**
@@ -155,6 +128,13 @@ You could also just flick the camera on and tell the full story of your day like
 It’s got strategies that have worked for other YouTubers, boiled down to simple action steps.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135417/19272" target="_top" id="2135417">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135417" border="0" alt="https://techidaily.com" width="392" height="72"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135417/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -175,5 +155,26 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://win-able.techidaily.com/robocop-resurgence-release-issues-how-to-overcome-pc-starting-problems/"><u>'RoboCop Resurgence' Release Issues: How to Overcome PC Starting Problems</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-thrifty-tips-for-hosting-webinars-on-youtube/"><u>[New] In 2024, Thrifty Tips for Hosting Webinars on YouTube</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-2024-approved-bridging-the-gap-between-standard-and-superior-video-quality-techniques/"><u>[Updated] 2024 Approved Bridging the Gap Between Standard and Superior Video Quality Techniques</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-direct-streamline-the-most-efficient-flv-to-youtube-tools-ranked/"><u>[Updated] Direct Streamline The Most Efficient Flv-to-YouTube Tools Ranked</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-seamless-sound-shift-best-10-youtube-audio-converters-for-2024/"><u>[Updated] Seamless Sound Shift Best 10 YouTube Audio Converters for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-the-journey-to-exceptional-educational-content-creating-impactful-vids-on-youtube-for-2024/"><u>[Updated] The Journey to Exceptional Educational Content Creating Impactful Vids on YouTube for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-the-ultimate-guide-incorporating-informative-commentary-in-youtube-videos-for-2024/"><u>[Updated] The Ultimate Guide Incorporating Informative Commentary in YouTube Videos for 2024</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/2024-approved-editorprime-design/"><u>2024 Approved EditorPrime Design</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/avoid-blandness-in-your-vids-top-recommended-youtube-thumbnail-heights-for-2024/"><u>Avoid Blandness in Your Vids Top Recommended YouTube Thumbnail Heights for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ver-the-best-8-mirrorless-cameras-that-transform-vlogging-for-2024/"><u>Discover the Best 8 Mirrorless Cameras That Transform Vlogging for 2024</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/in-2024-moto-z2s-smarter-edge-an-exclusive-look/"><u>In 2024, Moto Z2's Smarter Edge An Exclusive Look</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/24-unlocking-youtubes-potential-for-free-educational-events/"><u>In 2024, Unlocking YouTube's Potential for Free Educational Events</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ring-video-success-a-list-of-20-pro-shortcuts-for-2024/"><u>Mastering Video Success A List of 20 Pro Shortcuts for 2024</u></a></li>
+<li><a href="https://win-top.techidaily.com/maximizing-visibility-the-role-of-search-volume-in-seo-and-expert-optimization-tips/"><u>Maximizing Visibility: The Role of Search Volume in SEO and Expert Optimization Tips</u></a></li>
+<li><a href="https://review-topics.techidaily.com/mkv-to-xiaomi-redmi-note-12-4g-converter-convert-mkv-for-xiaomi-redmi-note-12-4g-by-aiseesoft-video-converter-play-mkv-on-android/"><u>MKV to Xiaomi Redmi Note 12 4G converter - convert MKV for Xiaomi Redmi Note 12 4G</u></a></li>
+<li><a href="https://common-error.techidaily.com/solving-windows-1011-issues-tips-when-usb-ports-fail-to-work/"><u>Solving Windows 10/11 Issues: Tips When USB Ports Fail to Work</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/transforming-views-uncover-the-best-video-hacks-for-success/"><u>Transforming Views Uncover the Best Video Hacks for Success</u></a></li>
+<li><a href="https://program-issues.techidaily.com/troubleshooting-guide-iphone-unrecognized-by-itunes-on-pc-running-windows-prise-in-their-work-as-well-as-the-ethical-implications-of-these-decisions-within-595/"><u>Troubleshooting Guide: IPhone Unrecognized by iTunes on PC Running Windows Prise in Their Work, as Well as the Ethical Implications of These Decisions Within a Corporate Setting</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/be-premium-subscription-should-you-get-one-in-2024/"><u>YouTube Premium Subscription - Should You Get One, In 2024</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "Techniques for Exceptional Audio Recording without a Mic"
-date: 2024-09-11T08:00:58.492Z
-updated: 2024-09-12T08:00:58.492Z
+date: 2024-11-01T19:28:26.641Z
+updated: 2024-11-08T01:54:32.110Z
 tags:
   - ai video
   - ai youtube
@@ -44,13 +44,6 @@ Luckily, there are a lot of easy, free, things you can do to protect the quality
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2137379/7443" target="_top" id="2137379">
-  <img src="//a.impactradius-go.com/display-ad/7443-2137379" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137379/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## 1\. Keep Your Camera Close (like, really close)
 
 The biggest problem with the mic built into any camera or phone is just that, since it’s with the camera, it’s usually too far away from you. Built-in mics can record decent audio up close, but usually, your camera will be set up farther away from you than an external mic would be.
@@ -60,10 +53,10 @@ For example, your camera’s mic might be just as good as a clip-on LAV, but tha
 Moving your camera/smartphone physically closer to you will make it hard to include anything besides your head and shoulders in your shot, but it will get you significantly better audio.
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134237/18498" target="_top" id="2134237">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134237" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135394/19272" target="_top" id="2135394">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135394" border="0" alt="https://techidaily.com" width="120" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134237/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135394/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## 2.Shoot Somewhere Quiet
@@ -81,10 +74,10 @@ You should also pay attention to what’s in the room you’re recording in. Avo
 Look for a room that has a lot of soft things in it, like beds and sofas.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135416/19272" target="_top" id="2135416">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135416" border="0" alt="https://techidaily.com" width="336" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2129741/7443" target="_top" id="2129741">
+  <img src="//a.impactradius-go.com/display-ad/7443-2129741" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135416/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2129741/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## 4\. Protect your Built-In Mic from Wind
@@ -105,19 +98,6 @@ _You use the adhesive backing to attach the base velcro to your camera. The othe
 
 The only thing about a micromuff is that it costs about $30, and if you’re going to spend $30 on audio equipment then you could just buy yourself an inexpensive LAV mic. I only bring up the micromuff because it’s a very simple design you can probably DIY – you just need velcro with adhesive backing and any of the fluff-sources we just discussed.
 
-<!-- affiliate ads begin -->
-<span id="1993645">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993645.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993645">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993645.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993645%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993645/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## 5\. Use a Free Audio App
 
 If you’re recording on a smartphone, you can download a free app that will let you make adjustments to your audio as you record it. With the right app, you can adjust your gain (volume is how you control ‘output’ audio, and gain is for ‘input’ audio. By turning up your gain, you can make your mic more sensitive), tempo, and more. A lot of the time, your audio recording app will also let you edit your audio afterward.
@@ -127,10 +107,10 @@ Even if you’re not recording video from your smartphone, it might be a good id
 Free audio apps: Hi-Q MP3 Voice Recorder (Android), RecForge II (Android), Smart Voice Recorder (Android), Audio Memos (iOS), and Recorder Plus (iOS).
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2129740/7443" target="_top" id="2129740">
-  <img src="//a.impactradius-go.com/display-ad/7443-2129740" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://versadesk.pxf.io/c/5597632/1828647/21290" target="_top" id="1828647">
+  <img src="//a.impactradius-go.com/display-ad/21290-1828647" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2129740/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://versadesk.pxf.io/i/5597632/1828647/21290" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## 6\. Do a Sound Check
@@ -147,14 +127,14 @@ As one of the most widely used video editing software in YouTube video editing, 
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
-![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
-
 <!-- affiliate ads begin -->
-<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/2137974/21526" target="_top" id="2137974">
-  <img src="//a.impactradius-go.com/display-ad/21526-2137974" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://25home.pxf.io/c/5597632/2148645/16836" target="_top" id="2148645">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148645" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://zebaoaffiliateprogram.pxf.io/i/5597632/2137974/21526" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148645/16836" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 Richard Bennett
 
@@ -175,5 +155,24 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-capture.techidaily.com/new-in-2024-pinnacle-playground-top-10-royale-fighters/"><u>[New] In 2024, Pinnacle Playground Top 10 Royale Fighters</u></a></li>
+<li><a href="https://video-capture.techidaily.com/new-instant-recording-shutdown-quicktime-hacks-for-2024/"><u>[New] Instant Recording Shutdown QuickTime Hacks for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/our-secret-to-popularity-choosing-best-thumbnail-fonts-for-2024/"><u>[New] Your Secret to Popularity Choosing Best Thumbnail Fonts for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-2024-approved-constructing-inquiry-curtain-closers/"><u>[Updated] 2024 Approved Constructing Inquiry Curtain Closers</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-exploring-new-frontiers-in-contactless-interface-designs-for-2024/"><u>[Updated] Exploring New Frontiers in Contactless Interface Designs for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-navigating-your-path-as-a-first-time-youtuber-sidestep-these-8-common-mistakes-for-2024/"><u>[Updated] Navigating Your Path as a First-Time YouTuber Sidestep These 8 Common Mistakes for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-ranked-the-fastest-growing-youtube-platforms-for-encouragement/"><u>[Updated] Ranked The Fastest Growing YouTube Platforms for Encouragement</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-rising-star-how-jake-paul-conquered-youtube-for-2024/"><u>[Updated] Rising Star How Jake Paul Conquered YouTube for 2024</u></a></li>
+<li><a href="https://win11.techidaily.com/9-reasons-pcs-are-better-than-macs/"><u>9 Reasons PCs Are Better Than Macs</u></a></li>
+<li><a href="https://win-fantastic.techidaily.com/effiziente-moglichkeiten-zur-synchronisation-von-onedrive-daten-auf-deinem-pc/"><u>Effiziente Möglichkeiten Zur Synchronisation Von OneDrive-Daten Auf Deinem PC</u></a></li>
+<li><a href="https://win-answers.techidaily.com/enhancing-your-gaming-experience-by-solving-escape-from-tarkovs-pc-game-freezing-issues/"><u>Enhancing Your Gaming Experience by Solving Escape From Tarkov’s PC Game Freezing Issues</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/t-tips-for-harnessing-the-power-of-top-9-free-youtube-makers/"><u>Expert Tips for Harnessing the Power of Top 9 Free YouTube Makers</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/how-to-unlock-a-vivo-s17-easily-by-drfone-android/"><u>How To Unlock a Vivo S17 Easily?</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/how-to-unlock-realme-gt-5-pro-pin-codepattern-lockpassword-by-drfone-android/"><u>How to Unlock Realme GT 5 Pro PIN Code/Pattern Lock/Password</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/24-revolutionize-your-branding-50-free-youtube-banners-inside/"><u>In 2024, Revolutionize Your Branding - 50 Free YouTube Banners Inside!</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ltimate-tutorial-for-spreading-playlists/"><u>The Ultimate Tutorial for Spreading Playlists</u></a></li>
+<li><a href="https://voice-adjusting.techidaily.com/updated-the-complete-guide-to-professional-audio-editing-with-sony-vegas-for-2024/"><u>Updated The Complete Guide to Professional Audio Editing with Sony Vegas for 2024</u></a></li>
+</ul></div>
 

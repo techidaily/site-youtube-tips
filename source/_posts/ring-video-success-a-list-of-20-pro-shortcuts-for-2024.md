@@ -1,7 +1,7 @@
 ---
 title: "\"Mastering Video Success  A List of 20 Pro Shortcuts for 2024\""
-date: 2024-10-29T05:49:01.264Z
-updated: 2024-11-02T04:14:49.333Z
+date: 2024-11-02T00:39:49.177Z
+updated: 2024-11-07T23:23:22.672Z
 tags:
   - ai video
   - ai youtube
@@ -37,6 +37,13 @@ With that said, the following two-columned tables give you detailed information 
 
 To make things convenient for you, the shortcut keys are placed under their corresponding categories, where each category is in the form of a two-columned table.
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137201/26400" target="_top" id="2137201">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137201" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137201/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Category 1: YouTube Playback Hotkeys
 
 While watching a YouTube video, there might be instances when you want to pause and resume the playback. This category teaches how this can be done using the keyboard:
@@ -45,6 +52,13 @@ While watching a YouTube video, there might be instances when you want to pause 
 | ----------------- | -------------------------------------- |
 | 'K'               | Play and Pause (Works as a toggle key) |
 | 'Spacebar'        | Play and Pause (Works as a toggle key) |
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2094419/7443" target="_top" id="2094419">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094419" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094419/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Category 2: Scrolling YouTube Videos Back and Forth
 
@@ -75,10 +89,10 @@ This category contains information on increasing or decreasing the playback spee
 | 'SHIFT' + ',' (Comma)  | Decrease playback speed |
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135403/19272" target="_top" id="2135403">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135403" border="0" alt="https://techidaily.com" width="392" height="72"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1959707/19272" target="_top" id="1959707">
+  <img src="//a.impactradius-go.com/display-ad/19272-1959707" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135403/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1959707/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Category 4: Managing the Captions
@@ -93,13 +107,6 @@ This category talks about managing the video captions using the shortcut keys:
 | '-' (Minus Key)    | Reduce the font size of the captions (Minus key on the Numpad isn't supported)                                       |
 | '+' (Plus Key)     | Increase the font size of the captions (Plus key on the Numpad isn't supported)                                      |
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2100534/7443" target="_top" id="2100534">
-  <img src="//a.impactradius-go.com/display-ad/7443-2100534" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100534/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Category 5: Managing the Audio Video
 
 This category shows the shortcut keys to manage audio for a YouTube video:
@@ -109,13 +116,6 @@ This category shows the shortcut keys to manage audio for a YouTube video:
 | 'M'               | Mute YouTube video    |
 | '↑'               | Increase volume by 5% |
 | '↓'               | Decrease volume by 5% |
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1925484/19272" target="_top" id="1925484">
-  <img src="//a.impactradius-go.com/display-ad/19272-1925484" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925484/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Category 6: Switching Between Screen Modes
 
@@ -143,6 +143,13 @@ In this category, the navigation and management of shortcut keys for 360o and Vi
 | '-' (Minus Key on Keyboard) | Decrease font size                                    |
 | '+' (Plus Key on Keyboard)  | Increase font size                                    |
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1997643/19272" target="_top" id="1997643">
+  <img src="//a.impactradius-go.com/display-ad/19272-1997643" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997643/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Bonus: How to Get the YouTube Shortcut List with One-Click
 
 In this section, you will learn how to pull up the list of important YouTube shortcuts by pressing merely one key:
@@ -154,13 +161,6 @@ In this section, you will learn how to pull up the list of important YouTube sho
 So, when you press the Shift+? on YouTube, you will see a full list of shortcuts.
 
 ![YouTube Shortcut List](https://images.wondershare.com/filmora/article-images/youtube-keyboard-shortcuts-list.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://bluettide.pxf.io/c/5597632/2141683/17092" target="_top" id="2141683">
-  <img src="//a.impactradius-go.com/display-ad/17092-2141683" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettide.pxf.io/i/5597632/2141683/17092" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 **Conclusion**
 
@@ -193,18 +193,20 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-tips.techidaily.com/n-2024-maximize-content-experience-with-these-top-6-youtube-shorts-downloader-apps/"><u>[New] In 2024, Maximize Content Experience with These Top 6 YouTube Shorts Downloader Apps</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/eering-into-mr-beasts-economic-landscape/"><u>[New] Peering Into Mr. Beast's Economic Landscape</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-comparing-social-platforms-facebook-live-vs-youtube-live-and-twitter-periscope/"><u>[Updated] Comparing Social Platforms Facebook LIVE Vs. YouTube Live & Twitter Periscope</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-in-2024-echoing-emotions-infusing-music-into-instareel-content/"><u>[Updated] In 2024, Echoing Emotions Infusing Music Into InstaReel Content</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-masterclass-in-effortless-video-acquisition/"><u>[Updated] Masterclass in Effortless Video Acquisition</u></a></li>
-<li><a href="https://fox-pages.techidaily.com/1-comprehensive-list-todo-and-todas-explained-your-complete-guide/"><u>1. Comprehensive List: Todo and Todas Explained - Your Complete Guide</u></a></li>
-<li><a href="https://extra-support.techidaily.com/2024-approved-photographers-guide-to-effective-watermarking/"><u>2024 Approved Photographers' Guide to Effective Watermarking</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/approved-revolutionize-your-online-video-content-expert-tips-on-youtube-live-with-wirecast/"><u>2024 Approved Revolutionize Your Online Video Content Expert Tips on Youtube Live with WireCast</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/in-2024-how-to-watch-hulu-outside-us-on-nubia-z50-ultra-drfone-by-drfone-virtual-android/"><u>In 2024, How to Watch Hulu Outside US On Nubia Z50 Ultra | Dr.fone</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/24-perfect-your-video-edits-step-by-step-on-youtube-cutting/"><u>In 2024, Perfect Your Video Edits Step-by-Step on YouTube Cutting</u></a></li>
-<li><a href="https://discover-best.techidaily.com/iosmacdvd/"><u>IOSデバイスにMacから動画・DVDコンテンツを転送して楽しむ方法</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/solving-the-issue-what-to-do-if-internet-explorer-stops-functioning/"><u>Solving the Issue: What To Do If Internet Explorer Stops Functioning</u></a></li>
-<li><a href="https://bypass-frp.techidaily.com/top-5-honor-magic-v2-bypass-frp-tools-for-pc-that-actually-work-by-drfone-android/"><u>Top 5 Honor Magic V2 Bypass FRP Tools for PC That Actually Work</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-preeminent-zero-price-stock-image-sites/"><u>[New] In 2024, Preeminent Zero-Price Stock Image Sites</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-supercharge-your-content-consumption-these-best-free-online-video-downloaders-for-youtube-shorts/"><u>[New] In 2024, Supercharge Your Content Consumption These Best Free, Online Video Downloaders for YouTube Shorts</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/new-top-10-action-cameras-with-image-stabilization/"><u>[New] Top 10 Action Cameras with Image Stabilization</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-twitters-guide-adding-videos/"><u>[New] Twitter's Guide Adding Videos</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-universalviewers-guide-2024-worldwide-selection-and-local-options/"><u>[New] UniversalViewers Guide 2024 Worldwide Selection & Local Options</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-maximizing-your-potential-is-a-joined-force-right-for-you-for-2024/"><u>[Updated] Maximizing Your Potential Is a Joined Force Right for You for 2024</u></a></li>
+<li><a href="https://some-skills.techidaily.com/updated-subtlety-at-the-helm-lowering-sound-intensity-in-fl-studio/"><u>[Updated] Subtlety at the Helm Lowering Sound Intensity in FL Studio</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-youtube-editing-tutorial-mastering-video-cuts-for-2024/"><u>[Updated] YouTube Editing Tutorial Mastering Video Cuts for 2024</u></a></li>
+<li><a href="https://ai-voice-clone.techidaily.com/2024-approved-ai-script-wondershare-virbo/"><u>2024 Approved AI Script | Wondershare Virbo</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/2024-approved-photo-booth-woes-why-videos-halt/"><u>2024 Approved Photo Booth Woes Why Videos Halt?</u></a></li>
+<li><a href="https://win-awesome.techidaily.com/behebung-der-fehlermeldung-0x80073712-wie-man-fehlende-windows-update-dateien-wiederherstellt/"><u>Behebung Der Fehlermeldung '0X80073712': Wie Man Fehlende Windows-Update-Dateien Wiederherstellt</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/24-the-youtubers-guide-to-picking-perfect-recording-tools/"><u>In 2024, The YouTuber's Guide to Picking Perfect Recording Tools</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/izing-your-youtube-time-multi-stream-techniques/"><u>Maximizing Your YouTube Time Multi-Stream Techniques</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/navigating-the-seas-of-sponsorships-a-youtubers-playbook/"><u>Navigating the Seas of Sponsorships A Youtuber's Playbook</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/cket-your-youtube-dollars-with-short-video-monetization/"><u>Skyrocket Your YouTube Dollars with Short Video Monetization</u></a></li>
 </ul></div>
 

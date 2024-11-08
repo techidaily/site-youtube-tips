@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] In 2024, Beginner's Guide  Adding Text Overlays on YouTube\""
-date: 2024-10-27T17:17:52.476Z
-updated: 2024-11-01T22:26:24.945Z
+date: 2024-11-04T02:29:12.006Z
+updated: 2024-11-07T19:09:02.690Z
 tags:
   - ai video
   - ai youtube
@@ -46,10 +46,10 @@ If the creator of the video has not added captions then you can enable automatic
 If you want to change the language of the subtitles click on the settings icon (the one that looks like a gear) next to the closed captioning icon and choose your language next to   **Subtitles/CC** . If the language you want is not there select **Auto-Translate**  and then pick a language. Google Translate will be used to generate subtitles in your chosen language.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082538/7443" target="_top" id="2082538">
-  <img src="//a.impactradius-go.com/display-ad/7443-2082538" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2134240/18498" target="_top" id="2134240">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134240" border="0" alt="https://techidaily.com" width="540" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082538/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134240/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Adding YouTube Captions in 4 Steps
@@ -77,16 +77,10 @@ The easiest way to add subtitles to your videos is to use **Automatic Captioning
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<span id="1993652">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993652.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993652">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993652.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993652%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993652/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://jalbum-affiliate-program.sjv.io/c/5597632/1838960/17916" target="_top" id="1838960">
+  <img src="//a.impactradius-go.com/display-ad/17916-1838960" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://jalbum-affiliate-program.sjv.io/i/5597632/1838960/17916" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -110,22 +104,24 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-tips.techidaily.com/n-2024-safe-mp4-extraction-from-youtube-videos/"><u>[New] In 2024, Safe MP4 Extraction From YouTube Videos</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/treamline-your-online-experience-blocking-youtube-channels-effectively-for-2024/"><u>[New] Streamline Your Online Experience Blocking Youtube Channels Effectively for 2024</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-2024-approved-tips-for-constructing-inspirational-day-to-day-visual-narratives/"><u>[Updated] 2024 Approved Tips for Constructing Inspirational Day-to-Day Visual Narratives</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-in-2024-mastering-the-art-of-earning-through-vlogs/"><u>[Updated] In 2024, Mastering the Art of Earning Through Vlogs</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-mastering-youtube-video-text-overlay-techniques-for-2024/"><u>[Updated] Mastering YouTube Video Text Overlay Techniques for 2024</u></a></li>
-<li><a href="https://video-capture.techidaily.com/updated-standout-nintendo-switch-fighting-games-index-max-156/"><u>[Updated] Standout Nintendo Switch Fighting Games Index (Max 156)</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-the-pathway-to-perfect-audio-placement-on-youtube-for-2024/"><u>[Updated] The Pathway to Perfect Audio Placement on YouTube for 2024</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/approved-how-to-get-paid-to-review-products-on-youtube/"><u>2024 Approved How to Get Paid to Review Products on YouTube</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/approved-innovator-of-cinematic-soundscapes-and-imagery/"><u>2024 Approved Innovator of Cinematic Soundscapes & Imagery</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/2024-approved-unleash-creativity-discover-the-top-11-grading-techniques-for-video-editors/"><u>2024 Approved Unleash Creativity Discover the Top 11 Grading Techniques for Video Editors</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/mkv-ts-movavi/"><u>網路上自由下載 MKV 版的 TS文件 - 使用 Movavi 解析器</u></a></li>
-<li><a href="https://win-solutions.techidaily.com/enhancing-your-gameplay-a-guide-to-addressing-the-frame-rate-slump-in-dying-light/"><u>Enhancing Your Gameplay: A Guide to Addressing the Frame Rate Slump in Dying Light</u></a></li>
-<li><a href="https://driver-download.techidaily.com/ensure-compatibility-with-your-brother-hl-227aster-printer-by-downloading-the-newest-windows-driver-update/"><u>Ensure Compatibility with Your Brother HL-227aster Printer by Downloading the Newest Windows Driver Update</u></a></li>
-<li><a href="https://win-answers.techidaily.com/expert-tips-and-strategies-for-overcoming-structural-failures-during-demolitions/"><u>Expert Tips and Strategies for Overcoming Structural Failures During Demolitions</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/generative-excellence-which-reigns-supreme-notion-ai-or-googles-chatgpt/"><u>Generative Excellence: Which Reigns Supreme, Notion AI or Google's ChatGPT?</u></a></li>
-<li><a href="https://android-location.techidaily.com/in-2024-3-effective-methods-to-fake-gps-location-on-android-for-your-tecno-spark-go-2023-drfone-by-drfone-virtual/"><u>In 2024, 3 Effective Methods to Fake GPS location on Android For your Tecno Spark Go (2023) | Dr.fone</u></a></li>
-<li><a href="https://graphic-issues.techidaily.com/overhauled-graphics-card-error-43/"><u>Overhauled Graphics Card Error 43</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-enriched-viewing-experience-with-these-free-downloader-apps-for-youtubes/"><u>[New] In 2024, Enriched Viewing Experience with These Free Downloader Apps for YouTubes</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-maximizing-engagement-avoiding-common-youtube-thumbnail-errors/"><u>[New] In 2024, Maximizing Engagement Avoiding Common YouTube Thumbnail Errors</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/new-in-2024-simplify-your-collaboration-with-easy-steps-to-use-a-virtual-board-on-all-zoom-devices/"><u>[New] In 2024, Simplify Your Collaboration with Easy Steps to Use a Virtual Board on All Zoom Devices</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-step-by-step-for-quick-chromakey-application/"><u>[New] In 2024, Step-by-Step for Quick Chromakey Application</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-study-smart-the-top-10-channel-selection-for-history-buffs/"><u>[New] In 2024, Study Smart The Top 10 Channel Selection for History Buffs</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-video-textualizer/"><u>[New] In 2024, Video Textualizer</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/new-savor-success-ideas-to-bolster-cookery-channel-brands/"><u>[New] Savor Success Ideas to Bolster Cookery Channel Brands</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-2024-approved-top-7-strategies-for-delicious-food-vids/"><u>[Updated] 2024 Approved Top 7 Strategies for Delicious Food Vids</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-in-2024-prime-iphone-photography-top-app-picks-x-7/"><u>[Updated] In 2024, Prime iPhone Photography Top App Picks (X, 7)</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-in-2024-unlocking-the-secrets-of-successful-youtube-collaborations/"><u>[Updated] In 2024, Unlocking the Secrets of Successful YouTube Collaborations</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-remove-inconvenient-black-edges-from-youtube-videos-for-2024/"><u>[Updated] Remove Inconvenient Black Edges From YouTube Videos for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-the-pathway-to-youtube-prosperity-a-comprehensive-guide/"><u>[Updated] The Pathway to YouTube Prosperity - A Comprehensive Guide</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/decoding-dts-virtualx-a-comprehensive-guide/"><u>Decoding DTS Virtual:X - A Comprehensive Guide</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/fast-track-facebook-profiling-techniques-unveiled-for-2024/"><u>Fast-Track Facebook Profiling Techniques Unveiled for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/guiding-principles-for-neutral-social-media-pages/"><u>Guiding Principles for Neutral Social Media Pages</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/24-turning-viewers-into-valuables-a-creators-guide-to-youtube-monetization/"><u>In 2024, Turning Viewers Into Valuables A Creator’s Guide to YouTube Monetization</u></a></li>
+<li><a href="https://fox-that.techidaily.com/struggling-with-depth-effect-on-ios-16-here-are-7-methods-to-get-it-working-again/"><u>Struggling with Depth Effect on iOS 16? Here Are 7 Methods to Get It Working Again</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/the-latest-on-youtube-ad-income-guidelines-for-2024/"><u>The Latest on YouTube Ad Income Guidelines for 2024</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/workflow-game-changer-my-experience-with-lenovos-innovative-dual-screen-laptop-features-as-reviewed/"><u>Workflow Game Changer: My Experience with Lenovo's Innovative Dual-Screen Laptop Features, as Reviewed</u></a></li>
 </ul></div>
 

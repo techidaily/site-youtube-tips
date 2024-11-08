@@ -1,7 +1,7 @@
 ---
 title: "[New] Steps for Controlling Video Comment Settings in YouTube for 2024"
-date: 2024-10-25T21:57:01.197Z
-updated: 2024-11-01T17:49:05.996Z
+date: 2024-11-01T17:18:32.439Z
+updated: 2024-11-07T23:42:15.819Z
 tags:
   - ai video
   - ai youtube
@@ -116,19 +116,19 @@ From under the **Audience** section in the right window of the **Video details**
 ![ Turn on or turn off comments for specific youtube video](https://images.wondershare.com/filmora/article-images/turn-on-off-comments-for-specific-youtube-video.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115937/19272" target="_top" id="2115937">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115937" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1880927/19272" target="_top" id="1880927">
+  <img src="//a.impactradius-go.com/display-ad/19272-1880927" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115937/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880927/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 **Note:** To learn **how to disable comments on YouTube** for specific video, you can repeat the above steps, and choose the **Yes, it’s made for kids** radio button from the **Audience** section when you are on the **Video details** page.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2037345/7443" target="_top" id="2037345">
-  <img src="//a.impactradius-go.com/display-ad/7443-2037345" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://dhgate.sjv.io/c/5597632/1172027/12108" target="_top" id="1172027">
+  <img src="//a.impactradius-go.com/display-ad/12108-1172027" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037345/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://dhgate.sjv.io/i/5597632/1172027/12108" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## FAQs About YouTube Comments
@@ -148,16 +148,10 @@ You can go to **YouTube Studio** \> **Settings** \> **Community**, and on the **
 ![ Block YouTube   commnets ](https://images.wondershare.com/filmora/article-images/block-users-youtube-comment.jpg)
 
 <!-- affiliate ads begin -->
-<span id="1983549">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983549.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983549">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983549.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983549%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983549/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/1925544/19272" target="_top" id="1925544">
+  <img src="//a.impactradius-go.com/display-ad/19272-1925544" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925544/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 #### 4\. If I turn comments off and back on again, will the old comments come back?
@@ -175,16 +169,10 @@ It is easy to understand **how to turn on comments on YouTube**. The best thing 
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
 
 <!-- affiliate ads begin -->
-<span id="1983471">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983471.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983471">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983471.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983471%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983471/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2082542/7443" target="_top" id="2082542">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082542" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082542/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Liza Brown
@@ -208,24 +196,22 @@ Follow @Liza Brown
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-tips.techidaily.com/ecoming-an-expert-at-yt-studio-navigation/"><u>[New] Becoming an Expert at YT Studio Navigation</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/new-maximizing-zoom-video-details-step-by-step-methods-for-2024/"><u>[New] Maximizing Zoom Video Details Step-by-Step Methods for 2024</u></a></li>
-<li><a href="https://extra-support.techidaily.com/new-seven-superior-cameras-defy-the-elements-waterproof/"><u>[New] Seven Superior Cameras Defy the Elements (Waterproof)</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/he-reaction-gurus-playbook-crafting-unforgettable-videos-in-under-5-minutes-each/"><u>[New] The Reaction Guru's Playbook Crafting Unforgettable Videos in Under 5 Minutes Each</u></a></li>
-<li><a href="https://tiktok-video-files.techidaily.com/new-uncover-the-art-of-participating-in-tiktok-live-shows-for-2024/"><u>[New] Uncover the Art of Participating in TikTok Live Shows for 2024</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-engaging-tactics-for-increased-subscriber-count/"><u>[Updated] Engaging Tactics for Increased Subscriber Count</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-in-2024-the-ultimate-guide-to-valorant-video-thumbnail-artistry/"><u>[Updated] In 2024, The Ultimate Guide to Valorant Video Thumbnail Artistry</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-in-2024-unlocking-the-potential-of-non-mic-sound-capture-methods/"><u>[Updated] In 2024, Unlocking the Potential of Non-Mic Sound Capture Methods</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-master-your-content-leading-free-video-opener-tools-for-2024/"><u>[Updated] Master Your Content Leading Free Video Opener Tools for 2024</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-sci-ed-hacks-top-youtube-experts-to-elevate-learning/"><u>[Updated] Sci-Ed Hacks Top YouTube Experts to Elevate Learning</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-simplified-approach-to-removing-youtube-comments-with-ease/"><u>[Updated] Simplified Approach to Removing YouTube Comments with Ease</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/cing-visuals-using-chroma-key-effectively/"><u>Enhancing Visuals Using Chroma Key Effectively</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/how-to-bypass-android-lock-screen-using-emergency-call-on-vivo-y27-4g-by-drfone-android/"><u>How to Bypass Android Lock Screen Using Emergency Call On Vivo Y27 4G?</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/ideal-image-to-animation-suite-for-macwindows-users/"><u>Ideal Image-to-Animation Suite for Mac/Windows Users</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/in-2024-audiovisual-harmony-incorporating-audio-into-powerpoint-presentations/"><u>In 2024, Audiovisual Harmony Incorporating Audio Into PowerPoint Presentations</u></a></li>
-<li><a href="https://review-topics.techidaily.com/in-2024-how-to-stop-life360-from-tracking-you-on-vivo-s17-pro-drfone-by-drfone-virtual-android/"><u>In 2024, How to Stop Life360 from Tracking You On Vivo S17 Pro? | Dr.fone</u></a></li>
-<li><a href="https://howto.techidaily.com/reliable-user-guide-to-fix-oneplus-11-5g-running-slow-and-freezing-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Reliable User Guide to Fix OnePlus 11 5G Running Slow and Freezing | Dr.fone</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/smr-content-creators-on-youtube/"><u>Top ASMR Content Creators on YouTube</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/uncover-top-affordable-video-enhancement-platforms-a-comprehensive-guide/"><u>Uncover Top Affordable Video Enhancement Platforms - A Comprehensive Guide</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/levate-your-youtube-presence-banners-for-gamers/"><u>[New] Elevate Your YouTube Presence Banners for Gamers</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-in-2024-social-network-harmony-integrating-instagram-and-facebook/"><u>[New] In 2024, Social Network Harmony Integrating Instagram & Facebook</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-vlogventures-in-cosmetics-how-to-create-your-fashion-forward-channel/"><u>[New] In 2024, Vlogventures in Cosmetics How to Create Your Fashion-Forward Channel</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/new-unlock-your-viewing-pleasure-with-budget-friendly-recording-tools-for-2024/"><u>[New] Unlock Your Viewing Pleasure with Budget-Friendly Recording Tools for 2024</u></a></li>
+<li><a href="https://article-files.techidaily.com/updated-2024-approved-creating-dynamic-time-lapse-with-your-gopro-hero-series/"><u>[Updated] 2024 Approved Creating Dynamic Time-Lapse with Your GoPro Hero Series</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/updated-2024-approved-mastering-the-art-of-using-telegram-web/"><u>[Updated] 2024 Approved Mastering the Art of Using Telegram Web</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-from-novice-to-pro-mastering-the-art-of-youtube-shorts-for-2024/"><u>[Updated] From Novice to Pro Mastering the Art of YouTube Shorts for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-leverage-timestamps-tactics-to-skyrocket-video-views/"><u>[Updated] Leverage Timestamps Tactics to Skyrocket Video Views</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-leveraging-yt-playlist-features-for-site-enhancement/"><u>[Updated] Leveraging YT Playlist Features for Site Enhancement</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-richest-streamers-ever-caught/"><u>[Updated] Richest Streamers Ever Caught</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/applecareplus-benefits-is-it-truly-a-smart-investment/"><u>AppleCare+ Benefits: Is It Truly a Smart Investment?</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/boost-your-soundscape-simple-solutions-for-windows-10-sound-problems/"><u>Boost Your Soundscape: Simple Solutions for Windows 10 Sound Problems</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/te-engagement-top-hashtags-for-gameplay-vids-for-2024/"><u>Elevate Engagement Top Hashtags for Gameplay Vids for 2024</u></a></li>
+<li><a href="https://data-wizards.techidaily.com/eradicate-freezing-glitch-error-xc00d36c4/"><u>Eradicate Freezing Glitch - Error XC00D36C4</u></a></li>
+<li><a href="https://win-forum.techidaily.com/mastering-social-media-engagement-across-major-platforms-facebook-twitter-instagram-and-youtube/"><u>Mastering Social Media Engagement Across Major Platforms: Facebook, Twitter, Instagram and YouTube</u></a></li>
+<li><a href="https://buynow-help.techidaily.com/transform-your-office-with-the-topo-comfort-mat-by-ergodriven-fatigue-no-more/"><u>Transform Your Office with the Topo Comfort Mat by ErgoDriven – Fatigue No More</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/be-shorts-decoding-the-income-distribution-model/"><u>YouTube Shorts Decoding the Income Distribution Model</u></a></li>
 </ul></div>
 

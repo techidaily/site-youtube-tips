@@ -1,7 +1,7 @@
 ---
 title: "How to Use Google Trends to Come up with Video Ideas for 2024"
-date: 2024-10-26T05:43:52.996Z
-updated: 2024-11-01T23:58:05.069Z
+date: 2024-11-02T16:25:49.159Z
+updated: 2024-11-07T18:43:18.484Z
 tags:
   - ai video
   - ai youtube
@@ -51,6 +51,13 @@ Unless you do news or political commentary on your channel these probably aren�
 
 To get information more relevant to your channel you’re going to have to do some filtering.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1972679/19272" target="_top" id="1972679">
+  <img src="//a.impactradius-go.com/display-ad/19272-1972679" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1972679/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 2: Getting Results That Matter to You
 
 In the Google Trend home page, scroll down to the 'Recently Trending' section and click on 'More Trending Searches'.
@@ -60,13 +67,6 @@ Then click from 'Daily Search Trends' to 'Realtime Search Trends'.
 On top you will see two drop-down menus, one is for the category and one is for location.
 
 ![Google Trends Video Ideas](https://images.wondershare.com/filmora/article-images/google-trends-video-ideas.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135368/19272" target="_top" id="2135368">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135368" border="0" alt="https://techidaily.com" width="250" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135368/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Under **All categories** select the general theme your channel falls under.
 
@@ -99,15 +99,22 @@ Once you have a keyword in mind, type it into the Explore bar at the top of your
 ![Google Trends Keywords YouTube Video](https://images.wondershare.com/filmora/article-images/explore-topic-in-google-trends.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1896541/19272" target="_top" id="1896541">
-  <img src="//a.impactradius-go.com/display-ad/19272-1896541" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2126492/26400" target="_top" id="2126492">
+  <img src="//a.impactradius-go.com/display-ad/26400-2126492" border="0" alt="https://techidaily.com" width="640" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896541/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2126492/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 What happens after you click **enter** is pretty much magic. Say I want to make a video on how to use Filmora. The first thing I’ll type into that Explore bar is ‘Filmora’.
 
 ![Google Trends YouTube Video Keywords](https://images.wondershare.com/filmora/article-images/google-trends-search-term.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1902319/19272" target="_top" id="1902319">
+  <img src="//a.impactradius-go.com/display-ad/19272-1902319" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902319/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 You can see near the top that this chart represents searches for the topic over the last 5 years, which isn’t necessarily useful (although it is sort of cool that you can see when Filmora was ‘born’). I’m going to narrow that down to results from the U.S in the last week.
 
@@ -119,13 +126,6 @@ Next, what other words do I want to include in my video title? Is this a review,
 
 ![Google Trends Filmora Keywords](https://images.wondershare.com/filmora/article-images/google-trends-search-term-comparison.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118312/7443" target="_top" id="2118312">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118312" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118312/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 _I also ‘zoomed out’ to 90 days – if I’d only looked at how they compared over the last week my results could have been skewed._
 
 It’s pretty clear from the chart that ‘filmora review’ is the strongest of those 3 search terms. The title of my video should definitely start with the words **Filmora Review** because that is what most people are searching for when they want information about Filmora. Putting your most important keyword/search term first in your video titles will help them rank better in the viewer’s search results.
@@ -133,6 +133,13 @@ It’s pretty clear from the chart that ‘filmora review’ is the strongest of
 Although, when you do a comparison like this you should also go to YouTube and search for each potential keyword/phrase individually. It might turn out that there is a ton of strong competition for the most popular search term, and not as much for the second or third most popular. Here’s a search for ‘Filmora Review’ on YouTube:
 
 ![YouTube search Filmora Keyword](https://images.wondershare.com/filmora/article-images/google-trends-youtube-keyword-search.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aidotcom.pxf.io/c/5597632/2134501/19576" target="_top" id="2134501">
+  <img src="//a.impactradius-go.com/display-ad/19576-2134501" border="0" alt="https://techidaily.com" width="640" height="90"/>
+</a>
+<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134501/19576" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 _If my view of YouTube looks different from yours it’s because I’m using the [VidIQ plugin for Chrome](https://chrome.google.com/webstore/detail/vidiq-vision-for-youtube/pachckjkecffpdphbpmfolblodfkgbhl?hl=en). It’s free and it gives you all kinds of extra info about videos and channels._
 
@@ -151,19 +158,6 @@ As one of the most widely used video editing software among YouTubers, Filmora p
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
-
-<!-- affiliate ads begin -->
-<span id="1328683">
-					<video width="200" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1328683.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/15852-1328683">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1328683.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1328683%2F15852'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1328683/15852" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -186,21 +180,22 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://vimeo-videos.techidaily.com/new-2024-approved-10-best-online-vimeo-video-downloaders/"><u>[New] 2024 Approved 10 Best Online Vimeo Video Downloaders</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/n-2024-premiere-pro-a-launchpad-for-youtube-videos/"><u>[New] In 2024, Premiere Pro A Launchpad for YouTube Videos</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ncovering-10-premier-youtube-sources-for-history-buffs/"><u>[New] Uncovering 10 Premier YouTube Sources for History Buffs</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-2024-approved-boosting-your-channels-free-tips-for-youtube-video-popularity/"><u>[Updated] 2024 Approved Boosting Your Channels Free Tips for YouTube Video Popularity</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/updated-2024-approved-youtubes-buffering-blues-your-pathway-out-current-strategies/"><u>[Updated] 2024 Approved YouTube's Buffering Blues – Your Pathway Out (Current Strategies)</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-2024-approved-youtubes-essential-view-total-to-secure-income/"><u>[Updated] 2024 Approved YouTube's Essential View Total to Secure Income</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ed-in-2024-selective-mp4-editing-made-simple-on-mac/"><u>[Updated] In 2024, Selective MP4 Editing Made Simple on Mac</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/updated-simplified-ways-for-altering-clowns-windows-voice-for-2024/"><u>[Updated] Simplified Ways for Altering Clowns' Windows Voice for 2024</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/updated-streamlining-media-with-apple-music-and-video-mixes/"><u>[Updated] Streamlining Media with Apple Music & Video Mixes</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-the-art-of-earning-ajeys-success-story-in-video-income-for-2024/"><u>[Updated] The Art of Earning Ajey's Success Story in Video Income for 2024</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/approved-eliminate-cacophony-perfecting-sound-quality-for-youtube/"><u>2024 Approved Eliminate Cacophony Perfecting Sound Quality for YouTube</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/approved-simple-steps-to-great-videos-crafting-10-basic-concepts-easily/"><u>2024 Approved Simple Steps to Great Videos Crafting 10 Basic Concepts Easily</u></a></li>
-<li><a href="https://fake-location.techidaily.com/dose-life360-notify-me-when-someone-checks-my-location-on-poco-f5-pro-5g-drfone-by-drfone-virtual-android/"><u>Dose Life360 Notify Me When Someone Checks My Location On Poco F5 Pro 5G? | Dr.fone</u></a></li>
-<li><a href="https://win-studio.techidaily.com/tecniche-avanzate-per-recuperare-le-partizioni-di-sistema-perdute-su-windows-guida-completa/"><u>Tecniche Avanzate per Recuperare Le Partizioni Di Sistema Perdute Su Windows - Guida Completa</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/king-the-secrets-to-earnings-on-youtube-shorts/"><u>Unlocking the Secrets to Earnings on YouTube Shorts</u></a></li>
-<li><a href="https://data-wizards.techidaily.com/unprofessional-techniques-for-improved-videos/"><u>Unprofessional Techniques for Improved Videos</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/dobe-premiere-tips-youtube-video-uploads-for-2024/"><u>[New] Adobe Premiere Tips YouTube Video Uploads for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/uilding-audience-connection-with-empowerment-vlogs/"><u>[New] Building Audience Connection with Empowerment Vlogs</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ighest-ranking-youtube-tracker-for-popular-video-insight/"><u>[New] Highest-Ranking YouTube Tracker for Popular Video Insight</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-mastering-the-visual-storyteller-youtube-cinematic-training/"><u>[New] In 2024, Mastering the Visual Storyteller YouTube Cinematic Training</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-in-2024-perfecting-music-in-instagram-videos-and-stories/"><u>[New] In 2024, Perfecting Music in Instagram Videos & Stories</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-rising-tides-of-streamers-a-guide-to-building-a-successful-chatter-for-2024/"><u>[Updated] Rising Tides of Streamers A Guide to Building a Successful Chatter for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/approved-co-create-content-to-maximize-youtube-follower-count/"><u>2024 Approved Co-Create Content to Maximize YouTube Follower Count</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/approved-how-to-mix-text-and-video-on-a-shoestring-budget/"><u>2024 Approved How to Mix Text & Video on a Shoestring Budget</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/approved-streamlining-the-editing-process-elevating-your-youtube-content-with-pc/"><u>2024 Approved Streamlining the Editing Process Elevating Your YouTube Content with PC</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/easy-installation-of-canon-dr-c225-drivers-on-microsofts-latest-operating-systems-windows-11-10-and-8/"><u>Easy Installation of Canon DR-C225 Drivers on Microsoft's Latest Operating Systems (Windows 11, 10 & 8)</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/hassle-free-ways-to-remove-frp-lock-from-honor-90-gt-phones-withwithout-a-pc-by-drfone-android/"><u>Hassle-Free Ways to Remove FRP Lock from Honor 90 GT Phones with/without a PC</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-transfer-contacts-from-honor-magic5-ultimate-to-iphone-xs11-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Contacts from Honor Magic5 Ultimate to iPhone XS/11 | Dr.fone</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/24-essential-video-stock-investment-guides/"><u>In 2024, Essential Video Stock Investment Guides</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/24-the-key-to-profit-youtube-shorts-insights/"><u>In 2024, The Key to Profit YouTube Shorts Insights</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/the-art-of-optimization-boosting-your-youtube-video-rankings/"><u>The Art of Optimization Boosting Your YouTube Video Rankings</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/unleashing-video-magic-on-tiktok-with-pre-made-designs/"><u>Unleashing Video Magic on TikTok with Pre-Made Designs</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/using-buyselladscom-for-blog-advertising/"><u>Using BuySellAds.com for Blog Advertising</u></a></li>
 </ul></div>
 
