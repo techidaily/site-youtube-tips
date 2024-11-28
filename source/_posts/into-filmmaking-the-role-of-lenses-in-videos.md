@@ -1,7 +1,7 @@
 ---
 title: "\"Dive Into Filmmaking  The Role of Lenses in Videos\""
-date: 2024-09-11T07:59:56.017Z
-updated: 2024-09-12T07:59:56.017Z
+date: 2024-11-14T02:58:24.335Z
+updated: 2024-11-17T21:34:43.613Z
 tags:
   - ai video
   - ai youtube
@@ -40,13 +40,6 @@ In this article, I’m going to help you figure that out.
 * [Part 6: Vlogging With a Fast Lens](#VloggingWithAFastLens)
 * [Part 7: Optical Image Stabilization](#OpticalImageStabilization)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135364/19272" target="_top" id="2135364">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135364" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135364/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Three Focal Length Groups: Wide, Standard, Telephoto
 
 There are three main ranges in focal lengths that camera lenses can be categorized into wide, standard, and telephoto.
@@ -64,10 +57,10 @@ With standard lenses or normal lenses, you won’t get the stretched out objects
 Out of all the other ranges in focal lengths, telephoto lenses will appear the most zoomed in. This can be beneficial for the shooter who wants to get a closer shot of a scene without having to physically be in close proximity to the scene. Objects that are further away in the background also appear larger and closer than they would appear on wide-angle or standard lenses.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123733/7443" target="_top" id="2123733">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123733" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1997695/19272" target="_top" id="1997695">
+  <img src="//a.impactradius-go.com/display-ad/19272-1997695" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123733/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997695/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Vlogging With Each Focal Length Group
@@ -93,10 +86,10 @@ As telephoto lenses are even more zoomed in, you’ll need to be even further aw
   In the above video, Marcos Rocha compares different focal lengths for talking head videos. Which focal length range do you like the look of?
 
 <!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139113/17108" target="_top" id="2139113">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139113" border="0" alt="https://techidaily.com" width="320" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2134230/18498" target="_top" id="2134230">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134230" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139113/17108" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134230/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Crop Factor
@@ -121,13 +114,6 @@ This table shows you the focal lengths needed to achieve the same shot between c
 | Telephoto                   | 70mm       | 44mm  | 35mm      |
 | Telephoto                   | 100mm      | 63mm  | 50mm      |
 | Telephoto                   | 200mm      | 125mm | 100mm     |
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134490/18498" target="_top" id="2134490">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134490" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134490/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Aperture
 
@@ -158,10 +144,10 @@ But do you even need a fast lens?
 * Better continuous autofocus performance needed when shooting moving subjects with a large aperture
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134241/18498" target="_top" id="2134241">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134241" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2134244/18498" target="_top" id="2134244">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134244" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134241/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134244/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Optical Image Stabilization
@@ -179,10 +165,10 @@ If, however, you are shooting most of your vlogs on a tripod, you won’t need a
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aidotcom.pxf.io/c/5597632/2134500/19576" target="_top" id="2134500">
-  <img src="//a.impactradius-go.com/display-ad/19576-2134500" border="0" alt="https://techidaily.com" width="600" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2134494/18498" target="_top" id="2134494">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134494" border="0" alt="https://techidaily.com" width="721" height="90"/>
 </a>
-<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134500/19576" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134494/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -204,4 +190,18 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-video-capture.techidaily.com/new-in-2024-time-lapse-cinema-on-the-go-a-tutorial-for-ipad-users/"><u>[New] In 2024, Time-Lapse Cinema on the Go A Tutorial for iPad Users</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/nderstanding-the-fundamental-contrasts-in-video-streaming-for-2024/"><u>[New] Understanding the Fundamental Contrasts in Video Streaming for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/orldwide-leaders-in-short-video-download-hubs-free-for-2024/"><u>[New] Worldwide Leaders in Short Video Download Hubs (FREE) for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-2024-approved-building-your-asmr-empire-key-concepts-and-best-practices/"><u>[Updated] 2024 Approved Building Your ASMR Empire Key Concepts and Best Practices</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-harmonize-your-youtube-presence-with-these-ideal-microphones-for-various-channels-for-2024/"><u>[Updated] Harmonize Your YouTube Presence With These Ideal Microphones for Various Channels for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-navigating-video-migration-youtube-to-dailymotion-process-for-2024/"><u>[Updated] Navigating Video Migration YouTube to Dailymotion Process for 2024</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-the-gif-grabbers-handbook-a-comprehensible-guide-to-downloading-twitter-gifs/"><u>[Updated] The GIF Grabber's Handbook A Comprehensible Guide to Downloading Twitter GIFs</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-white-list-microphones-for-frugal-filmmakers-for-2024/"><u>[Updated] White-List Microphones for Frugal Filmmakers for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/approved-guiding-imovie-content-from-home-studio-to-youtube-hub/"><u>2024 Approved Guiding iMovie Content From Home Studio to YouTube Hub</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/284752-9789240681255-research-on-reproductive-health-at-who/"><u>Research on reproductive health at WHO | Free Book</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/step-into-visual-storytelling-xp-edition-installation-for-2024/"><u>Step Into Visual Storytelling XP Edition Installation for 2024</u></a></li>
+</ul></div>
 

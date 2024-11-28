@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Universal Video Concepts  The 10 Simplest Ideas Everyone Can Execute for 2024\""
-date: 2024-11-02T02:50:53.827Z
-updated: 2024-11-08T03:22:19.167Z
+date: 2024-11-17T08:50:38.579Z
+updated: 2024-11-17T18:14:42.115Z
 tags:
   - ai video
   - ai youtube
@@ -52,18 +52,18 @@ Let the world know who you are and what you do. If you are planning on starting 
 
 These kinds of videos make great channel trailers, and they’re a good way to highlight the topics you'll be covering on your channel in the future.
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2123512/26400" target="_top" id="2123512">
-  <img src="//a.impactradius-go.com/display-ad/26400-2123512" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2123512/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## 2\. Vlog About Your Day
 
 Anything that happens during your day can become a topic for your YouTube vlog. Traffic jams, treacherous pets who keep stealing your shoes, or the ridiculous amount of things you had to do in a single day can all become topics for videos you upload to your YouTube channel. Being candid and spontaneous is a sure way to grab the attention of a viewer, but limiting the duration of a vlog to a few minutes is key to ensuring that viewers watch the video until the end.
 
 Strive to make visually dynamic videos, because just sitting or standing and talking in front of a camera for a few minutes isn't going to create much on-screen action.
+
+<!-- affiliate ads begin -->
+<a href="https://homestyler.sjv.io/c/5597632/1943647/22993" target="_top" id="1943647">
+  <img src="//a.impactradius-go.com/display-ad/22993-1943647" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://homestyler.sjv.io/i/5597632/1943647/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## 3\. Express An Opinion
 
@@ -97,6 +97,13 @@ There's no need to constantly produce new videos because you can just take some 
 
 If you are a photography enthusiast you can also plan the entire slideshow in advance and then make a short video about how you created the images in the slideshow.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123733/7443" target="_top" id="2123733">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123733" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123733/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## 8\. Make a Tutorial
 
 Education is our only hope for a better world so if you know how to do something well, don't be afraid to share your knowledge. A tutorial is a powerful educational tool that enables you to guide people through the entire process of making origami, solving a complicated video editing problem, maintaining a motorcycle, or anything else.
@@ -104,10 +111,16 @@ Education is our only hope for a better world so if you know how to do something
 YouTube channels that feature tutorials often have millions of followers, because YouTube is a popular place to go when you need information.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130891/7443" target="_top" id="2130891">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130891" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130891/7443" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1977006">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1977006.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1977006">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977006.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977006%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977006/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## 9\. 10 Things About You
@@ -115,6 +128,13 @@ YouTube channels that feature tutorials often have millions of followers, becaus
 Being open is important, so why not share 10 things about yourself you think your audience would find interesting or which you think are important for people to know. The top 10 things structure is often used in YouTube videos because it provides a clear rhythm to a video clip, and it enables you to gradually increase the tension as the video progresses.
 
 These types of videos tend to create a better relationship with your audience because they make the viewer feel as if they know the person on the screen.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115937/19272" target="_top" id="2115937">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115937" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115937/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## 10\. Video Rant
 
@@ -130,21 +150,7 @@ If you start your YouTube channel but have no video editing experience, Wondersh
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139114/17108" target="_top" id="2139114">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139114" border="0" alt="https://techidaily.com" width="468" height="60"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139114/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2111967/7443" target="_top" id="2111967">
-  <img src="//a.impactradius-go.com/display-ad/7443-2111967" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111967/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -167,24 +173,22 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://remote-screen-capture.techidaily.com/new-2024-approved-lecturers-guide-to-efficient-classroom-sound-archiving-on-macs/"><u>[New] 2024 Approved Lecturer's Guide to Efficient Classroom Sound Archiving on Macs</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-11-fitness-youtube-video-ideas-to-keep-you-and-your-viewers-moving/"><u>[Updated] 11 Fitness YouTube Video Ideas to Keep You and Your Viewers Moving</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-2024-approved-directed-focus-youtubes-easy-ways-for-smoother-borders/"><u>[Updated] 2024 Approved Directed Focus YouTube's Easy Ways for Smoother Borders</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-best-alternatives-to-blockbuster-flicks/"><u>[Updated] Best Alternatives to Blockbuster Flicks</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/updated-skycleanser-exceptional-bg-erasing-software/"><u>[Updated] SkyCleanser Exceptional BG Erasing Software</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-the-backlink-journey-paving-a-path-to-youtube-success-for-2024/"><u>[Updated] The Backlink Journey Paving a Path to YouTube Success for 2024</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-the-guide-to-smart-video-money-making-on-platforms-for-2024/"><u>[Updated] The Guide to Smart Video Money-Making on Platforms for 2024</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/approved-youtubes-new-look-shorts-now-on-screen/"><u>2024 Approved YouTube's New Look - Shorts Now on Screen</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/file-forwarding-made-easy-top-5-methods-to-upload-directly-on-pc-for-2024/"><u>File Forwarding Made Easy Top 5 Methods to Upload Directly on PC for 2024</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/in-2024-how-to-reset-gmail-password-on-infinix-smart-8-devices-by-drfone-android/"><u>In 2024, How to Reset Gmail Password on Infinix Smart 8 Devices</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/in-2024-is-pgsharp-legal-when-you-are-playing-pokemon-on-xiaomi-redmi-k70e-drfone-by-drfone-virtual-android/"><u>In 2024, Is pgsharp legal when you are playing pokemon On Xiaomi Redmi K70E? | Dr.fone</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/in-2024-seamless-methodology-viewing-favorited-and-well-liked-youtube-remarks/"><u>In 2024, Seamless Methodology Viewing Favorited and Well-Liked YouTube Remarks</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ring-the-art-of-embedding-youtube-playlist-content-for-2024/"><u>Mastering the Art of Embedding YouTube Playlist Content for 2024</u></a></li>
-<li><a href="https://win11.techidaily.com/maximizing-gpu-memory-potential-in-windows-11-os/"><u>Maximizing GPU Memory Potential in Windows 11 OS</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/step-by-step-to-turn-off-igtv/"><u>Step-by-Step to Turn Off IGTV</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/m-at-peak-performance-best-gpu-selection-guide-for-2024/"><u>Stream at Peak Performance Best GPU Selection Guide for 2024</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ronized-screenscape-tv-loops-of-online-media/"><u>Synchronized Screenscape TV Loops of Online Media</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/the-elite-collection-of-2024s-finest-audio-devices/"><u>The Elite Collection of 2024'S Finest Audio Devices</u></a></li>
-<li><a href="https://techidaily.com/will-p60-play-avchd-mts-files-by-aiseesoft-video-converter-play-mts-on-android/"><u>Will P60 play AVCHD mts files?</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/n-2024-ultimate-guide-to-cheap-subtitles-and-downloaders/"><u>[New] In 2024, Ultimate Guide to Cheap Subtitles & Downloaders</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-youtube-shorts-earnings-guide-must-knows-and-future-potential/"><u>[New] In 2024, Youtube Shorts Earnings Guide Must-Knows & Future Potential</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-2024-approved-masterclass-in-making-engaging-video-lessons-your-step-by-step-guide-for-youtube/"><u>[Updated] 2024 Approved Masterclass in Making Engaging Video Lessons Your Step-by-Step Guide for YouTube</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-2024-approved-understanding-tseries-financial-gain-in-youtube-space/"><u>[Updated] 2024 Approved Understanding TSeries' Financial Gain in YouTube Space</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-break-it-down-free-techniques-to-go-frame-by-frame-on-youtube/"><u>[Updated] Break It Down Free Techniques to Go Frame by Frame on YouTube</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-cash-rides-high-with-well-crafted-youtube-shorts-for-2024/"><u>[Updated] Cash Rides High with Well-Crafted YouTube Shorts for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-in-2024-enhancing-video-discoverability-through-youtube-images/"><u>[Updated] In 2024, Enhancing Video Discoverability Through Youtube Images</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-prolific-profits-from-youtube-universal-strategies-unveiled-for-2024/"><u>[Updated] Prolific Profits From YouTube Universal Strategies Unveiled for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/approved-enhancing-engagement-through-thoughtful-youtube-tags/"><u>2024 Approved Enhancing Engagement Through Thoughtful YouTube Tags</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/-your-youtube-earnings-with-effective-adsense-use/"><u>Boost Your YouTube Earnings with Effective AdSense Use</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/fixing-the-invalid-directory-name-mistake-a-step-by-step-guide/"><u>Fixing the 'Invalid Directory Name' Mistake – A Step-by-Step Guide</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/how-to-reduce-chatgpts-maxed-out-limit-win/"><u>How to Reduce ChatGPT's Maxed-Out Limit (Win)</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/in-2024-youtube-brand-creation-top-titles-for-video-content-craftsmen-max-156/"><u>In 2024, Youtube Brand Creation Top Titles for Video Content Craftsmen (Max 156)</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/raft-community-image-bank-access/"><u>Minecraft Community Image Bank Access</u></a></li>
+<li><a href="https://voice-adjusting.techidaily.com/new-top-10-safe-chat-platforms-for-socializing-digitally/"><u>New Top 10 Safe Chat Platforms for Socializing Digitally</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/top-15-augmented-reality-games-like-pokemon-go-to-play-on-huawei-nova-y71-drfone-by-drfone-virtual-android/"><u>Top 15 Augmented Reality Games Like Pokémon GO To Play On Huawei Nova Y71 | Dr.fone</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/5-youtube-portals-on-stocks-and-trades/"><u>Top 15 YouTube Portals on Stocks & Trades</u></a></li>
 </ul></div>
 

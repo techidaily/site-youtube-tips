@@ -1,7 +1,7 @@
 ---
 title: "\"[New] In 2024, Thumbnail Magic  A Filmmaker's Mobile Techniques for YouTube\""
-date: 2024-11-01T02:49:08.398Z
-updated: 2024-11-07T22:05:06.576Z
+date: 2024-11-13T08:51:32.833Z
+updated: 2024-11-17T18:33:48.577Z
 tags:
   - ai video
   - ai youtube
@@ -98,6 +98,13 @@ Step4 Add text to the image and **customize** it to your liking.
 
 ![pixellab add text](https://images.wondershare.com/filmora/article-images/pixellab-add-text.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123750/7443" target="_top" id="2123750">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123750" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123750/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Step5 Change the resolution of the image to **1280 x 720 pixels**.
 
 ![pixellab change resolution](https://images.wondershare.com/filmora/article-images/pixellab-change-resolution.jpg)
@@ -105,6 +112,13 @@ Step5 Change the resolution of the image to **1280 x 720 pixels**.
 Step6 Save the image to your gallery by exporting it.
 
 ![pixellab export image](https://images.wondershare.com/filmora/article-images/pixellab-export-image.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/2137974/21526" target="_top" id="2137974">
+  <img src="//a.impactradius-go.com/display-ad/21526-2137974" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://zebaoaffiliateprogram.pxf.io/i/5597632/2137974/21526" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  Pros
 
@@ -142,10 +156,10 @@ Step4 Tap the **Custom thumbnail** button and **upload** the image you want to u
 ![youtube upload thumbnail](https://images.wondershare.com/filmora/article-images/youtube-upload-thumbnail.JPG)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075472/7443" target="_top" id="2075472">
-  <img src="//a.impactradius-go.com/display-ad/7443-2075472" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2115951/19272" target="_top" id="2115951">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115951" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075472/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115951/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Step5 Tap Save in the top right corner to upload the thumbnail to your video.
@@ -182,6 +196,13 @@ Step3 Add a new background to the track below the picture. **Use** the other edi
 
 ![filmora editing options](https://images.wondershare.com/filmora/article-images/filmora-editing-options.JPG)
 
+<!-- affiliate ads begin -->
+<a href="https://arkmc.pxf.io/c/5597632/352555/5172" target="_top" id="352555">
+  <img src="//a.impactradius-go.com/display-ad/5172-352555" border="0" alt="https://techidaily.com" width="720" height="90"/>
+</a>
+<img height="0" width="0" src="https://arkmc.pxf.io/i/5597632/352555/5172" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Step4 When you are done editing the thumbnail, take a **snapshot** by clicking the camera icon.
 
 ![filmora take a snapshot](https://images.wondershare.com/filmora/article-images/filmora-take-screenshot.JPG)
@@ -201,10 +222,10 @@ This video will show you how to use Filmora to create a custom thumbnail for you
 Here are some common questions that people have when it comes to creating YouTube thumbnails on mobile.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123726/7443" target="_top" id="2123726">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123726" border="0" alt="https://techidaily.com" width="600" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135404/19272" target="_top" id="2135404">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135404" border="0" alt="https://techidaily.com" width="468" height="60"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123726/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135404/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Q1\. What App Do Youtubers Use To Make Thumbnails?
@@ -226,10 +247,10 @@ There is no one-size-fits-all answer to this question, as the thumbnail that get
 However, the key to getting clicks on your thumbnail is to make it visually appealing and relevant to your video. Experiment with different thumbnail designs and track which ones get the most clicks to help you identify what works best for your channel.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123735/7443" target="_top" id="2123735">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123735" border="0" alt="https://techidaily.com" width="600" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2082521/7443" target="_top" id="2082521">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082521" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123735/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082521/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Conclusion
@@ -253,10 +274,10 @@ Step1 Open the Play Store and **search** for PixelLab. **Install** the app.
 ![pixellab install](https://images.wondershare.com/filmora/article-images/pixellab-install.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1902294/19272" target="_top" id="1902294">
-  <img src="//a.impactradius-go.com/display-ad/19272-1902294" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1972670/19272" target="_top" id="1972670">
+  <img src="//a.impactradius-go.com/display-ad/19272-1972670" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902294/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1972670/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Step2 Tap the **"+"** icon to **add** an image from your gallery.
@@ -302,13 +323,6 @@ Step1 Open the YouTube app on your mobile device and sign in to your account.
 
 ![youtube install](https://images.wondershare.com/filmora/article-images/youtube-home.JPG)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2016129/19272" target="_top" id="2016129">
-  <img src="//a.impactradius-go.com/display-ad/19272-2016129" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2016129/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Step2 Tap on the **My Videos** tab to view a list of your uploaded videos.
 
 ![youtube select video](https://images.wondershare.com/filmora/article-images/youtube-select-video.JPG)
@@ -325,20 +339,14 @@ Step5 Tap Save in the top right corner to upload the thumbnail to your video.
 
 ![youtube save thumbnail](https://images.wondershare.com/filmora/article-images/youtube-save-thumbnail.JPG)
 
-That's it! Your new thumbnail will now be displayed on your YouTube video, helping it stand out and attract more views. You can repeat this process for other videos if you want to add a custom thumbnail.
-
 <!-- affiliate ads begin -->
-<span id="1424527">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1424527.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1424527">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424527.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424527%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424527/16446" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2118325/7443" target="_top" id="2118325">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118325" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118325/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+That's it! Your new thumbnail will now be displayed on your YouTube video, helping it stand out and attract more views. You can repeat this process for other videos if you want to add a custom thumbnail.
 
 ## It May Interest You – Make YouTube Thumbnails on Windows/Mac
 
@@ -360,23 +368,9 @@ Step1 Launch Filmora, add the picture to the timeline and **select** the AI Port
 
 ![filmora interface](https://images.wondershare.com/filmora/article-images/filmora-interface.JPG)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135393/19272" target="_top" id="2135393">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135393" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135393/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Step2 Scale up and reposition the photo.
 
 ![filmora import image](https://images.wondershare.com/filmora/article-images/filmora-import-image.JPG)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082542/7443" target="_top" id="2082542">
-  <img src="//a.impactradius-go.com/display-ad/7443-2082542" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082542/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Step3 Add a new background to the track below the picture. **Use** the other editing tools in Filmora to customize the image as desired, such as adding text, graphics, and special effects.
 
@@ -445,18 +439,22 @@ Whether you create your thumbnails on your mobile device or your computer, use a
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-recording.techidaily.com/new-2024-approved-focus-on-the-frame-master-logitech-cam-edits/"><u>[New] 2024 Approved Focus on the Frame Master Logitech Cam Edits</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/n-2024-professional-movie-making-on-youtube-and-similar-software/"><u>[New] In 2024, Professional Movie Making on YouTube & Similar Software</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/n-2024-unleashing-potential-a-step-by-step-approach-to-youtube-links/"><u>[New] In 2024, Unleashing Potential A Step-by-Step Approach to YouTube Links</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/n-2024-unsubscribing-from-youtube-computer-and-mobile-techniques/"><u>[New] In 2024, Unsubscribing From Youtube Computer & Mobile Techniques</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-in-2024-seamless-acquisition-of-twitters-jokes-for-pc/"><u>[Updated] In 2024, Seamless Acquisition of Twitter's Jokes for PC</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/enhance-visuals-anywhere-with-handy-lut-tools/"><u>Enhance Visuals Anywhere with Handy LUT Tools</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/exclusive-performers-webcasts-for-2024/"><u>Exclusive Performers' Webcasts for 2024</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/from-cut-to-connect-advanced-editing-with-kinemaster-for-2024/"><u>From Cut to Connect Advanced Editing with Kinemaster for 2024</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ssing-creative-energy-for-impactful-lyric-videos-and-lyric-video-maker/"><u>Harnessing Creative Energy for Impactful Lyric Videos & Lyric Video Maker</u></a></li>
-<li><a href="https://common-error.techidaily.com/how-to-fix-the-no-device-found-problem-in-icue-a-step-by-step-guide/"><u>How to Fix the 'No Device Found' Problem in ICUE: A Step-by-Step Guide</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-get-back-lost-contacts-from-poco-c65-by-fonelab-android-recover-contacts/"><u>How to get back lost contacts from Poco C65.</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/preventing-dual-camera-access-in-windows-apps/"><u>Preventing Dual Camera Access in Windows Apps</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/trasforma-le-immagini-apng-a-png-gratuitamente-online-con-movavi/"><u>Trasforma Le Immagini APNG a PNG Gratuitamente Online Con Movavi</u></a></li>
+<li><a href="https://article-helps.techidaily.com/new-harmonizing-your-footage-with-optimal-aspect-ratios-for-2024/"><u>[New] Harmonizing Your Footage With Optimal Aspect Ratios for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-social-media-supremacy-top-10-youtube-influencers/"><u>[New] In 2024, Social Media Supremacy Top 10 YouTube Influencers</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/new-mastering-luts-in-obs-for-premium-visual-output/"><u>[New] Mastering LUTs in OBS for Premium Visual Output</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-audio-matters-ensuring-excellent-sound-in-your-youtube-shots/"><u>[Updated] Audio Matters Ensuring Excellent Sound in Your YouTube Shots</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/updated-identifying-the-best-on-the-market-for-hdr-photography/"><u>[Updated] Identifying the Best on the Market for HDR Photography</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-in-2024-explore-free-youtube-pic-themes/"><u>[Updated] In 2024, Explore Free YouTube Pic Themes</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-in-2024-explore-these-ten-booming-youtube-sources-to-uplift-yourself/"><u>[Updated] In 2024, Explore These Ten Booming YouTube Sources to Uplift Yourself</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-in-2024-the-art-of-analytic-assessment-in-the-youtube-sphere/"><u>[Updated] In 2024, The Art of Analytic Assessment in the YouTube Sphere</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-making-youtube-intros-interesting-without-costing-a-dime/"><u>[Updated] Making YouTube Intros Interesting Without Costing a Dime</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/approved-savor-the-spectacle-best-practices-for-cooking-channel-titling/"><u>2024 Approved Savor the Spectacle Best Practices for Cooking Channel Titling</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/approved-the-ultimate-guide-top-3d-introduction-software/"><u>2024 Approved The Ultimate Guide Top 3D Introduction Software</u></a></li>
+<li><a href="https://win-able.techidaily.com/effortless-technique-for-creating-checkboxes-and-tick-symbols-in-excel-worksheets/"><u>Effortless Technique for Creating Checkboxes and Tick Symbols in Excel Worksheets</u></a></li>
+<li><a href="https://fox-shield.techidaily.com/error-webpage-unavailable-page-doesnt-exist/"><u>Error: Webpage Unavailable (Page Doesn't Exist)</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/essential-cooling-gadget-every-tech-enthusiast-must-have-for-peak-laptop-performance-insights-from-zdnet/"><u>Essential Cooling Gadget Every Tech Enthusiast Must Have for Peak Laptop Performance - Insights From ZDNet</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-top-5-tracking-apps-to-track-infinix-smart-7-hd-without-them-knowing-drfone-by-drfone-virtual-android/"><u>In 2024, Top 5 Tracking Apps to Track Infinix Smart 7 HD without Them Knowing | Dr.fone</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/introducing-the-self-cleaning-roomba-irobots-revolutionary-mopping-robot-with-automated-cleanup-capabilities/"><u>Introducing the Self-Cleaning Roomba: IRobot's Revolutionary Mopping Robot with Automated Cleanup Capabilities</u></a></li>
+<li><a href="https://fox-info.techidaily.com/saving-skies-best-price-for-data-keepers-2024/"><u>Saving Skies Best Price for Data Keepers 2024</u></a></li>
 </ul></div>
 

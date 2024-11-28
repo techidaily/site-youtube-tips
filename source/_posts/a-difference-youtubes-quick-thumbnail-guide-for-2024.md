@@ -1,7 +1,7 @@
 ---
 title: "\"Make a Difference  YouTube's Quick Thumbnail Guide for 2024\""
-date: 2024-09-06T03:33:47.294Z
-updated: 2024-09-07T03:33:47.294Z
+date: 2024-11-16T00:05:03.540Z
+updated: 2024-11-17T23:00:55.304Z
 tags:
   - ai video
   - ai youtube
@@ -20,18 +20,6 @@ thumbnail: https://thmb.techidaily.com/a02a9911f50368d686754fe93fbecd3af42fa7537
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
-<!-- affiliate ads begin -->
-<span id="1983475">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983475.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983475">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983475.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983475%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983475/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ##### Shanoon Cox
 
  Mar 27, 2024• Proven solutions
@@ -63,12 +51,6 @@ With time, Filmora brings new and advanced features for its users to equip them 
 
 ![ai-portrait-thumbnail-step3](https://images.wondershare.com/filmora/article-images/ai-portrait-thumbnail-step4.png)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115916/19272" target="_top" id="2115916">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115916" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115916/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 **Step 04:** Choose a background of your choice for your thumbnail. You can choose a background from the sample colors provided by Filmora.
 
 ![ai-portrait-thumbnail-step4](https://images.wondershare.com/filmora/article-images/ai-portrait-thumbnail-step4.png)
@@ -77,32 +59,14 @@ With time, Filmora brings new and advanced features for its users to equip them 
 
 ![ai-portrait-thumbnail-step5](https://images.wondershare.com/filmora/article-images/ai-portrait-thumbnail-step5.png)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2120862/26400?prodsku=Saturn" target="_top" id="2120862">
-  <img src="//a.impactradius-go.com/display-ad/26400-2120862" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2120862/26400?prodsku=Saturn" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 **Step 06:** Import your video the same way into the media folder of Filmora and drag it into the timeline and place it above your background.
 
 ![ai-portrait-thumbnail-step6](https://images.wondershare.com/filmora/article-images/ai-portrait-thumbnail-step6.png)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130885/7443" target="_top" id="2130885">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130885" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130885/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 **Step 07:** Select your footage, go to the Effects tab and click on AI Portraits. It will open up all the effects related to AI Portraits. These AI Portrait features help you separate the human from a background without using a green screen or anything else.
 
 ![ai-portrait-thumbnail-step7](https://images.wondershare.com/filmora/article-images/ai-portrait-thumbnail-step11.png)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115937/19272" target="_top" id="2115937">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115937" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115937/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 **Step 08:** Double click on any of these effects to see how they will look like on your footage.
 
 ![ai-portrait-thumbnail-step8](https://images.wondershare.com/filmora/article-images/ai-portrait-thumbnail-step8.png)
@@ -111,28 +75,10 @@ With time, Filmora brings new and advanced features for its users to equip them 
 
 ![ai-portrait-thumbnail-step9](https://images.wondershare.com/filmora/article-images/ai-portrait-thumbnail-step9.png)
 
-<!-- affiliate ads begin -->
-<span id="1770776">
-					<video width="240" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1770776.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/20702-1770776">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1770776.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftokenmetrics.sjv.io%2Fc%2F5597632%2F1770776%2F20702'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1770776/20702" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 **Step 10:** The effect will be applied to the footage. Now the background has been removed from the footage and ready to be used on your custom background. You can adjust the human accordingly where it looks perfect.
 
 ![ai-portrait-thumbnail-step10](https://images.wondershare.com/filmora/article-images/ai-portrait-thumbnail-step10.png)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135349/19272" target="_top" id="2135349">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135349" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135349/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 **Step 11:** Now it is time to add a title into your thumbnail to highlight what the video is all about. Go to the Titles, and select lower thirds. You can also select any of the titles types which best suits your needs. Drop the title into the timeline above the footage and adjust it accordingly. Now double click on the header to edit and rename it.
 
 ![ai-portrait-thumbnail-step11](https://images.wondershare.com/filmora/article-images/ai-portrait-thumbnail-step11.png)
@@ -141,12 +87,6 @@ With time, Filmora brings new and advanced features for its users to equip them 
 
 ![ai-portrait-thumbnail-step12](https://images.wondershare.com/filmora/article-images/ai-portrait-thumbnail-step12.png)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115951/19272" target="_top" id="2115951">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115951" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115951/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 #### Conclusion
 
 This is how your Youtube thumbnail will look like after applying all the above-mentioned effects and settings.
@@ -163,14 +103,11 @@ Shanoon Cox is a writer and a lover of all things video.
 
 Follow @Shanoon Cox
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -179,4 +116,39 @@ Follow @Shanoon Cox
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://vp-tips.techidaily.com/new-2024-approved-optimized-text-designs-for-after-effects/"><u>[New] 2024 Approved Optimized Text Designs for After Effects</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-comprehensive-guide-to-youtube-video-captioning/"><u>[New] In 2024, Comprehensive Guide to YouTube Video Captioning</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-maximizing-profits-the-ultimate-guide-to-youtube-revenue/"><u>[New] In 2024, Maximizing Profits The Ultimate Guide to YouTube Revenue</u></a></li>
+<li><a href="https://discord-videos.techidaily.com/new-in-2024-the-ultimate-tutorial-for-adding-discord-server-roles/"><u>[New] In 2024, The Ultimate Tutorial for Adding Discord Server Roles</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/treamline-your-viewing-experience-with-accelerated-or-slowed-videos-for-2024/"><u>[New] Streamline Your Viewing Experience with Accelerated or Slowed Videos for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-2024-approved-effective-ways-to-watch-multiple-youtube-videos-at-one-time/"><u>[Updated] 2024 Approved Effective Ways to Watch Multiple YouTube Videos at One Time</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-2024-approved-unveiling-the-secrets-of-iphones-video-loops/"><u>[Updated] 2024 Approved Unveiling the Secrets of iPhone's Video Loops</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-chart-topping-content-youtubes-top-5-for-2024/"><u>[Updated] Chart-Topping Content YouTube's Top 5 for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-earning-equations-decoding-the-mathematics-behind-youtube-income-monitoring-for-2024/"><u>[Updated] Earning Equations Decoding the Mathematics Behind YouTube Income Monitoring for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-video-earning-excellence-mastering-youtube-monetization-anywhere-for-2024/"><u>[Updated] Video Earning Excellence Mastering YouTube Monetization Anywhere for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/approved-building-your-brand-making-money-with-vids/"><u>2024 Approved Building Your Brand Making Money with Vids</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/2024-approved-interactive-cosmos-explored-metaverse-versus-omniverse-discussed/"><u>2024 Approved Interactive Cosmos Explored Metaverse Versus Omniverse Discussed</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/approved-navigating-youtube-sharing-with-google-credentials/"><u>2024 Approved Navigating YouTube Sharing with Google Credentials</u></a></li>
+<li><a href="https://win-wonderful.techidaily.com/itunesbpm/"><u>簡易步驟：利用iTunes管理及回復音樂BPM資料</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/eu-users-can-now-download-apps-via-web-in-ios-175-beta-2-release-explore-how-its-revolutionizing-access-zdnet/"><u>EU Users Can Now Download Apps via Web in iOS 17.5 Beta 2 Release – Explore How It's Revolutionizing Access | ZDNET</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-how-to-change-location-on-tiktok-to-see-more-content-on-your-apple-iphone-11-pro-drfone-by-drfone-virtual-ios/"><u>In 2024, How to Change Location on TikTok to See More Content On your Apple iPhone 11 Pro | Dr.fone</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/revolutionizing-online-queries-meet-the-smart-ai-powered-microsoft-bing/"><u>Revolutionizing Online Queries - Meet the Smart, AI-Powered Microsoft Bing</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/unleashing-brand-potential-with-a-comprehensive-guide-to-smm-mastery/"><u>Unleashing Brand Potential with a Comprehensive Guide to SMM Mastery</u></a></li>
+<li><a href="https://win11.techidaily.com/windows-11s-s-mode-understanding-its-role-in-security/"><u>Windows 11'S 'S Mode': Understanding Its Role in Security</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<span id="1982461">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982461.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982461">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982461.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982461%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982461/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 

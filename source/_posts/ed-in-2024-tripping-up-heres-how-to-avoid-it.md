@@ -1,7 +1,7 @@
 ---
 title: "[Updated] In 2024, Tripping Up? Here's How to Avoid It!"
-date: 2024-11-05T20:54:45.012Z
-updated: 2024-11-08T00:13:48.204Z
+date: 2024-11-12T11:10:47.901Z
+updated: 2024-11-18T11:56:27.219Z
 tags:
   - ai video
   - ai youtube
@@ -41,13 +41,6 @@ Wondershare Filmora has the best video stabilization tool is your videos have a 
 
 Here are 3 of our favorite DIY tripods.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087389/7443" target="_top" id="2087389">
-  <img src="//a.impactradius-go.com/display-ad/7443-2087389" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087389/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### **DIY smartphone tripod using binder clips or hair clips**
 
 You’re a solo operation and your best camera is on your phone. That’s pretty common.
@@ -63,25 +56,32 @@ Here it is with binder clips:
 ![binder clips](https://images.wondershare.com/filmora/article-images/binder-clips.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148640/16836" target="_top" id="2148640">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148640" border="0" alt="https://techidaily.com" width="234" height="60"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2047361/19272" target="_top" id="2047361">
+  <img src="//a.impactradius-go.com/display-ad/19272-2047361" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148640/16836" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2047361/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 And here it is with hair clips:
 
 ![hair clips](https://images.wondershare.com/filmora/article-images/hair-clips.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1918703/19272" target="_top" id="1918703">
+  <img src="//a.impactradius-go.com/display-ad/19272-1918703" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918703/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Now you can set your smartphone upon any stable surface, like a table or a stack of books.
 
  _Here are some more cool ideas!_
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1885947/19272" target="_top" id="1885947">
-  <img src="//a.impactradius-go.com/display-ad/19272-1885947" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://arkmc.pxf.io/c/5597632/352557/5172" target="_top" id="352557">
+  <img src="//a.impactradius-go.com/display-ad/5172-352557" border="0" alt="https://techidaily.com" width="720" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1885947/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://arkmc.pxf.io/i/5597632/352557/5172" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### **DIY adjustable tripod using books and a towel**
@@ -102,10 +102,10 @@ To get similar functions from the ‘any stable surface’ solution you can use 
 Now if your camera isn’t up high enough, or is too high, you can adjust it just by adding or taking away books. If you want to move it closer or farther away from you, just pull the towel forwards or backward.
 
 <!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148638/16836" target="_top" id="2148638">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148638" border="0" alt="https://techidaily.com" width="160" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1896555/19272" target="_top" id="1896555">
+  <img src="//a.impactradius-go.com/display-ad/19272-1896555" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148638/16836" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896555/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### **DIY gripping ‘Gorillapod’ using wire and tape**
@@ -159,24 +159,17 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-zero.techidaily.com/024-approved-navigating-through-time-the-finest-history-youtube-sources-for-students/"><u>[New] 2024 Approved Navigating Through Time The Finest History YouTube Sources for Students</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/avigating-the-world-of-youtube-shorts-a-filmmakers-handbook-for-2024/"><u>[New] Navigating the World of YouTube Shorts A Filmmaker's Handbook for 2024</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ecuring-your-digital-dividends-a-no-ads-youtube-money-manual-for-2024/"><u>[New] Securing Your Digital Dividends A No Ads YouTube Money Manual for 2024</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/he-art-and-science-behind-effective-youtube-shorts-templates/"><u>[New] The Art & Science Behind Effective YouTube Shorts Templates</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/updated-basic-tactics-to-archive-webcam-chats/"><u>[Updated] Basic Tactics to Archive Webcam Chats</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-extract-your-favorites-best-playlist-tools-reviewed-and-rated-for-2024/"><u>[Updated] Extract Your Favorites Best Playlist Tools Reviewed and Rated for 2024</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-in-2024-how-to-effectively-reduce-your-youtube-video-lengths/"><u>[Updated] In 2024, How To Effectively Reduce Your YouTube Video Lengths</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/updated-in-2024-the-complete-guide-to-audio-editing-in-audacity-made-simple/"><u>[Updated] In 2024, The Complete Guide to Audio Editing in Audacity, Made Simple</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-intriguing-stories-flourishing-channels-top-3-techniques-for-2024/"><u>[Updated] Intriguing Stories, Flourishing Channels Top 3 Techniques for 2024</u></a></li>
-<li><a href="https://fox-http.techidaily.com/updated-professional-video-gear-guide-top-18-for-4k-film-for-2024/"><u>[Updated] Professional Video Gear Guide Top 18 for 4K Film for 2024</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-revolutionize-your-vlog-with-these-elite-12-cameras-for-2024/"><u>[Updated] Revolutionize Your Vlog with These Elite 12 Cameras for 2024</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/updated-simplifying-the-image-blur-process-for-iphone-enthusiasts/"><u>[Updated] Simplifying the Image Blur Process for iPhone Enthusiasts</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-virtual-vanguards-the-leading-ladies-of-gaming/"><u>[Updated] Virtual Vanguards The Leading Ladies of Gaming</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/updated-why-youtubes-viewer-numbers-matter-more-than-you-think/"><u>[Updated] Why YouTube's Viewer Numbers Matter More Than You Think</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ver-the-most-reliable-royalty-free-audio-libraries/"><u>Discover the Most Reliable Royalty-Free Audio Libraries</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/in-2024-the-art-of-avatar-design-in-the-metaverse-explained-simply/"><u>In 2024, The Art of Avatar Design in the Metaverse Explained Simply</u></a></li>
-<li><a href="https://extra-information.techidaily.com/precision-zoom-mastery-in-microsoft-teams-sessions/"><u>Precision Zoom Mastery in Microsoft Teams Sessions</u></a></li>
-<li><a href="https://fox-access.techidaily.com/proven-techniques-to-follow-your-favorite-cricketers-live-for-2024/"><u>Proven Techniques to Follow Your Favorite Cricketers Live for 2024</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/unlock-these-9-compelling-advantages-by-upgrading-to-chatgpt-plus/"><u>Unlock These 9 Compelling Advantages by Upgrading to ChatGPT Plus</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/024-approved-premiere-masterclass-making-your-videos-shine-on-youtube/"><u>[New] 2024 Approved Premiere Masterclass Making Your Videos Shine on YouTube</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/new-unlock-your-full-potential-with-zd-softwares-advanced-screenshot-techniques-for-2024/"><u>[New] Unlock Your Full Potential with ZD Software's Advanced Screenshot Techniques for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/outube-affiliate-marketing-how-to-make-money-with-it/"><u>[New] YouTube Affiliate Marketing How to Make Money with It</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/updated-essential-audacity-techniques-for-mac-audio-recording-for-2024/"><u>[Updated] Essential Audacity Techniques for Mac Audio Recording for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-in-2024-free-and-easy-building-attractive-youtube-intros-without-expense/"><u>[Updated] In 2024, Free & Easy Building Attractive YouTube Intros without Expense</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/deciphering-generative-ai-the-complete-beginners-guide/"><u>Deciphering Generative AI: The Complete Beginner's Guide</u></a></li>
+<li><a href="https://article-tips.techidaily.com/discover-the-top-15-free-web-based-editing-solutions/"><u>Discover the Top 15 FREE Web-Based Editing Solutions</u></a></li>
+<li><a href="https://win-dash.techidaily.com/download-microsoft-apps-with-direct-installers-from-microsofts-official-store/"><u>Download Microsoft Apps with Direct Installers From Microsoft's Official Store</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/how-to-cast-tecno-pova-6-pro-5g-to-computer-for-iphone-and-android-drfone-by-drfone-android/"><u>How to Cast Tecno Pova 6 Pro 5G to Computer for iPhone and Android? | Dr.fone</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/24-the-experts-guide-quick-removal-of-your-youtube-comments/"><u>In 2024, The Expert's Guide Quick Removal of Your Youtube Comments</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-unlock-realme-narzo-n55-phone-password-without-factory-reset-full-guide-here-by-drfone-android/"><u>In 2024, Unlock Realme Narzo N55 Phone Password Without Factory Reset Full Guide Here</u></a></li>
+<li><a href="https://buynow-help.techidaily.com/in-depth-analysis-of-alienwares-premium-gaming-machine-the-unbeatable-aurora-r11-our-choice-for-best-pc-of-2021/"><u>In-Depth Analysis of Alienware's Premium Gaming Machine: The Unbeatable Aurora R11 - Our Choice for Best PC of 2021</u></a></li>
 </ul></div>
 

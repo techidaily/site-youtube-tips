@@ -1,7 +1,7 @@
 ---
 title: "[New] In 2024, Crafting Perfect YouTube Thumbnails on macOS"
-date: 2024-11-03T21:05:45.534Z
-updated: 2024-11-08T01:35:41.852Z
+date: 2024-11-15T21:28:56.919Z
+updated: 2024-11-17T18:27:08.688Z
 tags:
   - ai video
   - ai youtube
@@ -47,16 +47,16 @@ thumbnails are a significant factor in determining the number of views a Youtube
 
 If you don’t create a thumbnail then youtube will generate one by itself which may not be so enticing for viewers. The purpose of the thumbnail is to make your videos stand out among the rest so you need to pay attention to it!
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144275/7443" target="_top" id="2144275">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144275" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144275/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## How to make Youtube Thumbnails on Mac
 
 You can easily create interesting thumbnails for youtube videos using a thumbnail maker like[FilmoraX](https://tools.techidaily.com/wondershare/filmora/download/) . Here is a step by step guide:
-
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1528688/16446" target="_top" id="1528688">
-  <img src="//a.impactradius-go.com/display-ad/16446-1528688" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528688/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 1. Preview the video and choose the still snapshot
 
@@ -71,10 +71,10 @@ You can easily choose the frame from the video or use the preview frame button t
 ![thumbnails editor](https://images.wondershare.com/filmora/Mac-articles/thumbnails-editor.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082527/7443" target="_top" id="2082527">
-  <img src="//a.impactradius-go.com/display-ad/7443-2082527" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2027181/19272" target="_top" id="2027181">
+  <img src="//a.impactradius-go.com/display-ad/19272-2027181" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082527/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2027181/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 2. Add text, shape, and image overlays
@@ -84,10 +84,10 @@ Once you’ve chosen the frame for the thumbnail, the next step would be to add 
 ![add text on thumbnail](https://images.wondershare.com/filmora/Mac-articles/add-text-on-thumbnail.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2014859/22899" target="_top" id="2014859">
-  <img src="//a.impactradius-go.com/display-ad/22899-2014859" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1896505/19272" target="_top" id="1896505">
+  <img src="//a.impactradius-go.com/display-ad/19272-1896505" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014859/22899" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896505/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 3. Add effects
@@ -110,14 +110,14 @@ Hopefully, the above-mentioned steps have given you enough insight and clarity o
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2037346/7443" target="_top" id="2037346">
-  <img src="//a.impactradius-go.com/display-ad/7443-2037346" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037346/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://dhgate.sjv.io/c/5597632/2106655/12108" target="_top" id="2106655">
+  <img src="//a.impactradius-go.com/display-ad/12108-2106655" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://dhgate.sjv.io/i/5597632/2106655/12108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Shanoon Cox
 
@@ -140,22 +140,19 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-tips.techidaily.com/iscover-times-tales-top-10-historical-channels-to-study-with-for-2024/"><u>[New] Discover Time's Tales Top 10 Historical Channels to Study With for 2024</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ear-up-for-greatness-choosing-webcams-for-youtube-excellence/"><u>[New] Gear Up for Greatness Choosing Webcams for YouTube Excellence</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/n-2024-optimizing-ad-revenue-on-youtube-with-new-strategies/"><u>[New] In 2024, Optimizing Ad Revenue on YouTube with New Strategies</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/new-in-2024-srt-soundfile-compatibility-pc-and-mac/"><u>[New] In 2024, SRT Soundfile Compatibility PC & Mac</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/n-2024-ultimate-choice-5-sound-devices-for-streamers/"><u>[New] In 2024, Ultimate Choice 5 Sound Devices for Streamers</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/new-times-tail-in-snapchat-video-backtracking-guide-for-2024/"><u>[New] Time's Tail in Snapchat Video Backtracking Guide for 2024</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-experts-choice-aspertronics-for-phones/"><u>[Updated] Expert's Choice Aspertronics For Phones</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-the-essentials-to-carve-out-your-creative-space-for-2024/"><u>[Updated] The Essentials to Carve Out Your Creative Space for 2024</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-the-ultimate-guide-to-generating-ideal-youtube-titles-on-a-shoestring-for-2024/"><u>[Updated] The Ultimate Guide to Generating Ideal YouTube Titles on a Shoestring for 2024</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/vating-clicks-the-top-8-yt-thumbnails-to-use/"><u>Captivating Clicks The Top 8 YT Thumbnails to Use</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ring-youtubes-strategy-for-video-short-promotion-for-2024/"><u>Exploring YouTube's Strategy for Video Short Promotion for 2024</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/how-to-track-itel-p55-location-without-installing-software-drfone-by-drfone-virtual-android/"><u>How to Track Itel P55 Location without Installing Software? | Dr.fone</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/in-2024-mastering-the-art-of-selecting-peak-pace-for-slow-video-capture/"><u>In 2024, Mastering the Art of Selecting Peak Pace for Slow Video Capture</u></a></li>
-<li><a href="https://change-location.techidaily.com/in-2024-the-ultimate-guide-to-get-the-rare-candy-on-pokemon-go-fire-red-on-samsung-galaxy-a15-5g-drfone-by-drfone-virtual-android/"><u>In 2024, The Ultimate Guide to Get the Rare Candy on Pokemon Go Fire Red On Samsung Galaxy A15 5G | Dr.fone</u></a></li>
-<li><a href="https://data-safeguard.techidaily.com/optimized-with-advanced-web-tracker-technology/"><u>Optimized with Advanced Web Tracker Technology</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/unlock-iphones-full-potential-4-pro-tips-for-brightening-hdr-in-premiere-for-2024/"><u>Unlock iPhone's Full Potential 4 Pro Tips for Brightening HDR in Premiere for 2024</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ng-youtube-affiliate-deals-famebits-guide-to-earnings/"><u>Winning YouTube Affiliate Deals FameBit's Guide to Earnings</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/reating-impactful-outros-top-6-free-tools/"><u>[New] Creating Impactful Outros Top 6 FREE Tools</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-history-enthusiasts-guide-to-inspiring-youtube-channels/"><u>[New] In 2024, History Enthusiasts' Guide to Inspiring YouTube Channels</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-whats-your-potential-income-from-youtube-sponsored-videos/"><u>[New] In 2024, What's Your Potential Income From YouTube Sponsored Videos?</u></a></li>
+<li><a href="https://video-capture.techidaily.com/updated-2024-approved-unlocking-the-power-of-skype-recordings-on-windows-and-mac/"><u>[Updated] 2024 Approved Unlocking the Power of Skype Recordings on Windows & Mac</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/updated-2024-approved-unveiling-the-truth-about-sharex-reviews-and-options/"><u>[Updated] 2024 Approved Unveiling the Truth About ShareX Reviews & Options</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/updated-affordable-cloud-keep-optimal-pricing-for-huge-archives/"><u>[Updated] Affordable Cloud Keep Optimal Pricing for Huge Archives</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-the-journey-to-behind-the-camera-expertise-via-youtube-for-2024/"><u>[Updated] The Journey to Behind-the-Camera Expertise via YouTube for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-the-ultimate-list-best-tvs-for-ps5xbox-series-x-games/"><u>[Updated] The Ultimate List Best TVs for PS5/Xbox Series X Games</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/approved-the-ultimate-guide-to-antique-themed-cinematography/"><u>2024 Approved The Ultimate Guide to Antique-Themed Cinematography</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/configuring-your-mac-to-access-shared-folders-a-comprehensive-tutorial/"><u>Configuring Your Mac to Access Shared Folders - A Comprehensive Tutorial</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/expert-review-of-samsung-galaxy-watch-active-your-trusted-partner-for-tracking-wellbeing-and-activity/"><u>Expert Review of Samsung Galaxy Watch Active – Your Trusted Partner for Tracking Wellbeing and Activity</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/in-2024-aerial-innovations-explained-drone-technology-simplified/"><u>In 2024, Aerial Innovations Explained Drone Technology Simplified</u></a></li>
+<li><a href="https://howto.techidaily.com/quick-fixes-for-why-is-my-honor-magic-6-pro-black-and-white-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Quick Fixes for Why Is My Honor Magic 6 Pro Black and White | Dr.fone</u></a></li>
+<li><a href="https://games-able.techidaily.com/unleashing-game-potential-with-steam-here-are-9-ways/"><u>Unleashing Game Potential with Steam, Here Are 9 Ways</u></a></li>
 </ul></div>
 

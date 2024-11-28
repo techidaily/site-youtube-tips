@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Solo Self-Portraits on YouTube  How to Impress Viewers\""
-date: 2024-11-01T16:59:06.722Z
-updated: 2024-11-07T21:48:32.132Z
+date: 2024-11-10T16:01:36.836Z
+updated: 2024-11-18T03:13:43.971Z
 tags:
   - ai video
   - ai youtube
@@ -45,10 +45,10 @@ We’ve summarized the key points about setting up talking head style video shot
 ## How to Set Up Your Talking-Head Shots for YouTube \[4 Ways\]
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115937/19272" target="_top" id="2115937">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115937" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/1062447/7443" target="_top" id="1062447">
+  <img src="//a.impactradius-go.com/display-ad/7443-1062447" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115937/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/1062447/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 1.  Close Quarters Wide-Angle Vlog Set-Up
@@ -87,6 +87,13 @@ If you look back at the 39-second mark of deadmau5’s Masterclass trailer, you 
 
 With two people, though, you’ll want to set up your mic slightly differently. Rather than using a directional shotgun mic with a narrow area of sensitivity, you’ll want to use a directional mic with a wider area of sensitivity.
 
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1484939/16446" target="_top" id="1484939">
+  <img src="//a.impactradius-go.com/display-ad/16446-1484939" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484939/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 4.  Long Teleprompter Vlog Set-Up
 
 If you want to read over a script but still make it appear like you’re looking straight into the camera, you’ll need to use a long teleprompter vlog set-up.
@@ -104,10 +111,16 @@ It is difficult to know whether the movement in his eyes is caused by not being 
 Looking to find the right lights for your video recording set? Check out our [Top 17 Video Lighting Equipment For YouTubers](https://www.filmora.io/community-blog/top-17-video-lighting-equipment-for-youtubers-440.html).
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123732/7443" target="_top" id="2123732">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123732" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123732/7443" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1983551">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983551.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983551">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983551.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983551%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983551/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Tips for Making a Talking Head Video Better
@@ -117,26 +130,13 @@ To make a talking-head video more interesting, you can add some background music
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<span id="1424531">
-					<video width="864" height="NaN" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1424531.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1424531">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424531.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424531%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424531/16446" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2130529/26400" target="_top" id="2130529">
+  <img src="//a.impactradius-go.com/display-ad/26400-2130529" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130529/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/2137973/21526" target="_top" id="2137973">
-  <img src="//a.impactradius-go.com/display-ad/21526-2137973" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://zebaoaffiliateprogram.pxf.io/i/5597632/2137973/21526" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -159,16 +159,19 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-tips.techidaily.com/est-youtube-to-mp3-converters-free-download-onlinewinmac/"><u>[New] Best YouTube to MP3 Converters Free Download [Online/Win/Mac]</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/n-2024-synchronize-content-releases-with-audience-activity-cycles/"><u>[New] In 2024, Synchronize Content Releases with Audience Activity Cycles</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ourney-journaling-paving-your-way-in-the-world-of-travel-vlogging/"><u>[New] Journey Journaling Paving Your Way in the World of Travel Vlogging</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/new-peek-into-pixel-play-resolution-basics-explained/"><u>[New] Peek Into Pixel Play Resolution Basics Explained</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/new-the-foundational-guide-to-navigating-zoom-meetings-for-2024/"><u>[New] The Foundational Guide to Navigating Zoom Meetings for 2024</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-in-2024-premier-video-breakdown-fifa-analysis-graphs/"><u>[Updated] In 2024, Premier Video Breakdown FIFA Analysis Graphs</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/1-free-online-tool-easily-transform-mobile-files-into-print-ready-pdfs/"><u>1. Free Online Tool: Easily Transform Mobile Files Into Print-Ready PDFs</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/tial-photo-tools-top-9-camgear-enhancers-for-filmmakers/"><u>Essential Photo Tools Top 9 CamGear Enhancers for Filmmakers</u></a></li>
-<li><a href="https://fake-location.techidaily.com/life360-learn-how-everything-works-on-tecno-camon-20-pro-5g-drfone-by-drfone-virtual-android/"><u>Life360 Learn How Everything Works On Tecno Camon 20 Pro 5G | Dr.fone</u></a></li>
-<li><a href="https://fix-guide.techidaily.com/reliable-user-guide-to-fix-oneplus-nord-n30-5g-running-slow-and-freezing-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Reliable User Guide to Fix OnePlus Nord N30 5G Running Slow and Freezing | Dr.fone</u></a></li>
-<li><a href="https://hardware-tips.techidaily.com/sub-130-premium-surround-sound-with-new-drop-blanket-speaker-for-your-desk-explore-reviews-at-zdnet/"><u>Sub-$130 Premium Surround Sound with New Drop Blanket Speaker for Your Desk | Explore Reviews at ZDNET</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/024-approved-less-is-more-the-best-video-url-reducers-revealed/"><u>[New] 2024 Approved Less Is More The Best Video URL Reducers Revealed</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-2024-approved-step-by-step-guide-to-annotate-windows-photos-video-content/"><u>[New] 2024 Approved Step-by-Step Guide to Annotate Windows Photos Video Content</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-from-footage-to-frame-crafting-youtube-thumbnails-on-mobile-devices/"><u>[New] In 2024, From Footage to Frame Crafting YouTube Thumbnails on Mobile Devices</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-in-2024-maximize-views-with-these-top-rated-keyword-analysis-tools/"><u>[Updated] In 2024, Maximize Views with These Top-Rated Keyword Analysis Tools</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-in-2024-premier-gamers-streaming-software/"><u>[Updated] In 2024, Premier Gamers' Streaming Software</u></a></li>
+<li><a href="https://fox-access.techidaily.com/updated-in-2024-rewind-revolution-iphones-time-turning-ability/"><u>[Updated] In 2024, Rewind Revolution IPhone's Time-Turning Ability</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/approved-making-your-slides-come-alive-with-youtube-in-ppt/"><u>2024 Approved Making Your Slides Come Alive with YouTube in PPT</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/2024-approved-simplified-guide-to-google-meet-on-youtube-broadcasting/"><u>2024 Approved Simplified Guide to Google Meet on YouTube Broadcasting</u></a></li>
+<li><a href="https://howto.techidaily.com/6-fixes-to-unfortunately-whatsapp-has-stopped-error-popups-on-honor-x50iplus-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>6 Fixes to Unfortunately WhatsApp has stopped Error Popups On Honor X50i+ | Dr.fone</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/o-captivate-audience-attention-with-your-yt-shorts/"><u>How to Captivate Audience Attention with Your YT Shorts</u></a></li>
+<li><a href="https://win-dash.techidaily.com/how-to-flawlessly-update-corsair-headset-drivers-on-microsofts-operating-system/"><u>How to Flawlessly Update Corsair Headset Drivers on Microsoft's Operating System</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/smoother-video-playback-on-chromebook-and-mobile-devices/"><u>Smoother Video Playback on Chromebook & Mobile Devices</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/top-rated-desktop-mats-of-the-year-2024-ultimate-comfort-and-performance/"><u>Top-Rated Desktop Mats of the Year 2024: Ultimate Comfort & Performance</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/windows-photo-fix-a-comprehensive-camera-problem-solver/"><u>Windows Photo Fix: A Comprehensive Camera Problem Solver</u></a></li>
 </ul></div>
 

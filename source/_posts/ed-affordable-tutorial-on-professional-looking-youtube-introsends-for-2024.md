@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Affordable Tutorial on Professional Looking YouTube Intros/Ends for 2024"
-date: 2024-09-06T03:40:43.832Z
-updated: 2024-09-07T03:40:43.832Z
+date: 2024-11-14T21:43:01.003Z
+updated: 2024-11-18T07:47:27.643Z
 tags:
   - ai video
   - ai youtube
@@ -14,30 +14,12 @@ keywords: "\"Low-Cost Intro Tips,Engaging Video Starts,Professional Video Ends,D
 thumbnail: https://thmb.techidaily.com/772b2b44b0378e57e7141a2aa999a88263926bcf3e3ae208c5af8f61bf24deca.jpg
 ---
 
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2123471/16836" target="_top" id="2123471">
-  <img src="//a.impactradius-go.com/display-ad/16836-2123471" border="0" alt="https://techidaily.com" width="234" height="60"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123471/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Affordable Tutorial on Professional Looking YouTube Intros/Ends
 
 # How to Create YouTube Intros & End Cards - Free and Easy
 
 ![](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
-<!-- affiliate ads begin -->
-<span id="1982461">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982461.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982461">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982461.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982461%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982461/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ##### Shanoon Cox
 
  Oct 26, 2023• Proven solutions
@@ -58,12 +40,6 @@ thumbnail: https://thmb.techidaily.com/772b2b44b0378e57e7141a2aa999a88263926bcf3
 
 [How To Make an End Card](#how-to)
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134497/18498" target="_top" id="2134497">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134497" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134497/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Part1: Intros
 
 #### Elements of an Intro
@@ -92,12 +68,6 @@ You can create a simple intro card in **Filmora**.
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135412/19272" target="_top" id="2135412">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135412" border="0" alt="https://techidaily.com" width="250" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135412/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 1. Choose your background. You may want to use a short clip as your intro, or you may just want a colored background.
 2. Drag your clip or background into the video track of your timeline and trim it down to five seconds.
 3. If you have a logo, import it into Filmora and drag it into your picture-in-picture track.
@@ -108,11 +78,12 @@ You can create a simple intro card in **Filmora**.
 8. Export your video and save it for use in all of your other videos.
 
 <!-- affiliate ads begin -->
-<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/2137973/21526" target="_top" id="2137973">
-  <img src="//a.impactradius-go.com/display-ad/21526-2137973" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://malaysia-healthcare-travel-council.pxf.io/c/5597632/1576474/17382" target="_top" id="1576474">
+  <img src="//a.impactradius-go.com/display-ad/17382-1576474" border="0" alt="https://techidaily.com" width="160" height="90"/>
 </a>
-<img height="0" width="0" src="https://zebaoaffiliateprogram.pxf.io/i/5597632/2137973/21526" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://malaysia-healthcare-travel-council.pxf.io/i/5597632/1576474/17382" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Part 2: End Cards
 
 When your video ends, YouTube will recommend a selection of videos users may want to watch next. Often, these recommendations will not include more of your videos.
@@ -149,25 +120,23 @@ Some creators will leave their end cards at that and play music overtop, but it 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://review-au.sjv.io/c/5597632/2098703/14409" target="_top" id="2098703">
-  <img src="//a.impactradius-go.com/display-ad/14409-2098703" border="0" alt="https://techidaily.com" width="468" height="60"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1880944/19272" target="_top" id="1880944">
+  <img src="//a.impactradius-go.com/display-ad/19272-1880944" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098703/14409" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880944/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 Shanoon Cox
 
 Shanoon Cox is a writer and a lover of all things video.
 
 Follow @Shanoon Cox
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -176,4 +145,26 @@ Follow @Shanoon Cox
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-clips.techidaily.com/new-in-2024-instagram-story-viewers-uncharted-territory-explored/"><u>[New] In 2024, Instagram Story Viewers Uncharted Territory Explored</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-2024-approved-how-to-get-your-youtube-video-seen-6-easy-steps/"><u>[Updated] 2024 Approved How to Get Your YouTube Video Seen - 6 Easy Steps</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-2024-approved-the-smart-way-to-enhance-your-youtube-presence-legally/"><u>[Updated] 2024 Approved The Smart Way to Enhance Your YouTube Presence Legally</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-2024-approved-top-5-winter-frameworks-for-comfortable-cinematography/"><u>[Updated] 2024 Approved Top 5 Winter Frameworks for Comfortable Cinematography</u></a></li>
+<li><a href="https://video-capture.techidaily.com/updated-creative-uses-for-home-webcams-for-2024/"><u>[Updated] Creative Uses for Home Webcams for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/approved-the-essential-tools-every-new-creator-needs/"><u>2024 Approved The Essential Tools Every New Creator Needs</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/3-easy-ways-to-factory-reset-a-locked-iphone-15-plus-without-itunes-by-drfone-ios/"><u>3 Easy Ways to Factory Reset a Locked iPhone 15 Plus Without iTunes</u></a></li>
+<li><a href="https://techidaily.com/how-to-factory-reset-oneplus-ace-3-if-i-forgot-security-code-or-password-drfone-by-drfone-reset-android-reset-android/"><u>How to Factory Reset OnePlus Ace 3 If I Forgot Security Code or Password? | Dr.fone</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-how-pgsharp-save-you-from-ban-while-spoofing-pokemon-go-on-apple-iphone-13-drfone-by-drfone-virtual-ios/"><u>In 2024, How PGSharp Save You from Ban While Spoofing Pokemon Go On Apple iPhone 13? | Dr.fone</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/24-peering-into-payment-structures-for-maker-profit-in-video-shorts/"><u>In 2024, Peering Into Payment Structures for Maker Profit in Video Shorts</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/24-quick-guide-youtube-soundtracks-to-mp3-for-macos-2shift/"><u>In 2024, Quick Guide YouTube Soundtracks to MP3 for MacOS 2Shift</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/e-the-monetization-maze-dailymotion-vs-youtube/"><u>Inside the Monetization Maze Dailymotion vs YouTube</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/master-the-proper-technique-for-handling-iphones-and-airpods-effectively-insights/"><u>Master The Proper Technique for Handling iPhones & AirPods Effectively Insights</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/pythons-role-in-harnessing-gpt-3/"><u>Python's Role in Harnessing GPT-3</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/k-vs-youtube-shorts-best-platform-for-individual-use/"><u>TikTok vs YouTube Shorts Best Platform for Individual Use</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/troubleshooting-how-to-determine-if-netflix-is-currently-offline-and-solutions/"><u>Troubleshooting: How to Determine if Netflix Is Currently Offline & Solutions</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/shing-youtube-potential-the-best-shortcuts-to-higher-views-for-2024/"><u>Unleashing YouTube Potential The Best Shortcuts to Higher Views for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/l-creativity-15plus-free-tools-for-youtube-intros-for-2024/"><u>Unveil Creativity 15+ Free Tools for YouTube Intros for 2024</u></a></li>
+<li><a href="https://ai-video-apps.techidaily.com/updated-in-2024-from-lol-to-omg-the-best-meme-generator-apps/"><u>Updated In 2024, From LOL to OMG The Best Meme Generator Apps</u></a></li>
+</ul></div>
 

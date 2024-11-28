@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Transforming Web Popularity Into Video Concepts Using Google Trends"
-date: 2024-11-06T03:10:51.717Z
-updated: 2024-11-07T23:52:56.791Z
+date: 2024-11-12T04:15:56.243Z
+updated: 2024-11-18T08:14:27.239Z
 tags:
   - ai video
   - ai youtube
@@ -61,13 +61,6 @@ On top you will see two drop-down menus, one is for the category and one is for 
 
 ![Google Trends Video Ideas](https://images.wondershare.com/filmora/article-images/google-trends-video-ideas.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2100530/7443" target="_top" id="2100530">
-  <img src="//a.impactradius-go.com/display-ad/7443-2100530" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100530/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Under **All categories** select the general theme your channel falls under.
 
 Your options are business, entertainment, health, Sci/Tech, sports, and top stories.
@@ -83,10 +76,10 @@ For example, if you have a gaming channel and you’re looking for a non-gamepla
 ![Google Trends Category YouTube Video Ideas](https://images.wondershare.com/filmora/article-images/google-trends-categories.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118322/7443" target="_top" id="2118322">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118322" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2130532/26400" target="_top" id="2130532">
+  <img src="//a.impactradius-go.com/display-ad/26400-2130532" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118322/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130532/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 The first two happen to be about gaming. If you, as a gamer, had any strong reaction to either of these topics – whether it’s that you feel like you’re knowledgeable about them, or that you’re excited by something that’s coming up, or that something made you groan – then that would be a sign that you should make a video. Capitalizing on a trend while also covering a topic you have a lot to say about is always a good move.
@@ -94,6 +87,13 @@ The first two happen to be about gaming. If you, as a gamer, had any strong reac
 Having something to say doesn’t have to mean having a strong opinion. If you just find something interesting and want to pass the information along to your viewers then that’s great too.
 
 Clicking on these results will give you more specific data including how often the topic has been searched recently and links to recent news articles. These can give you a better idea of why it is trending and help you come up with what you want to say.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115921/19272" target="_top" id="2115921">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115921" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115921/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Part 3: Battle of the Keywords
 
@@ -105,13 +105,6 @@ Once you have a keyword in mind, type it into the Explore bar at the top of your
 
 ![Google Trends Keywords YouTube Video](https://images.wondershare.com/filmora/article-images/explore-topic-in-google-trends.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1896546/19272" target="_top" id="1896546">
-  <img src="//a.impactradius-go.com/display-ad/19272-1896546" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896546/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 What happens after you click **enter** is pretty much magic. Say I want to make a video on how to use Filmora. The first thing I’ll type into that Explore bar is ‘Filmora’.
 
 ![Google Trends YouTube Video Keywords](https://images.wondershare.com/filmora/article-images/google-trends-search-term.jpg)
@@ -120,6 +113,13 @@ You can see near the top that this chart represents searches for the topic over 
 
 ![Google Trends YouTube Video Ideas Filmora](https://images.wondershare.com/filmora/article-images/google-trends-search-term-time-range.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2094414/7443" target="_top" id="2094414">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094414" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094414/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 There, now I can see how the popularity of Filmora as a search term has spiked on specific days and times (if you hover over a spike it tells you the time and day) and plan to post my video at a time that capitalizes on these trends.
 
 Next, what other words do I want to include in my video title? Is this a review, a tutorial, or a how-to? By clicking on my search term Filmora, I can edit it to read ‘filmora review’. Then I can click **\+ Compare** and type in ‘filmora tutorial’ and ‘how to use Filmora’. Google Trends will create a chart comparing the popularity of those 3 terms.
@@ -127,10 +127,10 @@ Next, what other words do I want to include in my video title? Is this a review,
 ![Google Trends Filmora Keywords](https://images.wondershare.com/filmora/article-images/google-trends-search-term-comparison.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135366/19272" target="_top" id="2135366">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135366" border="0" alt="https://techidaily.com" width="160" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2075476/7443" target="_top" id="2075476">
+  <img src="//a.impactradius-go.com/display-ad/7443-2075476" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135366/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075476/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 _I also ‘zoomed out’ to 90 days – if I’d only looked at how they compared over the last week my results could have been skewed._
@@ -180,22 +180,22 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://remote-screen-capture.techidaily.com/new-2024-approved-screen-streaming-showdown-choose-between-obs-and-shadowgl/"><u>[New] 2024 Approved Screen Streaming Showdown Choose Between OBS & ShadowGL</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/new-in-2024-metaverse-vs-multimetaverse-elucidating-the-variances-ultimate-guide/"><u>[New] In 2024, Metaverse Vs. MultiMetaverse Elucidating the Variances (Ultimate Guide)</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/n-2024-the-counter-flow-strategy-reversing-your-youtube-video-sequence/"><u>[New] In 2024, The Counter-Flow Strategy Reversing Your YouTube Video Sequence</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/updated-2024-approved-guardians-of-the-screen-the-best-webcam-cover-options/"><u>[Updated] 2024 Approved Guardians of the Screen - The Best Webcam Cover Options</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-2024-approved-the-complete-playbook-for-broadcasting-spherical-content-on-youtube/"><u>[Updated] 2024 Approved The Complete Playbook for Broadcasting Spherical Content on Youtube</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-2024-approved-which-creator-are-you-find-out-through-these-pioneering-6-quizzes/"><u>[Updated] 2024 Approved Which Creator Are You? Find Out Through These Pioneering 6 Quizzes</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-in-2024-viral-video-legends-youtubed-for-millions/"><u>[Updated] In 2024, Viral Video Legends YouTubed for Millions</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-synthesizing-waterway-content-with-impact-for-2024/"><u>[Updated] Synthesizing Waterway Content with Impact for 2024</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-the-travel-bloggers-blueprint-strategies-for-professional-growth-for-2024/"><u>[Updated] The Travel Blogger's Blueprint Strategies for Professional Growth for 2024</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-the-ultimate-guide-to-saving-youtube-tracks-and-dialogues-for-2024/"><u>[Updated] The Ultimate Guide to Saving YouTube Tracks & Dialogues for 2024</u></a></li>
-<li><a href="https://review-topics.techidaily.com/how-to-transfer-whatsapp-from-iphone-8-to-other-iphone-15-pro-max-devices-drfone-by-drfone-transfer-whatsapp-from-ios-transfer-whatsapp-from-ios/"><u>How To Transfer WhatsApp From iPhone 8 to other iPhone 15 Pro Max devices? | Dr.fone</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/in-2024-a-complete-guide-to-oem-unlocking-on-oneplus-ace-2v-by-drfone-android/"><u>In 2024, A Complete Guide To OEM Unlocking on OnePlus Ace 2V</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/in-2024-how-to-avoid-the-biggest-slip-ups-for-new-youtube-enthusiasts/"><u>In 2024, How to Avoid the Biggest Slip-Ups for New YouTube Enthusiasts!</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/myvidhub-testing-a-quest-for-more-features-in-2024/"><u>MyVidHub Testing A Quest for More Features, In 2024</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/surging-interest-through-effective-strategies-for-fb-giveaway-promotions/"><u>Surging Interest Through Effective Strategies for FB Giveaway Promotions</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/makers-playbook-recipes-for-attractive-channel-names-for-2024/"><u>Tastemakers' Playbook Recipes for Attractive Channel Names for 2024</u></a></li>
-<li><a href="https://techidaily.com/what-to-do-if-iphone-14-pro-is-not-listed-when-i-run-the-software-stellar-by-stellar-data-recovery-ios-iphone-data-recovery/"><u>What to do if iPhone 14 Pro is not listed when I run the software? | Stellar</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-2024-approved-apoyo-affordable-lightroom-counterparts-reviewed/"><u>[New] 2024 Approved Apoyo Affordable Lightroom Counterparts Reviewed</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/new-top-12-free-youtube-thumbnail-makers-filmora/"><u>[New] Top 12 Free YouTube Thumbnail Makers - Filmora</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-2024-approved-dynamic-youtube-follower-analyzers/"><u>[Updated] 2024 Approved Dynamic YouTube Follower Analyzers</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-2024-approved-leveraging-technology-for-flawless-youtube-cc-and-subtitled-videos/"><u>[Updated] 2024 Approved Leveraging Technology for Flawless YouTube CC & Subtitled Videos</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-2024-approved-quick-tunes-explore-video-music-characters/"><u>[Updated] 2024 Approved Quick Tunes Explore Video Music Characters</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-in-2024-get-rid-of-youtube-distractions-ad-blocking-on-chrome-firefox-and-ios/"><u>[Updated] In 2024, Get Rid of YouTube Distractions Ad-Blocking on Chrome, Firefox & iOS</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-swiftly-adjust-video-speeds-a-users-guide-to-youtube-features-for-2024/"><u>[Updated] Swiftly Adjust Video Speeds A User's Guide to YouTube Features for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-the-easy-way-to-embed-youtube-into-google-slides-for-2024/"><u>[Updated] The Easy Way to Embed YouTube Into Google Slides for 2024</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/2024-approved-5-simple-steps-to-record-your-youtube-streams/"><u>2024 Approved 5 Simple Steps to Record Your YouTube Streams</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/approved-elevate-your-channels-image-for-boosted-youtube-subscriptions/"><u>2024 Approved Elevate Your Channels' Image for Boosted YouTube Subscriptions</u></a></li>
+<li><a href="https://techidaily.com/all-things-you-need-to-know-about-wipe-datafactory-reset-for-oppo-find-x6-drfone-by-drfone-reset-android-reset-android/"><u>All Things You Need to Know about Wipe Data/Factory Reset For Oppo Find X6 | Dr.fone</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/24-creating-engaging-youtube-openings-and-closers-for-free/"><u>In 2024, Creating Engaging YouTube Openings & Closers for Free</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/in-2024-elite-apps-for-secure-android-cloud-vaults/"><u>In 2024, Elite Apps for Secure Android Cloud Vaults</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/in-2024-extract-soundtrack-of-fb-events/"><u>In 2024, Extract Soundtrack of FB Events</u></a></li>
+<li><a href="https://extra-support.techidaily.com/in-2024-navigating-lut-use-in-professional-video-editing/"><u>In 2024, Navigating LUT Use in Professional Video Editing</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/pros-and-cons-the-best-vr-gear-for-your-hands-for-2024/"><u>Pros and Cons The Best VR Gear for Your Hands for 2024</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/the-best-android-unlock-software-for-oppo-a1-5g-device-top-5-picks-to-remove-android-locks-by-drfone-android/"><u>The Best Android Unlock Software For Oppo A1 5G Device Top 5 Picks to Remove Android Locks</u></a></li>
 </ul></div>
 

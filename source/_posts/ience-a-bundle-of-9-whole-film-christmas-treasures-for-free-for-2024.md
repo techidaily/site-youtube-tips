@@ -1,7 +1,7 @@
 ---
 title: "\"Experience a Bundle of 9 Whole-Film Christmas Treasures for Free for 2024\""
-date: 2024-11-06T19:01:49.239Z
-updated: 2024-11-07T16:45:35.221Z
+date: 2024-11-11T04:56:04.789Z
+updated: 2024-11-17T21:47:51.335Z
 tags:
   - ai video
   - ai youtube
@@ -35,23 +35,9 @@ If you are looking for Christmas entertainment this season you may be quick to l
 
 The Nutcracker is a holiday classic that many people seek out every year on the stage. This family ballet classic was filmed by the Pacific Northwest ballet in a huge and lavish version of the production in 1986\. This still stands as one of the best versions of the Nutcracker ever captured on film and you can watch it for free on YouTube. You can find the Nutcracker at :
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2043662/7443" target="_top" id="2043662">
-  <img src="//a.impactradius-go.com/display-ad/7443-2043662" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043662/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 2. A smoky mountain Christmas
 
 A Smoky Mountain Christmas is a film from 1986 directed by Harry Winkler and starring Lee Majors and Dolly Parton. The full musical fairy tale can be found online on YouTube and it's about a country singer who is trying to spend a quiet Christmas holiday at home. She suddenly becomes involved with a mysterious mountain man, an evil witch and is forced to protect seven orphans over the holidays. This film can be found at:
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2080347/19272" target="_top" id="2080347">
-  <img src="//a.impactradius-go.com/display-ad/19272-2080347" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2080347/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 3. Ernest saves Christmas
 
@@ -61,41 +47,61 @@ This film from 1989 features Jim Varney and his most famous character Ernest in 
 
 A Christmas story has long been one of the favorite Christmas movies for many families. In this film from 1983 we travel back in time to a traditional 1940s Christmas. In this film we follow the nine-year-old Ralphie who is looking for the famous red Ryder BB gun for Christmas and will stop at absolutely nothing to get it. A Christmas story can be found at:
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2006941/19272" target="_top" id="2006941">
+  <img src="//a.impactradius-go.com/display-ad/19272-2006941" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006941/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 5. Richie Rich's Christmas wish
 
 In this film from 1998 we hear the story of the richest kid in the world on Christmas. In this film we see the richest in the world wishing that he had never been born with the wish coming true. Richie needs to find himself a new wishing machine and a way out of the parallel universe he gets stuck in to get back to his family. You can find this film at:
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118314/7443" target="_top" id="2118314">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118314" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118314/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 6. On the second day of Christmas
 
 This film stars the hulk Mark Ruffalo in one of his earlier roles as a store employee who catches a con woman trying to steal from a department store on Christmas. His character agrees to be responsible for the con woman and her niece over the holidays to prevent them from staying with social services. A romance develops! This 1997 film can be found at:
 
 <!-- affiliate ads begin -->
-<span id="1982508">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982508.png"
+<span id="1304647">
+					<video width="240" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1304647.png"
            onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982508">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982508.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	   <source src="//a.impactradius-go.com/display-ad/15852-1304647">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1304647.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
 	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982508%2F22993'), '_blank');void(0);">Click here</a></div>
+	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1304647%2F15852'), '_blank');void(0);">Click here</a></div>
 </span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982508/22993" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1304647/15852" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 7. Santa Who?
 
 Santa who is a film from the year 2000 starring Leslie Nielsen. In this holiday classic Santa suffers a severe case of amnesia on Christmas Eve and needs to recover for Christmas day in order to make it through and deliver presents to all of the good children of the world. See if Santa gets his Christmas memories back by watching Santa Who here:
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1896527/19272" target="_top" id="1896527">
+  <img src="//a.impactradius-go.com/display-ad/19272-1896527" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896527/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 8. A Christmas Carol
 
 In this film from 1984 George C Scott brings to life the role of Ebenezer Scrooge from the perspective of the Charles Dickens novel. This is heavily been regarded as one of the most accurate versions to the Charles Dickens story. Although it may not have all of the special effects of some of the other versions of a Christmas carol this is still one of the favored versions of the story out there. You can watch this 1984 film here:
+
+<!-- affiliate ads begin -->
+<span id="1484963">
+					<video width="864" height="864" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1484963.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1484963">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1484963.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1484963%2F16446'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1484963/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 9. Miracle on 34th street
 
@@ -124,20 +130,17 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-tips.techidaily.com/ow-to-send-hidden-youtube-videos-using-google-login-for-2024/"><u>[New] How to Send Hidden YouTube Videos Using Google Login for 2024</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-2024-approved-explore-and-download-50-free-youtube-banners/"><u>[Updated] 2024 Approved Explore & Download 50 FREE YouTube Banners!</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-2024-approved-miniature-marketers-guide-to-video-promos-infographic/"><u>[Updated] 2024 Approved Miniature Marketer's Guide to Video Promos (Infographic)</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-2024-approved-visual-warmth-in-winter-selecting-the-best-bgs/"><u>[Updated] 2024 Approved Visual Warmth in Winter Selecting the Best Bgs</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/updated-av1-decoded-a-novices-introduction/"><u>[Updated] AV1 Decoded A Novice's Introduction</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/updated-in-2024-expert-picks-top-10-live-broadcast-apps-for-basketball-and-soccer-fans/"><u>[Updated] In 2024, Expert Picks Top 10 Live-Broadcast Apps for Basketball and Soccer Fans</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-transforming-channels-with-powerful-visual-branding-strategies/"><u>[Updated] In 2024, Transforming Channels with Powerful Visual Branding Strategies</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-unlocking-video-popularity-a-comprehensive-guide-to-tagging-on-youtube/"><u>[Updated] Unlocking Video Popularity A Comprehensive Guide to Tagging on YouTube</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-youtube-video-enhancement-through-strategic-illumination-methods-for-2024/"><u>[Updated] YouTube Video Enhancement Through Strategic Illumination Methods for 2024</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/download-and-update-thinkpad-t420s-drivers-for-windows-11-a-comprehensive-guide/"><u>Download and Update ThinkPad T420s Drivers for Windows 11: A Comprehensive Guide</u></a></li>
-<li><a href="https://driver-install.techidaily.com/easy-amd-driver-management-downloadplusupdate-techniques/"><u>Easy AMD Driver Management: Download+Update Techniques</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/fossils-sport-series-the-perfect-blend-of-economy-and-excellence-revealed/"><u>Fossil's Sport Series - The Perfect Blend of Economy and Excellence Revealed!</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/in-2024-mastering-lock-screen-settings-how-to-enable-and-disable-on-infinix-note-30i-by-drfone-android/"><u>In 2024, Mastering Lock Screen Settings How to Enable and Disable on Infinix Note 30i</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210683359-9782807347717-soulager-la-douleur-avec-la-pleine-conscience-apaiser-reduire-le-stress-et-restaurer-le-bien-etre-programme-breathworks-mbpm/"><u>Soulager la douleur avec la pleine conscience : Apaiser réduire le stress et restaurer le bien-être - Programme Breathworks - MBPM | Free Book</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ame-changers-the-elite-ladies-in-gaming-for-2024/"><u>YT's Game Changers The Elite Ladies in Gaming for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-2024-approved-streamlining-multiple-youtube-videos-into-one/"><u>[Updated] 2024 Approved Streamlining Multiple YouTube Videos Into One</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/updated-2024-approved-top-group-video-chat-apps-you-should-know-for-video-conferences-and-meetings/"><u>[Updated] 2024 Approved Top Group Video Chat Apps You Should Know [For Video Conferences and Meetings]</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-2024-approved-top-minded-channels-ultimate-yt-educational-guide/"><u>[Updated] 2024 Approved Top Minded Channels Ultimate YT Educational Guide</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-in-seconds-life-on-fb-for-2024/"><u>[Updated] In Seconds, Life On FB for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-masterful-guide-to-professional-online-etiquette-on-youtube-for-2024/"><u>[Updated] Masterful Guide to Professional Online Etiquette on YouTube for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-step-up-to-stardom-10-pro-tips-for-pixlr-excellence/"><u>[Updated] Step up to Stardom 10 Pro Tips for Pixlr Excellence</u></a></li>
+<li><a href="https://some-skills.techidaily.com/updated-top-10-audio-playback-accelerators-for-phones/"><u>[Updated] Top 10 Audio Playback Accelerators for Phones</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-visionary-video-download-engine-capture-and-save-anywhere/"><u>[Updated] Visionary Video Download Engine - Capture & Save Anywhere</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ing-fast-fortnite-icons-in-minutes-for-2024/"><u>Crafting Fast Fortnite Icons in Minutes for 2024</u></a></li>
+<li><a href="https://win11.techidaily.com/crafting-individualized-gpo-settings-a-windows-11-masterclass/"><u>Crafting Individualized GPO Settings: A Windows 11 Masterclass</u></a></li>
+<li><a href="https://fox-info.techidaily.com/pinnacle-of-camera-quality-top-18-4k-camcorders-for-2024/"><u>Pinnacle of Camera Quality - Top 18 4K Camcorders for 2024</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/the-ultimate-guide-to-unlocking-apple-watch-or-apple-iphone-8-plus-from-icloud-by-drfone-ios/"><u>The Ultimate Guide to Unlocking Apple Watch Or Apple iPhone 8 Plus from iCloud</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "\"[New] In 2024, Mastery in Removing Online Video Post-Comments\""
-date: 2024-11-07T00:53:23.634Z
-updated: 2024-11-07T22:18:44.263Z
+date: 2024-11-16T17:13:07.848Z
+updated: 2024-11-18T08:06:10.026Z
 tags:
   - ai video
   - ai youtube
@@ -53,10 +53,10 @@ In this section, we will tell you how you can do it from your desktop.
 You also have the option to report the comment or [hide the user from your channel](https://tools.techidaily.com/wondershare/filmora/download/).
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135352/19272" target="_top" id="2135352">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135352" border="0" alt="https://techidaily.com" width="160" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2134237/18498" target="_top" id="2134237">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134237" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135352/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134237/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## How to Delete All YouTube Comments from Mobile?
@@ -70,16 +70,10 @@ The steps to deleting someone else’s YouTube comments from your mobile are sim
 5. This will create another dialog box on the mobile app where you have to click on Remove again to delete the comment.
 
 <!-- affiliate ads begin -->
-<span id="1976998">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1976998.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1976998">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1976998.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1976998%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1976998/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://wigfever.sjv.io/c/5597632/2005196/22899" target="_top" id="2005196">
+  <img src="//a.impactradius-go.com/display-ad/22899-2005196" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2005196/22899" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## How Do You Delete Your Comments from YouTube?
@@ -142,10 +136,10 @@ You can also delete all comments you ever posted on any YouTube video by hiding 
 ![   YouTube Advanced  Settings](https://images.wondershare.com/filmora/article-images/youtube-advanced-settings.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137223/26400" target="_top" id="2137223">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137223" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2144284/7443" target="_top" id="2144284">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144284" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137223/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144284/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 1. Scroll down and select Delete Channel. Clicking it will not delete your account. When you click on Delete Channel, you will get two choices – ‘I want to hide my channel’ and ‘I want to permanently delete my content’. Select the first.
@@ -154,18 +148,18 @@ You can also delete all comments you ever posted on any YouTube video by hiding 
 
 1. YouTube will now show you what will happen when you hide your channel. Check all the boxes to confirm that you understand, and then tap on Hide My Channel. YouTube will now delete all comments made by your account.
 
-<!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/947746/11832" target="_top" id="947746">
-  <img src="//a.impactradius-go.com/display-ad/11832-947746" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/947746/11832" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Final Thoughts
 
 YouTube can be an unsafe place with unwanted comments everywhere. In this blog, we tried to show how you can get rid of comments on your and on others’ YouTube accounts. The next time you see an offensive comment or post something mistakenly, don’t forget to try our tips and make YouTube a safe platform again.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2118319/7443" target="_top" id="2118319">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118319" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118319/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -188,24 +182,24 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-tips.techidaily.com/n-2024-iphoneandroid-autoplay-continuous-youtube-access/"><u>[New] In 2024, IPhone/Android AutoPlay Continuous YouTube Access</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/new-in-2024-the-pixiz-guide-to-blending-photography-and-motion/"><u>[New] In 2024, The Pixiz Guide to Blending Photography and Motion</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/n-2024-video-platforms-clash-a-youtube-vs-dailymention-comparison/"><u>[New] In 2024, Video Platforms Clash A YouTube Vs. DailyMention Comparison</u></a></li>
-<li><a href="https://article-tips.techidaily.com/new-the-ultimate-resource-50plus-no-fee-visual-effects-websites-reviewed-for-2024/"><u>[New] The Ultimate Resource 50+ No-Fee Visual Effects Websites Reviewed for 2024</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/nmatched-smartphone-camera-apps-on-ios-and-android-devices-for-2024/"><u>[New] Unmatched Smartphone Camera Apps on iOS & Android Devices for 2024</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/outubes-best-love-stories-perfectly-captured-weddings-for-2024/"><u>[New] YouTube's Best Love Stories Perfectly Captured Weddings for 2024</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/updated-detailed-guide-securely-recording-on-vimeo/"><u>[Updated] Detailed Guide Securely Recording on Vimeo</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-in-2024-top-editors-for-youtube-writers-and-creators-all-free/"><u>[Updated] In 2024, Top Editors for YouTube' Writers and Creators - All Free!</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-leverage-youtube-metrics-for-enhanced-visibility-for-2024/"><u>[Updated] Leverage YouTube Metrics for Enhanced Visibility for 2024</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-personalized-melodies-made-easy-building-a-youtube-music-collection-on-webmobile-for-2024/"><u>[Updated] Personalized Melodies Made Easy Building a YouTube Music Collection on Web/Mobile for 2024</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-unveiling-the-top-ten-youtube-music-reaction-stars-for-2024/"><u>[Updated] Unveiling the Top Ten YouTube Music Reaction Stars for 2024</u></a></li>
-<li><a href="https://extra-support.techidaily.com/2024-approved-mastering-the-art-of-video-clarity-with-version-22-vce/"><u>2024 Approved Mastering the Art of Video Clarity with Version 2.2 VCE</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/can-you-rely-on-the-authenticity-of-generative-ai/"><u>Can You Rely on the Authenticity of Generative AI?</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ing-memorable-valorant-thumbnails-a-practical-guide-for-youtube-creators-for-2024/"><u>Crafting Memorable Valorant Thumbnails A Practical Guide for YouTube Creators for 2024</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/in-2024-10-leading-mobile-vr-headsets-ranked/"><u>In 2024, 10 Leading Mobile VR Headsets Ranked</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/in-2024-a-concierge-guide-for-monitoring-facebook-livestreams/"><u>In 2024, A Concierge Guide for Monitoring Facebook Livestreams</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/key-factors-every-serious-gamer-should-assess-when-shopping-for-a-new-gaming-rig/"><u>Key Factors Every Serious Gamer Should Assess When Shopping for a New Gaming Rig</u></a></li>
-<li><a href="https://win-studio.techidaily.com/microsoft-surface-duo-2-a-dual-screen-device-that-puzzles-and-fascinates-one-month-on-insights-for-tech-enthusiasts-zdnet/"><u>Microsoft Surface Duo 2: A Dual-Screen Device That Puzzles & Fascinates - One Month On, Insights for Tech Enthusiasts | ZDNet</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210664967-9782889051465-petites-fleurs-du-coeur-pour-grandir-au-fil-des-jours/"><u>Petites fleurs du coeur pour grandir au fil des jours | Free Book</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-2024-approved-beneath-the-oceans-veil-tips-for-recording-top-notch-underwater-gopro-videos/"><u>[New] 2024 Approved Beneath the Ocean’s Veil Tips for Recording Top-Notch Underwater GoPro Videos</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/024-approved-voice-of-volume-6-free-apps-for-channeling-youtube-music-onto-android-devices/"><u>[New] 2024 Approved Voice of Volume 6 Free Apps for Channeling YouTube Music Onto Android Devices</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/new-androids-elite-mobile-multiplayer-battle-games/"><u>[New] Android's Elite Mobile Multiplayer Battle Games</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-mastering-medias-closing-chapters/"><u>[New] In 2024, Mastering Media's Closing Chapters</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ioneering-strategies-to-escalate-your-channels-popularity/"><u>[New] Pioneering Strategies to Escalate Your Channel's Popularity</u></a></li>
+<li><a href="https://fox-access.techidaily.com/updated-dynamics-in-design-illustrating-motion-in-photos/"><u>[Updated] Dynamics in Design Illustrating Motion in Photos</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/updated-future-proofing-in-the-metaverse-essential-device-lineup/"><u>[Updated] Future-Proofing in the Metaverse Essential Device Lineup</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-in-2024-mastering-youtube-uploads-in-adobe-premiere/"><u>[Updated] In 2024, Mastering YouTube Uploads in Adobe Premiere</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-in-2024-twitter-reaction-videos-a-comprehensive-overview/"><u>[Updated] In 2024, Twitter Reaction Videos A Comprehensive Overview</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/updated-memetic-design-top-10-must-haves/"><u>[Updated] Memetic Design Top 10 Must-Haves</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-powerpoint-guide-to-adding-youtube-links-with-ease-for-2024/"><u>[Updated] PowerPoint Guide to Adding YouTube Links with Ease for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-soundscapes-synergy-ideal-dj-videos-to-download-for-2024/"><u>[Updated] Soundscapes Synergy Ideal DJ Videos to Download for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-unveiling-the-mystery-of-proper-lighting-in-youtube-vids/"><u>[Updated] Unveiling the Mystery of Proper Lighting in YouTube Vids</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/approved-how-to-flip-your-video-collection-in-a-flash/"><u>2024 Approved How to Flip Your Video Collection in a Flash</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/2024-approved-unlock-visual-potential-with-smart-photo-text-tools-online/"><u>2024 Approved Unlock Visual Potential with Smart Photo Text Tools Online</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/closer-look-techniques-for-effective-collaboration-on-ms-teams-for-2024/"><u>Closer Look Techniques for Effective Collaboration on MS Teams for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/24-a-deep-dive-into-youtube-content-ownership-laws/"><u>In 2024, A Deep Dive Into YouTube Content Ownership Laws</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/unlock-iphone-6s-without-passcode-easily-drfone-by-drfone-ios/"><u>Unlock iPhone 6s Without Passcode Easily | Dr.fone</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/some-wisdom-videographically-cooking-up-dishes/"><u>Wholesome Wisdom Videographically Cooking Up Dishes</u></a></li>
 </ul></div>
 
