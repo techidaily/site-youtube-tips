@@ -1,7 +1,7 @@
 ---
 title: "[New] Varied Ideas for Daily Vlogging Talks"
-date: 2024-11-16T16:53:11.471Z
-updated: 2024-11-17T16:55:47.223Z
+date: 2024-11-25T17:52:23.256Z
+updated: 2024-11-28T06:11:36.564Z
 tags:
   - ai video
   - ai youtube
@@ -37,6 +37,10 @@ Before starting your daily vlogging, you have to figure out one important thing 
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/pGHmqD53gc8?si=ymgHIB6Aa7_MoUUf&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Do you have a niche?
 
   You should have a niche. In a genre as broad as vlogging it is important to have some kind of hook that sets you apart from other vloggers. This can be an interest that you have, an industry you work in, or even a field of study you’re involved in at school. If you’re into technology, for example, you’ll always have a wealth of subjects to vlog about because all you’ll have to do is look at the day’s tech news and make a video reporting and commenting on it.
@@ -56,18 +60,15 @@ Here are 4 things to talk about in your daily vlog:
 
 By commenting on what you’re watching/reading you have a better chance of capitalizing on a trending topic people are searching for. You could also find yourself an audience by becoming involved in fan communities.
 
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148633/16836" target="_top" id="2148633">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148633" border="0" alt="https://techidaily.com" width="250" height="90"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148633/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Snapshots of Your Day
 
  Casey Neistat is the master of this. He is always ready with a camera on hand so that, when something interesting happens, he can capture it and build his daily vlog around it.
 
 Carrying a camera around like Casey may or may not suit your lifestyle, but you can still pick out one story from your day to tell. It doesn’t have to be a major event, and you shouldn’t worry that it won’t be interesting to other people. It’s your personality they’re tuning in for, so even if you’re just talking about a funny thing your cat did it will keep your audience interested because a) it’s you talking about it and b) it gives them a bit of insight into your life.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YB7Ou4-iKVM?si=7Fq8iUwI8voccMLx&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Whatever You Need to Get Out
 
@@ -78,13 +79,6 @@ _Flula is frequently puzzled by English expressions, like 'Party Pooper', and ne
 It does not matter what it is that is making you have this strong reaction (unless, again, it’s an actual person who might see your video and cause problems for you). If you’re mad about a real injustice in the world then that’s a great thing to talk about – you might even raise some awareness for the issue – but you can also rant about your favorite flavor of yogurt being cut and that’ll be engaging to viewers too.
 
 Alternatively: you could do a vlog about how happy you are to have gotten engaged or a vlog about how happy you are that it was sunny today, and your enthusiasm will carry your audience through either video with you.
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137215/26400" target="_top" id="2137215">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137215" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137215/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## What did you learn today?
 
@@ -102,33 +96,31 @@ The puya chilensis is a plant that ‘eats’ sheep (sheep get stuck to it, star
 
 Sea monkeys can survive in space.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gyGoQi7hsZk?si=8OcKcPUj2wSBmVZ1&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## EVERYTHING
 
 You could also just flick the camera on and tell the full story of your day like you’d do in a traditional daily blog. What did you have for breakfast, how was school/work, did you talk to any friends, how was the weather – anything and everything. Generally, these videos can run a bit long and don’t have a lot of snappy editing. They’re faster to make, which is good if you’re doing them every day, but the unpolished nature of them won’t appeal to everyone. It will be exactly what appeals to some people, though.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2006960/19272" target="_top" id="2006960">
-  <img src="//a.impactradius-go.com/display-ad/19272-2006960" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006960/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/y3VlwHTQQMs?si=BXYwD1pKiaTuev4y&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Customize Your Vlog Stories with Powerful Video Editor
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aIx71tPaWKg?si=lG5OiUe-M6eBJf5b&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **We’ve got a new eBook out!**
 
 It’s got strategies that have worked for other YouTubers, boiled down to simple action steps.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139115/17108" target="_top" id="2139115">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139115" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139115/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -151,22 +143,24 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-tips.techidaily.com/n-2024-free-end-credits-maker-the-1-video-closers-guide/"><u>[New] In 2024, Free End Credits Maker - The #1 Video Closers Guide!</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/n-2024-leading-tools-to-transform-your-vocal-recordings/"><u>[New] In 2024, Leading Tools to Transform Your Vocal Recordings</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/n-2024-perfect-pair-merging-your-youtube-video-library/"><u>[New] In 2024, Perfect Pair Merging Your YouTube Video Library</u></a></li>
-<li><a href="https://fox-info.techidaily.com/new-yi-4k-action-excellence-choosing-the-best-extras/"><u>[New] YI 4K Action Excellence Choosing the Best Extras</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-2024-approved-7-top-rated-free-mobile-apps-for-video-downloads/"><u>[Updated] 2024 Approved 7 Top-Rated Free Mobile Apps for Video Downloads</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-bridge-gaps-in-generations-of-viewers-6-interactive-tests-to-find-your-youtube-match/"><u>[Updated] 2024 Approved Bridge Gaps in Generations of Viewers 6 Interactive Tests to Find Your YouTube Match</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-exploring-sourav-joshis-success-on-youtube-for-a-profitable-2024/"><u>[Updated] Exploring Sourav Joshi’s Success on YouTube for a Profitable 2024</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/updated-in-2024-effortless-transferring-5-pathways-to-download-igtv-on-computers/"><u>[Updated] In 2024, Effortless Transferring 5 Pathways to Download IGTV on Computers</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-mastering-the-art-of-freefire-a-gaming-youtubers-guide/"><u>[Updated] Mastering the Art of FreeFire A Gaming Youtuber’s Guide</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/updated-quick-tips-streamline-screen-capture-on-dell-systems-for-2024/"><u>[Updated] Quick Tips Streamline Screen Capture on Dell Systems for 2024</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/1-cant-find-it-discover-the-missing-pages-with-wonderfoxs-search-solutions/"><u>1. Can't Find It? Discover the Missing Pages with WonderFox's Search Solutions</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/approved-top-pick-the-most-versatile-gif-software/"><u>2024 Approved Top Pick The Most Versatile GIF Software</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/aiffwmv-movavi/"><u>免費線上AIFF/WMV格式轉換解決方案 - 瞭解 Movavi工具機能</u></a></li>
-<li><a href="https://location-social.techidaily.com/in-2024-set-your-preferred-job-location-on-linkedin-app-of-your-asus-rog-phone-8-drfone-by-drfone-virtual-android/"><u>In 2024, Set Your Preferred Job Location on LinkedIn App of your Asus ROG Phone 8 | Dr.fone</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/nhl-19-user-review-a-riveting-e-sports-adventure/"><u>NHL 19 User Review: A Riveting E-Sports Adventure</u></a></li>
-<li><a href="https://program-issues.techidaily.com/troubleshooting-steps-to-resolve-sea-of-thieves-endless-loading-error/"><u>Troubleshooting Steps to Resolve Sea of Thieves Endless Loading Error</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/be-vs-vimeo-exploring-user-experience-variance-for-2024/"><u>YouTube vs Vimeo Exploring User Experience Variance for 2024</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/new-augmenting-flight-top-11-must-have-drone-accessories/"><u>[New] Augmenting Flight Top 11 Must-Have Drone Accessories</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-best-practices-for-youtube-thumbnail-dimensions/"><u>[New] In 2024, Best Practices for YouTube Thumbnail Dimensions</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-study-smart-the-top-10-channel-selection-for-history-buffs/"><u>[New] In 2024, Study Smart The Top 10 Channel Selection for History Buffs</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-2024-approved-top-talents-merging-photography-and-sound-in-videos/"><u>[Updated] 2024 Approved Top Talents Merging Photography & Sound in Videos</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-essential-knowledge-for-engaging-with-asmr-videos-for-2024/"><u>[Updated] Essential Knowledge for Engaging with ASMR Videos for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-premium-viewership-the-ultimate-youtube-wealth/"><u>[Updated] Premium Viewership The Ultimate YouTube Wealth</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-remove-inconvenient-black-edges-from-youtube-videos-for-2024/"><u>[Updated] Remove Inconvenient Black Edges From YouTube Videos for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-video-sharing-titans-ranking-vimeo-youtube-and-dailymotion/"><u>[Updated] Video-Sharing Titans Ranking Vimeo, YouTube & Dailymotion</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/approved-get-ahead-with-these-best-7-android-browsers-without-ads/"><u>2024 Approved Get Ahead with These Best 7 Android Browsers Without Ads</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/approved-maximizing-click-through-rates-with-youtube-images/"><u>2024 Approved Maximizing Click-Through Rates with Youtube Images</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/3-solutions-to-find-your-honor-100-current-location-of-a-mobile-number-drfone-by-drfone-virtual-android/"><u>3 Solutions to Find Your Honor 100 Current Location of a Mobile Number | Dr.fone</u></a></li>
+<li><a href="https://win-comparisons.techidaily.com/cloner-et-augmenter-la-capacite-de-votre-disque-ssd-options-128go-pressement-256go-compatible-avec-windows-7-8-10-and-11/"><u>Cloner Et Augmenter La Capacité De Votre Disque SSD : Options 128Go / Pressement 256Go Compatible Avec Windows 7, 8, 10 & 11</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/fixes-for-chaotic-youtube-list-ordering/"><u>Fast Fixes for Chaotic YouTube List Ordering</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/in-2024-best-app-selection-perfecting-your-windows-display-captures/"><u>In 2024, Best App Selection Perfecting Your Windows Display Captures</u></a></li>
+<li><a href="https://tools.techidaily.com/malwarefox/products/"><u>Malwarefox's Products</u></a></li>
+<li><a href="https://ai-video-apps.techidaily.com/new-2024-approved-the-top-pc-intro-makers-a-beginners-guide-to-getting-started/"><u>New 2024 Approved The Top PC Intro Makers A Beginners Guide to Getting Started</u></a></li>
+<li><a href="https://smart-video-editing.techidaily.com/new-free-wmv-video-cutting-tools-top-picks-for-2024/"><u>New Free WMV Video Cutting Tools Top Picks for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/troubleshooting-shorts-the-non-displaying-thumbnail-for-2024/"><u>Troubleshooting Shorts The Non-Displaying Thumbnail for 2024</u></a></li>
+<li><a href="https://ai-video-tools.techidaily.com/updated-in-2024-color-harmony-in-powerdirector-a-beginners-guide-to-clip-color-matching/"><u>Updated In 2024, Color Harmony in PowerDirector A Beginners Guide to Clip Color Matching</u></a></li>
 </ul></div>
 

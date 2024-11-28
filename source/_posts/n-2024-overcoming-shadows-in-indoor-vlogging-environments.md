@@ -1,7 +1,7 @@
 ---
 title: "[New] In 2024, Overcoming Shadows in Indoor Vlogging Environments"
-date: 2024-11-12T18:12:50.355Z
-updated: 2024-11-17T23:32:05.478Z
+date: 2024-11-21T20:39:39.907Z
+updated: 2024-11-28T05:34:34.252Z
 tags:
   - ai video
   - ai youtube
@@ -37,6 +37,10 @@ Going outside and using natural light is the cheapest way to get a lot of light 
 
 ![ Lighting for YouTube Video](https://images.wondershare.com/filmora/article-images/three-point-lighting.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9wiIVztRIqQ?si=GBgdwQ78k5hbeFDv&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 The most common technique of lighting a scene is called **three-point lighting**. It involves three different sources of light in the shot and is used by portrait photographers, which is also a great method for lighting your vlog.
 
 The brightest source of light is also known as the **key light** which need to be high quality. A window will work, but if you do not have access to one where you are filming then consider an LED panel light or a softbox light like the ones used in portrait photography.
@@ -49,14 +53,11 @@ The **fill light** is less bright than the primary source of light and it is pla
 
 The final step to creating three point lighting is to set up another light behind you. This is your 'Backlight', and it will help you stand out from your background. **Backlight or Hair light** is always placed behind and above the subject to create separation between the subject in the shot and the background. This basic lighting technique can be applied in almost every scene you shoot, which is why it is important to keep an open mind and to continue experimenting with possible light setups.
 
-### Watch Video! Top Lighting Tips for Vlogging
-
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123728/7443" target="_top" id="2123728">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123728" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123728/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kTHQrw8e1gk?si=gTPIa7KjhSZ0Vz97&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
+### Watch Video! Top Lighting Tips for Vlogging
 
 ## Lightning Tips for Aspiring YouTube Videographers
 
@@ -85,10 +86,7 @@ Sets of reflectors are often under $50, so they are fairly affordable. However, 
 ![lighting tips](https://images.wondershare.com/filmora/article-images/lighting-tips01.JPG)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2137394/7443" target="_top" id="2137394">
-  <img src="//a.impactradius-go.com/display-ad/7443-2137394" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137394/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ZLb1ViO4WR8?si=g_aiHGNCd7eAvmDM&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 If your strong main light is too hard on your eyes then you can use a translucent 'reflector' to soften it. Set your translucent reflector, or other screen, up in front of your main light to diffuse it.
@@ -98,10 +96,7 @@ If you are hosting a **beauty vlog** then you might consider a slightly differen
 ![lighting tips](https://images.wondershare.com/filmora/article-images/lighting-tips02.JPG)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135419/19272" target="_top" id="2135419">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135419" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135419/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/X18Dq7rV-xI?si=twFfXIPD0TFmC5EM&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 If you are using all of the lighting options available to you and your video still looks too dark then you can try brightening it by **opening up the aperture of your camera** lens/setting a lower f-stop. Letting more light into your camera can help your footage look brighter, although you also run the risk of making things look overexposed/ washed out if you are not careful.
@@ -111,10 +106,7 @@ If you are stuck shooting in **low light conditions** it is best to use a lens w
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134218/18498" target="_top" id="2134218">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134218" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134218/18498" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-G7cU8dYvuI?si=JaKqRcW6qq9CDvty&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -138,20 +130,20 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://desktop-recording.techidaily.com/new-master-the-art-of-professional-webcam-filming-for-2024/"><u>[New] Master the Art of Professional Webcam Filming for 2024</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-2024-approved-supercharge-your-channels-a-guide-to-the-best-keyword-research-software/"><u>[Updated] 2024 Approved Supercharge Your Channels A Guide to the Best Keyword Research Software</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ed-analyzing-youtube-adrevenue-average-payments-by-thousands-of-views/"><u>[Updated] Analyzing Youtube AdRevenue Average Payments by Thousands of Views</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-in-2024-streaming-success-monetization-unlocked-with-500-subscribers/"><u>[Updated] In 2024, Streaming Success Monetization Unlocked with 500 Subscribers</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-is-youtubes-monetization-routine-in-2024/"><u>[Updated] Is YouTube’s Monetization Routine, In 2024</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-streamline-your-youtube-thumbnail-process-for-2024/"><u>[Updated] Streamline Your YouTube Thumbnail Process for 2024</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-unparalleled-narratives-yt-channels-worth-watching-in-23-for-2024/"><u>[Updated] Unparalleled Narratives YT Channels Worth Watching in '23 for 2024</u></a></li>
-<li><a href="https://buynow-marvelous.techidaily.com/2024s-elite-consoles-for-gamers-find-your-perfect-match/"><u>2024'S Elite Consoles for Gamers: Find Your Perfect Match</u></a></li>
-<li><a href="https://location-social.techidaily.com/how-to-change-location-on-facebook-dating-for-your-xiaomi-14-ultra-drfone-by-drfone-virtual-android/"><u>How to Change Location On Facebook Dating for your Xiaomi 14 Ultra | Dr.fone</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/24-top-10-secrets-from-pros-for-stellar-youtubers-music-videos/"><u>In 2024, Top 10 Secrets From Pros for Stellar Youtubers' Music Videos</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ome-vanished-youtube-minute-media-for-2024/"><u>Overcome Vanished YouTube Minute Media for 2024</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/prelude-playlists-navigating-auditory-sources-for-podcasts/"><u>Prelude Playlists Navigating Auditory Sources for Podcasts</u></a></li>
-<li><a href="https://review-topics.techidaily.com/recover-your-contacts-after-realme-11x-5g-has-been-deleted-by-fonelab-android-recover-contacts/"><u>Recover your contacts after Realme 11X 5G has been deleted.</u></a></li>
-<li><a href="https://win-blog.techidaily.com/resolving-granblue-fantasy-linkage-issues-in-pc-version/"><u>Resolving Granblue Fantasy Linkage Issues in PC Version</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/unlocking-11-pros-window-secrets-for-2024/"><u>Unlocking 11 Pro's Window Secrets for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-2024-approved-maximize-productivity-with-firefoxs-pip-feature/"><u>[New] 2024 Approved Maximize Productivity with Firefox’s PIP Feature</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-elevate-your-videos-with-complimentary-banners-here/"><u>[New] Elevate Your Videos with Complimentary Banners, Here!</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-2024-approved-best-audio-modification-methods-for-youtube-stars/"><u>[Updated] 2024 Approved Best Audio Modification Methods for YouTube Stars</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-in-2024-youtubes-elite-gear-top-5-video-chat-headsets/"><u>[Updated] In 2024, YouTube's Elite Gear Top 5 Video Chat Headsets</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-maximizing-subscribers-youtubes-expansion-blueprint/"><u>[Updated] Maximizing Subscribers YouTube's Expansion Blueprint</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-shoot-cool-vids-from-scratch-with-your-mac-newcomers-guide/"><u>[Updated] Shoot Cool Vids From Scratch with Your Mac, Newcomers Guide</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/updated-understanding-the-streaming-landscape-twitch-vs-youtube-compared/"><u>[Updated] Understanding the Streaming Landscape Twitch Vs YouTube Compared</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-video-editing-power-filmora-for-youtube-trailers/"><u>[Updated] Video Editing Power Filmora for YouTube Trailers</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/how-can-i-create-my-pokemon-overworld-maps-on-apple-iphone-se-drfone-by-drfone-virtual-ios/"><u>How Can I Create My Pokemon Overworld Maps On Apple iPhone SE? | Dr.fone</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-how-to-change-gps-location-on-samsung-galaxy-s21-fe-5g-2023-easily-and-safely-drfone-by-drfone-virtual-android/"><u>In 2024, How to Change GPS Location on Samsung Galaxy S21 FE 5G (2023) Easily & Safely | Dr.fone</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-how-to-fake-snapchat-location-without-jailbreak-on-honor-magic-vs-2-drfone-by-drfone-virtual-android/"><u>In 2024, How to Fake Snapchat Location without Jailbreak On Honor Magic Vs 2 | Dr.fone</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/in-2024-multi-resolution-adjustment-suite/"><u>In 2024, Multi-Resolution Adjustment Suite</u></a></li>
+<li><a href="https://driver-install.techidaily.com/revamp-lenovo-thinks-for-w10-with-drivers/"><u>Revamp Lenovo Thinks for W10 with Drivers</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/phone-simplicity-meets-online-impact-making-videos-easy/"><u>Smartphone Simplicity Meets Online Impact Making Videos Easy</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/iques-for-exceptional-audio-recording-without-a-mic/"><u>Techniques for Exceptional Audio Recording without a Mic</u></a></li>
 </ul></div>
 

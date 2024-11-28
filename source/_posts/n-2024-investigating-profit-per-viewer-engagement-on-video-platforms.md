@@ -1,7 +1,7 @@
 ---
 title: "[New] In 2024, Investigating Profit per Viewer Engagement on Video Platforms"
-date: 2024-09-01T13:48:28.031Z
-updated: 2024-09-02T13:48:28.031Z
+date: 2024-11-24T21:32:46.713Z
+updated: 2024-11-28T00:47:14.961Z
 tags:
   - ai video
   - ai youtube
@@ -39,6 +39,10 @@ The reason is that YouTubers are not paid per view, they are paid per ad impress
 
 Want a fast answer about how much money a YouTuber makes? [Check out these calculators](https://tools.techidaily.com/wondershare/filmora/download/).
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RAnyQ0uj9Yg?si=Es4_ulcdM_-LuDcq&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Types of YouTube Ads – What is an Ad Impression?
 
 If you ask YouTubers about how much they make per thousand views, you'll probably get a different answer depending on the person on who you ask. You may have already heard things like $5 per thousand views or $1,000 per 1 million views, but neither of these is for sure.
@@ -46,6 +50,10 @@ If you ask YouTubers about how much they make per thousand views, you'll probabl
 Google’s AdSense service, through which YouTubers make money, pays YouTubers for ad impressions. For most types of ads – including short pre-roll ads, the ads which appear at the bottoms of videos while they play, and the ads which appear as banners to the side of YouTube’s player – an ad impression means someone clicking on the ad and choosing to visit the advertiser’s site. One exception is skippable video ads, for which an impression is created when a viewer watches the ad for 30 seconds.
 
 YouTubers do not make money on the views of their videos, because not all viewers click on ads. Many viewers bypass ads completely using ad-blockers. The amount of money YouTubers earn from a single ad impression is called their CPI or "cost per impression."
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/it8VkxDUdAc?si=ef6VZWR7kW4P9ikh&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## CPI Rates Explained
 
@@ -68,8 +76,9 @@ How much you make from an ad on YouTube depends on your CPI, cost per impression
 Most people tend to assume that CPI rates are between $0.05 and $10\. This huge difference is justified by YouTube by saying that they use a very complicated algorithm to determine your CPI rate. According to them, it includes evaluating factors like the ads, the type of audience who views your video, audience engagement, audience retention, and the price of the ads.
 
 <!-- affiliate ads begin -->
-<a href="https://modlily.sjv.io/c/5597632/2072819/17059" target="_top" id="2072819"><img src="//a.impactradius-go.com/display-ad/17059-2072819" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2072819/17059" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/lxv4NM-89CU?si=Uj5rOkhrwZ_6QIuW&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## How Much Do Big YouTubers Make?
 
 Many people are aspiring to make money as famous YouTubers, but it is not an easy task. You have a long way to go before you start making any money at all.
@@ -82,9 +91,6 @@ According to Google, when an advertiser pays $100 to Google, Google pays $68 to 
 
 ![How Much Do YouTuber Makes](https://images.wondershare.com/filmora/article-images/how-much-do-youtubers-make.png)
 
-<!-- affiliate ads begin -->
-<a href="https://aidotcom.pxf.io/c/5597632/2086436/19576" target="_top" id="2086436"><img src="//a.impactradius-go.com/display-ad/19576-2086436" border="0" alt="" width="1500" height="400"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2086436/19576" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 _This graphic won't apply to every situation because every situation is unique. It's just an example using assumed numbers._
 
 #### How much money for 1,000 YouTube views?
@@ -116,8 +122,9 @@ Instead of relying on YouTube to pay them, YouTubers need to seek out other ways
 We all agree that being a YouTube star isn't an easy path. However, if you honestly love what you do, then you will be willing to put effort into making great videos regularly. Part of that is also being willing to take the time to promote them and yourself, as well as putting time and effort into forging a good relationship with your audience.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=2201613&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.macdvdripperpro.com/images/devices-3.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/43goO8X0iX0?si=48Cqf6td2q_6T6h3&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Why No Longer 10,000 Views?
 
 YouTube used to let anybody monetize their videos, but that has now changed. Then for a while, you'll qualify for monetization after reaching 10,000-lifetime views on your channel. But as of 2018, the rules to YouTube monetization has gotten more challenging.
@@ -135,22 +142,20 @@ _Are you finding it difficult to earn money on YouTube? Subscribe to the [Filmor
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4665597&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pcclean.io/wp-content/uploads/2018/03/winutilities-box-130521.png" border="0">WinUtilities Pro</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0pSRlspzW-A?si=A82G3Yxwj_31cKDq&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -159,4 +164,24 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-elevate-your-video-profiles-using-smart-templates/"><u>[New] In 2024, Elevate Your Video Profiles Using Smart Templates</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-mastering-keywords-the-best-7-no-cost-youtube-taggers/"><u>[New] In 2024, Mastering Keywords The Best 7 No-Cost Youtube Taggers</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-2024-approved-online-tutorial-adding-youtube-playlists-to-your-site/"><u>[Updated] 2024 Approved Online Tutorial Adding YouTube Playlists to Your Site</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-in-2024-navigating-notes-an-introduction-to-youtube-list-making/"><u>[Updated] In 2024, Navigating Notes An Introduction to YouTube List Making</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-snappy-film-maker/"><u>[Updated] Snappy Film Maker</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/approved-early-bird-winners-youtubes-quick-favorites/"><u>2024 Approved Early Bird Winners Youtube's Quick Favorites</u></a></li>
+<li><a href="https://data-safeguard.techidaily.com/achieve-higher-conversion-rates-using-cookiebot-solutions/"><u>Achieve Higher Conversion Rates Using Cookiebot Solutions</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/elevating-engagement-professional-tips-for-youtube-video-tweaks-for-2024/"><u>Elevating Engagement Professional Tips for YouTube Video Tweaks for 2024</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/epicurean-insights-leverage-chatgpts-wisdom-with-7-expert-culinary-hacks-for-amateur-chefs/"><u>Epicurean Insights: Leverage ChatGPT's Wisdom with 7 Expert Culinary Hacks for Amateur Chefs</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/24-elevate-your-content-game-with-these-powerful-youtube-shortcuts/"><u>In 2024, Elevate Your Content Game with These Powerful YouTube Shortcuts</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/24-experts-choice-top-10-low-cost-sbd-applications/"><u>In 2024, Expert's Choice Top 10 Low-Cost SBD Applications</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-how-to-remove-screen-lock-pin-on-xiaomi-mix-fold-3-like-a-pro-5-easy-ways-by-drfone-android/"><u>In 2024, How To Remove Screen Lock PIN On Xiaomi Mix Fold 3 Like A Pro 5 Easy Ways</u></a></li>
+<li><a href="https://fox-info.techidaily.com/in-2024-save-time-money-on-passport-photos-with-our-free-generator-apps/"><u>In 2024, Save Time, Money on Passport Photos with Our Free Generator Apps</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/minimagic-mugger-assessment-and-opinions/"><u>Minimagic Mugger Assessment & Opinions</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/by-step-guide-to-incorporating-yt-clips-into-presentations/"><u>Step-by-Step Guide to Incorporating YT Clips Into Presentations</u></a></li>
+<li><a href="https://win-comparisons.techidaily.com/success-story-overcoming-the-challenge-of-itunes-failing-to-reinstate-iphone-in-restoration-stage/"><u>Success Story: Overcoming the Challenge of iTunes Failing to Reinstate iPhone in Restoration Stage</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/flac-flac/"><u>영구성에서 자원으로 FLAC 오페우 FLAC 전환 가시성 강화 - 모비아비</u></a></li>
+</ul></div>
 

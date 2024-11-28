@@ -1,7 +1,7 @@
 ---
 title: "[Updated] In 2024, How to Search Comments on YouTube Quickly?"
-date: 2024-11-15T02:58:21.607Z
-updated: 2024-11-18T11:32:53.984Z
+date: 2024-11-23T18:33:47.365Z
+updated: 2024-11-27T23:30:07.413Z
 tags:
   - ai video
   - ai youtube
@@ -64,7 +64,15 @@ Besides the comment search feature, the YouTube Studio also has some in-built se
 
 ![  YouTube Studio comment filter](https://images.wondershare.com/filmora/article-images/youtube-studio-comment-filter-search.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Xa2_mFu-obA?si=_xDGF1pv-dnuaDOr&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 You can combine these additional filters to narrow your comments search for YouTube.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LBCobAYzzcc?si=J3eSTQ3AdyxWAjGo&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 2: Using YCS – YouTube Comment Search Extension
 
@@ -79,10 +87,11 @@ You can use the YouTube Comment Search browser extension supported by Google Chr
 ![ YouTube Comment Search Extension](https://images.wondershare.com/filmora/article-images/search-comment-from-specific-user-with-ycs-extension.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2105864/7443" target="_top" id="2105864">
-  <img src="//a.impactradius-go.com/display-ad/7443-2105864" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105864/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/xIP8ktrmOdg?si=zRnjbGzM6PDx2jCq&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0dOfcihxjiw?si=_fkp1S1Uw0N1dp6b&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 3: Using Comments Search for YouTube Extension
@@ -112,10 +121,7 @@ This mode allows you to enter special commands to carry out an advanced search. 
 3. ‘:creator’ to get comments made by the creator
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2111967/7443" target="_top" id="2111967">
-  <img src="//a.impactradius-go.com/display-ad/7443-2111967" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111967/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0OxkndZbIA4?si=TWJlkTbYKsVag8-q&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 4: How Do You Search Comments You Have Posted on YouTube?
@@ -133,19 +139,6 @@ You can see all the comments you have posted in the Comment History in a few qui
 3. Click on the History option and then you will find the option called Comments on the right side of your YouTube History page. Click on it to see all your YouTube comments.
 
 ![ YouTube History Comment](https://images.wondershare.com/filmora/article-images/youtube-history-comments-menu.jpg)
-
-<!-- affiliate ads begin -->
-<span id="1374820">
-					<video width="200" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1374820.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/15852-1374820">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1374820.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1374820%2F15852'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1374820/15852" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 You can also access the Comments History page directly from[here](https://www.youtube.com/feed/history/comment%5Fhistory).
 
@@ -172,13 +165,6 @@ Find feedback or questions. Report offensive comments. If you are a regular YouT
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123738/7443" target="_top" id="2123738">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123738" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123738/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
@@ -200,20 +186,14 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-tips.techidaily.com/25609082-warranty-and-lifespan-higher-quality-led-systems-may-come-with-a-higher-upfront-price-but-can-offer-longer-lifespans-and-better-performance-which-should-be-/"><u>__Warranty and Lifespan Higher Quality LED Systems May Come with a Higher Upfront Price but Can Offer Longer Lifespans and Better Performance, Which Should Be Considered in the Overall Cost Evaluation.</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/new-in-2024-how-to-record-and-edit-video-using-the-adobe-connect/"><u>[New] In 2024, How to Record and Edit Video Using the Adobe Connect</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/he-gateway-to-youtube-stardom-via-studio-expertise-for-2024/"><u>[New] The Gateway to YouTube Stardom via Studio Expertise for 2024</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/logging-vs-micro-video-which-outperforms-in-2024-youtubes-shorts-or-tiktoks/"><u>[New] Vlogging Vs. Micro-Video Which Outperforms, In 2024 YouTubes Shorts or TikToks?</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/updated-mastering-past-facebook-feed-exploration-for-laptops-and-phones-for-2024/"><u>[Updated] Mastering Past Facebook Feed Exploration for Laptops and Phones for 2024</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/updated-maximize-video-visibility-on-facebook-via-youtube/"><u>[Updated] Maximize Video Visibility on Facebook via YouTube</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-the-complete-guide-to-successful-youtube-eluding-these-8-common-slips-for-2024/"><u>[Updated] The Complete Guide to Successful YouTube Eluding These 8 Common Slips for 2024</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/updated-unlocking-tv-potential-with-social-medias-facebook-live-streams/"><u>[Updated] Unlocking TV Potential with Social Media's Facebook Live Streams</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/2024-approved-top-3-tactics-transforming-pin-videos-into-mp3-sounds/"><u>2024 Approved Top 3 Tactics Transforming Pin Videos Into MP3 Sounds</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/t-films-must-watch-channel-compilation/"><u>A-List Films Must-Watch Channel Compilation</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/24-essential-techniques-for-designing-youtube-video-thumbnails/"><u>In 2024, Essential Techniques for Designing YouTube Video Thumbnails</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-mirror-apple-iphone-15-plus-to-ipad-drfone-by-drfone-ios/"><u>In 2024, How to Mirror Apple iPhone 15 Plus to iPad? | Dr.fone</u></a></li>
-<li><a href="https://win-answers.techidaily.com/step-by-step-guide-to-stop-content-warning-from-frequently-crashing-on-your-computer/"><u>Step-by-Step Guide to Stop 'Content Warning' From Frequently Crashing on Your Computer</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/top-picks-unleash-creativity-with-free-text-visualizers-online-for-2024/"><u>Top Picks Unleash Creativity with Free Text Visualizers Online for 2024</u></a></li>
-<li><a href="https://techidaily.com/turn-off-screen-lock-itel-a70-by-drfone-android-unlock-android-unlock/"><u>Turn Off Screen Lock - Itel A70</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/new-expert-strategies-to-achieve-professional-3d-text-in-photoshoot/"><u>[New] Expert Strategies to Achieve Professional 3D Text in Photoshoot</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/eak-viewing-valor-youtubes-daily-top-ten-highlights-for-2024/"><u>[New] Peak Viewing Valor YouTube's Daily Top Ten Highlights for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/he-ultimate-method-streaming-idevice-screens-on-youtube-for-2024/"><u>[New] The Ultimate Method Streaming iDevice Screens on YouTube for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-in-depth-guide-to-maximizing-your-earnings-with-youtube-and-adsense-for-2024/"><u>[Updated] In-Depth Guide to Maximizing Your Earnings with YouTube & AdSense for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-refine-and-revamp-your-videos-using-youtube-studio-tools-for-2024/"><u>[Updated] Refine and Revamp Your Videos Using YouTube Studio Tools for 2024</u></a></li>
+<li><a href="https://win-blog.techidaily.com/free-online-convertor-change-aiff-and-avi-files-without-cost-using-movavi/"><u>Free Online Convertor - Change AIFF and AVI Files Without Cost Using Movavi</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-the-best-8-vpn-hardware-devices-reviewed-on-htc-u23-pro-drfone-by-drfone-virtual-android/"><u>In 2024, The Best 8 VPN Hardware Devices Reviewed On HTC U23 Pro | Dr.fone</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/hing-your-channels-auditory-appeal-on-youtube-for-2024/"><u>Polishing Your Channel's Auditory Appeal on YouTube for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/strategies-for-untagging-from-social-media-photos/"><u>Strategies for Untagging From Social Media Photos</u></a></li>
 </ul></div>
 

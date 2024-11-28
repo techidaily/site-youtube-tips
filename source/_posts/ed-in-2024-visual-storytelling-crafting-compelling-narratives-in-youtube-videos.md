@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] In 2024, Visual Storytelling  Crafting Compelling Narratives in YouTube Videos\""
-date: 2024-11-16T14:39:57.360Z
-updated: 2024-11-18T08:14:46.214Z
+date: 2024-11-22T20:55:23.648Z
+updated: 2024-11-28T04:07:50.870Z
 tags:
   - ai video
   - ai youtube
@@ -27,6 +27,10 @@ thumbnail: https://thmb.techidaily.com/a488fef564f5e308e5c3875f24f2cb9db2970eba8
  We have mentioned before about [the equipment you should have to start your YouTube video shooting](https://tools.techidaily.com/wondershare/filmora/download/), however, being methodical in your approach to the video making process and knowing exactly what and where you are going to stage and record will increase the quality of the content. Focus on the technical aspects of your YouTube video before you actually start shooting and strive to be well prepared for all the challenges a day on the set may bring.
 
  These and other useful tips may help you make better videos for your YouTube channel, so let's explore different ways of improving your video making skills.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/uV3vm805eX0?si=YSPcsFxBcJmoxLsU&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 10 Tips for Shooting Better YouTube Videos
 
@@ -60,6 +64,10 @@ thumbnail: https://thmb.techidaily.com/a488fef564f5e308e5c3875f24f2cb9db2970eba8
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-0Ww1YIIUe4?si=cQ-Gkh9UCJABuPZU&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Posting vertically oriented videos to your YouTube channel will make you look unprofessional because portrait mode is never used for capturing videos. YouTubers who record their videos with Smartphones are more likely to fall into this trap, but all you need to do to avoid this is remember to hold the device horizontally.
 
  By switching to portrait mode, you'll be cropping the frame in a way, so you might unknowingly end up removing parts of the shot you wanted to record.
@@ -76,6 +84,10 @@ thumbnail: https://thmb.techidaily.com/a488fef564f5e308e5c3875f24f2cb9db2970eba8
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aYH0B2HqcIM?si=3fkoG85L6hAeB4ok&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 #### 8. Keep The Shot in Focus
 
  You can always keep the shot in focus by simply enabling the autofocus feature, but if you do so you won't be able to control where the focus is going to be. Pulling focus manually is an art that takes years to master, and you have to keep practicing it as much as you can in order to become good at it.
@@ -85,6 +97,10 @@ thumbnail: https://thmb.techidaily.com/a488fef564f5e308e5c3875f24f2cb9db2970eba8
 #### 9. Put The Camera on a Tripod
 
 ![Camera tripod ](https://images.wondershare.com/filmora/article-images/cartoni-omega-professional-tripod-system.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/97ydpSmzTJw?si=tFcelmtQX4u-b3u5&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  The footage you produce should be smooth and free of camera shakes. All video cameras pick up vibrations easily, so even the slightest movement or impact can ruin a shot. Putting the camera on a tripod is one of the best ways to stabilize the shot and avoid camera shaking.
 
@@ -108,6 +124,10 @@ thumbnail: https://thmb.techidaily.com/a488fef564f5e308e5c3875f24f2cb9db2970eba8
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DBMTAJBx-X4?si=sje5pFJXiHzJJGbP&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
@@ -129,31 +149,22 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-access.techidaily.com/new-2024-approved-snapedit-essentials-for-beginners-a-visual-journey/"><u>[New] 2024 Approved Snapedit Essentials for Beginners A Visual Journey</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-2024-approved-global-streaming-giants-face-off-facebook-live-youtube-live-periscope/"><u>[Updated] 2024 Approved Global Streaming Giants' Face-Off Facebook Live, YouTube Live, Periscope</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/updated-daily-vlogging-ideas-what-to-talk-about-while-vlogging/"><u>[Updated] Daily Vlogging Ideas What to Talk About While Vlogging?</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-elevate-your-social-media-presence-h-videos-reimagined-for-igtv/"><u>[Updated] Elevate Your Social Media Presence H-Videos Reimagined for IGTV</u></a></li>
-<li><a href="https://video-capture.techidaily.com/updated-elevating-clarity-optimal-speech-to-text-with-google-for-2024/"><u>[Updated] Elevating Clarity Optimal Speech-to-Text with Google for 2024</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-navigating-account-creation-on-youtube/"><u>[Updated] Navigating Account Creation on YouTube</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-the-serenity-seekers-guide-to-relaxed-youtube-viewing-52-chars/"><u>[Updated] The Serenity Seeker's Guide to Relaxed YouTube Viewing (52 Chars)</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-unlocking-youtubes-potential-for-visual-storytelling-for-2024/"><u>[Updated] Unlocking YouTube's Potential for Visual Storytelling for 2024</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/approved-edu-favorites-best-learning-yt-channels/"><u>2024 Approved Edu-Favorites Best Learning YT Channels</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/2024-approved-securing-your-periscope-footage-expert-techniques-revealed/"><u>2024 Approved Securing Your Periscope Footage Expert Techniques Revealed</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/9-best-phone-monitoring-apps-for-vivo-v29e-drfone-by-drfone-virtual-android/"><u>9 Best Phone Monitoring Apps for Vivo V29e | Dr.fone</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/practices-for-youtube-outro-design/"><u>Best Practices for YouTube Outro Design</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/mizable-mcb-visuals-for-youtube-banners/"><u>Customizable MCB Visuals for YouTube Banners</u></a></li>
-<li><a href="https://fake-location.techidaily.com/fixing-foneazy-mockgo-not-working-on-honor-90-lite-drfone-by-drfone-virtual-android/"><u>Fixing Foneazy MockGo Not Working On Honor 90 Lite | Dr.fone</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/o-edit-youtube-videos-in-adobe-premiere-for-2024/"><u>How to Edit YouTube Videos in Adobe Premiere for 2024</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/24-from-virality-to-value-gauge-your-content-against-competing-craftsmen/"><u>In 2024, From Virality to Value Gauge Your Content Against Competing Craftsmen</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-migrate-android-data-from-lava-yuva-2-pro-to-new-android-phone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Migrate Android Data From Lava Yuva 2 Pro to New Android Phone? | Dr.fone</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/meta-qc3-controller-bundle-offer-save-big-during-october-prime-day-event-get-your-hands-on-vr-fun/"><u>Meta QC3 Controller Bundle Offer - Save Big During October Prime Day Event, Get Your Hands-On VR Fun!</u></a></li>
-<li><a href="https://win11.techidaily.com/techniques-to-neutralize-yellowish-screen-on-laptops/"><u>Techniques to Neutralize Yellowish Screen on Laptops</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-logo-luminosity-enhancing-gaming-channels-with-designs/"><u>[New] In 2024, Logo Luminosity Enhancing Gaming Channels with Designs</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-take-your-smartphone-cinematography-to-new-heights-with-these-9-accessories/"><u>[New] In 2024, Take Your Smartphone Cinematography to New Heights with These 9 Accessories</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/new-unlock-screen-saving-potential-on-android-devices-for-2024/"><u>[New] Unlock Screen Saving Potential on Android Devices for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/outube-slow-how-to-slow-down-youtube-videos-3-ways-for-2024/"><u>[New] YouTube Slow How to Slow Down YouTube Videos [3 Ways] for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-in-2024-a-comprehensible-guide-for-mastering-instagram-live-engagements/"><u>[Updated] In 2024, A Comprehensible Guide for Mastering Instagram Live Engagements</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-in-2024-navigating-the-undisclosed-terrain-of-youtube-archives/"><u>[Updated] In 2024, Navigating the Undisclosed Terrain of YouTube Archives</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-pocket-playlist-portraits-actors-and-audio-art-for-2024/"><u>[Updated] Pocket Playlist Portraits Actors & Audio Art for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-the-most-inexpensive-video-cameras-reviewed/"><u>[Updated] The Most Inexpensive Video Cameras Reviewed</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-transition-effortlessly-top-10-alternatives-to-flvto-for-youtube-for-2024/"><u>[Updated] Transition Effortlessly Top 10 Alternatives to Flvto For YouTube for 2024</u></a></li>
+<li><a href="https://review-topics.techidaily.com/2-ways-to-transfer-text-messages-from-vivo-y78plus-t1-edition-to-iphone-1514131211x8-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>2 Ways to Transfer Text Messages from Vivo Y78+ (T1) Edition to iPhone 15/14/13/12/11/X/8/ | Dr.fone</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/approved-how-many-viewer-thumbs-up-equals-money-youtube-tips/"><u>2024 Approved How Many Viewer Thumbs Up Equals Money? YouTube Tips</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/2024-approved-step-by-step-guide-to-a-speedy-google-photo-collage-masterpiece/"><u>2024 Approved Step-by-Step Guide to a Speedy Google Photo Collage Masterpiece</u></a></li>
+<li><a href="https://howto.techidaily.com/full-solutions-to-fix-error-code-920-in-google-play-on-vivo-y36-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Full Solutions to Fix Error Code 920 In Google Play on Vivo Y36 | Dr.fone</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/in-2024-is-inshot-surging-above-all-else-in-edits/"><u>In 2024, Is InShot Surging Above All Else in Edits?</u></a></li>
+<li><a href="https://voice-adjusting.techidaily.com/in-2024-leading-6-digital-sound-snipping-applications/"><u>In 2024, Leading 6 Digital Sound Snipping Applications</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/troubleshooting-guide-for-ftd2xxdll-not-detected-errors/"><u>Troubleshooting Guide for 'ftd2xx.dll' Not Detected Errors</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/uncovering-snapchats-hidden-symbolism-for-2024/"><u>Uncovering Snapchat's Hidden Symbolism for 2024</u></a></li>
 </ul></div>
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2100534/7443" target="_top" id="2100534">
-  <img src="//a.impactradius-go.com/display-ad/7443-2100534" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100534/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 

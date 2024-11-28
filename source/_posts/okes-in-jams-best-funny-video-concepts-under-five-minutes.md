@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Jokes in Jams  Best Funny Video Concepts Under Five Minutes\""
-date: 2024-11-11T12:16:22.106Z
-updated: 2024-11-17T19:35:46.721Z
+date: 2024-11-24T04:18:26.354Z
+updated: 2024-11-27T16:22:08.912Z
 tags:
   - ai video
   - ai youtube
@@ -55,6 +55,10 @@ Who doesn’t love the stories? Everyone is somewhat fond of listening to differ
 
 ![filmora](https://images.wondershare.com/filmora/youtube-shorts-ideas-3.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/T-ssCD10v2M?si=WVWGNayUiCAkMZzZ&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 So, pen down some compelling stories that do not need long writing work. But, like a comic strip, you need to create and join such a series under YouTube Shorts ideas.
 
 #### Idea 3: Picture Story
@@ -70,6 +74,10 @@ Using different online software, you can enhance the pictures or modify the back
 Life is indeed full of surprises, events, and glory. Then, why not tailor some of its moments under best YouTube Shorts ideas. These experiences vary from your home, neighbor, society, college, office, or anywhere.
 
 ![filmora](https://images.wondershare.com/filmora/youtube-shorts-ideas-5.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/uV3vm805eX0?si=YSPcsFxBcJmoxLsU&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 You need to keep your judging eyes open to catch all the moments, and you can also note it down to make a series so as not to miss any exciting experience.
 
@@ -89,6 +97,10 @@ Competition creates a zeal to lead, and if you add some flavor to it. Then, peop
 
 ![filmora](https://images.wondershare.com/filmora/youtube-shorts-ideas-7.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/pRR3Oq03EuE?si=ZTy8-WH0AesA9zRh&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Funny competition can vary from a weird hairstyle, odd season festival celebration, or anything that you think of interesting, different, and eye-catching.
 
 #### Idea 7: Quirky Music
@@ -96,6 +108,10 @@ Funny competition can vary from a weird hairstyle, odd season festival celebrati
 The dripping sound of water, raindrops, flowing trees, and blowing air make some distinct sound. So, look around to find your inspiration to make some quirky sound, whether the musical instrument or can create your kind of instrument such as tumbler, glass, bowl, etc. And see the natural flow of music that resides all around us.
 
 ![filmora](https://images.wondershare.com/filmora/youtube-shorts-ideas-8.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/97ydpSmzTJw?si=tFcelmtQX4u-b3u5&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Just give it a try and dance with the music you create with all the worldwide listeners of YouTube Shorts Channel with this idea.
 
@@ -113,6 +129,10 @@ Pets are the favorite of those who own them. They are excellent; they play, danc
 
 ![filmora](https://images.wondershare.com/filmora/youtube-shorts-ideas-10.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qmQjRcnaq9g?si=jadcGtXemUAlKOTa&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 You will be surprised to see how much fun-loving these cute pets are—so, geared up to capture the funny acts of pets through YouTube Shorts ideas. It will bring a smile to everyone’s face.
 
 #### Idea 10: Talent showcase
@@ -124,13 +144,6 @@ Everybody holds some unique talent. You just need to identify it. If you have so
 Here, you got to know about the top 10 funny ideas for YouTube Shorts videos. Choose the one that fits you and start creating YouTube Shorts Channel with these ideas.
 
 Wait, there is much more than these best YouTube Shorts ideas. Yes, you heard that right! The following paragraph will lead you to get some important tips, with the help of which you can raise YouTube Short Videos views. So, without waiting anymore, move on to the next paragraph to get a glimpse of it.
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2130531/26400" target="_top" id="2130531">
-  <img src="//a.impactradius-go.com/display-ad/26400-2130531" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130531/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Part 2: Tips to Get More Views for Your YouTube Shorts Videos
 
@@ -178,13 +191,6 @@ Thus, start utilizing these powerful ideas and tips and head towards your YouTub
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082530/7443" target="_top" id="2082530">
-  <img src="//a.impactradius-go.com/display-ad/7443-2082530" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082530/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Shanoon Cox
 
 Shanoon Cox is a writer and a lover of all things video.
@@ -206,22 +212,20 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-tips.techidaily.com/ynamic-slideshows-embedding-youtube-content/"><u>[New] Dynamic Slideshows Embedding YouTube Content</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/n-2024-tagging-magic-elevating-game-based-youtubes/"><u>[New] In 2024, Tagging Magic Elevating Game-Based YouTubes</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-2024-approved-video-excellence-started-with-quality-cameras-and-lenses/"><u>[Updated] 2024 Approved Video Excellence Started with Quality Cameras and Lenses</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-examining-youtubes-mobile-app-for-iosandroid-devices/"><u>[Updated] Examining YouTube's Mobile App for iOS/Android Devices</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-step-into-vr-wonderland-youtubes-finest-vr-content-list/"><u>[Updated] Step Into VR Wonderland YouTube's Finest VR Content List</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-tailor-made-youtube-url-strategies-an-easier-approach-for-2024/"><u>[Updated] Tailor-Made YouTube URL Strategies An Easier Approach for 2024</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-unleashing-revenue-with-review-videos-of-household-items-for-2024/"><u>[Updated] Unleashing Revenue with Review Videos of Household Items for 2024</u></a></li>
-<li><a href="https://fox-links.techidaily.com/2024-approved-understanding-film-a-beginners-guide-to-essential-shots/"><u>2024 Approved Understanding Film A Beginner's Guide to Essential Shots</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/1726223253789-aac-movavi/"><u>AAC形式のオーディオ・ファイルを自由に変換する - 最新Movaviツール</u></a></li>
-<li><a href="https://extra-information.techidaily.com/full-guide-to-vscos-camera-app/"><u>Full Guide to VSCO's Camera App</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/guidelines-for-correcting-chatgpts-plugin-errors/"><u>Guidelines for Correcting ChatGPT's Plugin Errors</u></a></li>
-<li><a href="https://techidaily.com/how-to-repair-ios-system-issues-of-apple-iphone-7-plus-drfone-by-drfone-ios-system-repair-ios-system-repair/"><u>How To Repair iOS System Issues of Apple iPhone 7 Plus? | Dr.fone</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/immersive-inventory-visualization-for-2024/"><u>Immersive Inventory Visualization for 2024</u></a></li>
-<li><a href="https://ios-unlock.techidaily.com/in-2024-unlock-apple-iphone-12-mini-with-forgotten-passcode-different-methods-you-can-try-by-drfone-ios/"><u>In 2024, Unlock Apple iPhone 12 mini With Forgotten Passcode Different Methods You Can Try</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ring-youtube-standard-studio-or-beta-progress-for-2024/"><u>Mastering YouTube Standard Studio or Beta Progress for 2024</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/step-by-step-solutions-to-overcome-lameecdll-glitches-in-audio-editing-software-audacity/"><u>Step-by-Step Solutions to Overcome lame_eC.dll Glitches in Audio Editing Software (Audacity)</u></a></li>
-<li><a href="https://fox-that.techidaily.com/steps-to-take-when-the-proximity-function-on-your-iphone-fails/"><u>Steps to Take When the Proximity Function on Your iPhone Fails</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/oost-your-earnings-on-youtube-shorts-a-guide-for-2024/"><u>[New] Boost Your Earnings on YouTube Shorts A Guide for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ismantle-bots-elevate-youtube-watch-time-for-2024/"><u>[New] Dismantle Bots, Elevate YouTube Watch Time for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ransform-your-vision-youtubes-innovative-green-screen-solutions-for-2024/"><u>[New] Transform Your Vision – YouTube's Innovative Green Screen Solutions for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ncover-top-15-sci-tech-youtube-channels-for-learners-for-2024/"><u>[New] Uncover Top 15 Sci-Tech YouTube Channels for Learners for 2024</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/updated-how-to-record-your-favorite-youtube-show-regardless-of-your-gear-for-2024/"><u>[Updated] How to Record Your Favorite YouTube Show, Regardless of Your Gear for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-revolutionize-your-video-output-top-10-apps-converting-flv-to-youtube-for-2024/"><u>[Updated] Revolutionize Your Video Output Top 10 Apps Converting FLV to YouTube for 2024</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-ultimate-guide-to-sustainable-visual-effects-equipment/"><u>[Updated] Ultimate Guide to Sustainable Visual Effects Equipment</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-unveiling-the-10-most-reliable-youtube-to-webm-transformers-for-2024/"><u>[Updated] Unveiling the 10 Most Reliable YouTube-to-WebM Transformers for 2024</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/3-ways-to-unlock-your-apple-iphone-6-plus-for-free-by-drfone-ios/"><u>3 Ways to Unlock Your Apple iPhone 6 Plus for Free</u></a></li>
+<li><a href="https://location-social.techidaily.com/how-to-changefake-your-vivo-s17-pro-location-on-viber-drfone-by-drfone-virtual-android/"><u>How to Change/Fake Your Vivo S17 Pro Location on Viber | Dr.fone</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/in-2024-engaging-book-video-summaries/"><u>In 2024, Engaging Book Video Summaries</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/in-2024-the-ultimate-checklist-for-capturing-live-conversations/"><u>In 2024, The Ultimate Checklist for Capturing Live Conversations</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ating-the-ins-and-outs-of-youtube-premium/"><u>Navigating the Ins and Outs of YouTube Premium</u></a></li>
+<li><a href="https://techidaily.com/step-by-step-guide-activating-family-safety-features-in-windows-11/"><u>Step-by-Step Guide: Activating Family Safety Features in Windows 11</u></a></li>
+<li><a href="https://fox-zaraz.techidaily.com/top-free-software-options-for-safeguarding-your-windows-11-os/"><u>Top Free Software Options for Safeguarding Your Windows 11 OS</u></a></li>
 </ul></div>
 

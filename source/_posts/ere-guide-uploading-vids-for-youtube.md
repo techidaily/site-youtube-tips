@@ -1,7 +1,7 @@
 ---
 title: "\"Premiere Guide  Uploading Vids for YouTube\""
-date: 2024-11-15T04:00:05.428Z
-updated: 2024-11-18T13:41:28.048Z
+date: 2024-11-20T16:27:11.132Z
+updated: 2024-11-28T07:00:18.174Z
 tags:
   - ai video
   - ai youtube
@@ -68,6 +68,10 @@ thumbnail: https://thmb.techidaily.com/f5bde08083c297970b9e93f509911df9c27588c39
 
 ![choosing-format](https://images.wondershare.com/multimedia/choosing-format.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ZblaBc-v2vs?si=CKW1gJwXQT2vZJYo&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Once you select  you can check the 'output name' field and see that premiere is automatically set the output file to .mp4 which is exactly what we need.
 
 #### 4\. Preset
@@ -94,6 +98,10 @@ thumbnail: https://thmb.techidaily.com/f5bde08083c297970b9e93f509911df9c27588c39
 
 ![filename](https://images.wondershare.com/multimedia/filename.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/5EKBEujWCw4?si=PwVvvervi8OrYaEA&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Once those are selected clicking 'Export' starts the rendering process, and eventually (how long depends on the speed of your computer and the size and type of file involved), you will end up with your YouTube optimized video in the location you chose.
 
  Here I created 4 key frames that let the 'Animation' object move around the 'Demo Text' Object and finally come to rest below it. Whilst this type of effect does look very effective on screen, such is the ease of use of After Effects it really is just a few minutes work to achieve.
@@ -108,17 +116,29 @@ thumbnail: https://thmb.techidaily.com/f5bde08083c297970b9e93f509911df9c27588c39
 
 ![upload-menu](https://images.wondershare.com/multimedia/upload-menu.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-G7cU8dYvuI?si=JaKqRcW6qq9CDvty&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  You can either drag your file into the window or click on it to open a standard file browser to locate the desired file, click and the upload will begin. The dropdown underneath allows you to set the video as Public, Unlisted or Private. You can change this at any time once the video is uploaded as well.
 
  This opens the upload progress window, where you can add in a name, description and tags as well as add the video to a playlist or adjust the privacy settings as the video is uploading.
 
 ![upload-progress](https://images.wondershare.com/multimedia/upload-progress.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/TJCye_oCTTw?si=6bVyBphcSgSFdyuq&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Once the upload as finished, you can do final adjustments to settings and choose a thumbnail for the video. The final step is to click the 'Publish' button and your video will be processed and go live.
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/benjamin-arango-author.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/wVVp-GggK3U?si=RJb1ClNQV7GjTu_3&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Benjamin Arango
 
@@ -141,23 +161,18 @@ Follow @Benjamin Arango
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-videos.techidaily.com/updated-in-2024-unveiling-the-top-10-stealthy-story-audiences/"><u>[Updated] In 2024, Unveiling the Top 10 Stealthy Story Audiences</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-unraveling-youtubes-monetization-shifts/"><u>[Updated] Unraveling YouTube's Monetization Shifts</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/all-you-need-to-know-about-mega-greninja-for-apple-iphone-13-pro-drfone-by-drfone-virtual-ios/"><u>All You Need To Know About Mega Greninja For Apple iPhone 13 Pro | Dr.fone</u></a></li>
-<li><a href="https://extra-information.techidaily.com/crafting-a-perfect-power-pair-lipo-and-drones/"><u>Crafting a Perfect Power Pair LiPo and Drones</u></a></li>
-<li><a href="https://android-location.techidaily.com/getting-the-pokemon-go-gps-signal-not-found-11-error-in-infinix-zero-30-5g-drfone-by-drfone-virtual/"><u>Getting the Pokemon Go GPS Signal Not Found 11 Error in Infinix Zero 30 5G | Dr.fone</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/24-exclusive-list-of-leading-free-video-editing-programs/"><u>In 2024, Exclusive List of Leading Free Video Editing Programs</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/24-free-end-credits-excellence-top-6-tutorials/"><u>In 2024, Free End Credits Excellence Top 6 Tutorials</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ing-legends-esteemed-ed-streams-online/"><u>Learning Legends Esteemed Ed Streams Online</u></a></li>
-<li><a href="https://location-social.techidaily.com/proven-ways-in-how-to-hide-location-on-life360-for-xiaomi-redmi-k70e-drfone-by-drfone-virtual-android/"><u>Proven Ways in How To Hide Location on Life360 For Xiaomi Redmi K70E | Dr.fone</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/revitalize-your-browsers-performance-effective-cache-clearing-techniques-for-major-browsers/"><u>Revitalize Your Browser's Performance: Effective Cache-Clearing Techniques for Major Browsers</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ltimate-smartphone-filmmakers-handbook-for-youtube-thumbnails/"><u>The Ultimate Smartphone Filmmaker's Handbook for YouTube Thumbnails</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-building-brand-loyalty-through-emotional-fb-video-storytelling-for-2024/"><u>[New] Building Brand Loyalty Through Emotional FB Video Storytelling for 2024</u></a></li>
+<li><a href="https://article-files.techidaily.com/updated-2024-approved-laughlines-prime-websites-for-giggling-tones/"><u>[Updated] 2024 Approved LaughLines Prime Websites for Giggling Tones</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-the-best-3d-software-for-youtube-intro-creators-for-2024/"><u>[Updated] The Best 3D Software for YouTube Intro Creators for 2024</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/2024-approved-elevating-your-videography-through-audio-storytelling/"><u>2024 Approved Elevating Your Videography Through Audio Storytelling</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/approved-unravel-the-mystery-of-the-overly-green-hue-in-mac-recordings/"><u>2024 Approved Unravel the Mystery of the Overly Green Hue in Mac Recordings</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/best-free-4k-video-player-software-top-picks-for-windows-10-and-11-including-mac-compatible-options/"><u>Best Free 4K Video Player Software: Top Picks for Windows 10 & 11, Including Mac Compatible Options</u></a></li>
+<li><a href="https://windows11.techidaily.com/bypassing-obstacles-downloading-icloud-on-windows/"><u>Bypassing Obstacles: Downloading iCloud on Windows</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/complete-guide-for-recovering-contacts-files-on-x50-by-fonelab-android-recover-contacts/"><u>Complete guide for recovering contacts files on X50.</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/comprehensive-guide-to-downloading-and-updating-the-epson-l3150-driver-on-different-windows-versions/"><u>Comprehensive Guide to Downloading & Updating the Epson L3150 Driver on Different Windows Versions</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/24-easing-into-public-speaking-10-common-video-blogger-fears/"><u>In 2024, Easing Into Public Speaking 10 Common Video Blogger Fears</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/aging-wirecast-technology-for-dynamic-youtube-live-experiences/"><u>Leveraging WireCast Technology for Dynamic Youtube Live Experiences</u></a></li>
+<li><a href="https://games-able.techidaily.com/locating-steam-screenshot-archives/"><u>Locating Steam Screenshot Archives</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/navigating-through-tech-enhancements-an-in-depth-look-at-the-linksys-ea9500s-intelligent-network-solutions/"><u>Navigating Through Tech Enhancements: An In-Depth Look at the Linksys EA9500's Intelligent Network Solutions</u></a></li>
 </ul></div>
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082533/7443" target="_top" id="2082533">
-  <img src="//a.impactradius-go.com/display-ad/7443-2082533" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082533/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 

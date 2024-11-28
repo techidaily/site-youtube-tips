@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Maximizing Your Footage  The Importance of Correct Tripod Placement in Vlogging\""
-date: 2024-11-13T18:06:55.973Z
-updated: 2024-11-17T17:49:12.945Z
+date: 2024-11-20T18:40:20.524Z
+updated: 2024-11-28T04:21:53.216Z
 tags:
   - ai video
   - ai youtube
@@ -33,6 +33,10 @@ thumbnail: https://thmb.techidaily.com/77d3e1b90c90a1223bd94c398f31bb9940ba742ed
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/T-ssCD10v2M?si=WVWGNayUiCAkMZzZ&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 1: How To Set a Tripod for Vlogging
 
 #### 1\. Setting Up Your Tripod
@@ -49,13 +53,6 @@ thumbnail: https://thmb.techidaily.com/77d3e1b90c90a1223bd94c398f31bb9940ba742ed
 
  Ball Heads and Pan/Tilt Heads are the two most common types of tripod heads. Ball Heads allow you to adjust your camera’s position quite a bit before you start shooting. They are not good for adding in camera movements while you are filming, however, because you need to lock them in place. Pan/Tilt heads are great for creating camera movement. Most Pan/Tilt heads have a handle which you can use to make a smooth panning motion.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2012420/19272" target="_top" id="2012420">
-  <img src="//a.impactradius-go.com/display-ad/19272-2012420" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2012420/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Part 2: Why Do You Need a Tripod: Benefits of Using Tripod
 
  Why can't you just hold a camera in your hand while shooting vlog entries for your YouTube channel? Honestly, you can, but the camera may shake a lot and your footage might end up being unusable. Putting a camera on a tripod reduces the probability of camera shake to the minimum and that is just the tip of the iceberg.
@@ -65,16 +62,7 @@ thumbnail: https://thmb.techidaily.com/77d3e1b90c90a1223bd94c398f31bb9940ba742ed
  On the go videos, are recorded at exterior locations, and a lot of YouTubers choose to shoot these types of videos handheld, but this approach makes it difficult to maintain the same shot composition for long. A Monopod, Gorillapod or just a simple selfie stick can make your job much easier because they stabilize the camera. In addition, shooting smooth panning shots without a tripod is as difficult as it sounds.
 
 <!-- affiliate ads begin -->
-<span id="1936838">
-					<video width="374" height="48" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1936838.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/18409-1936838">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1936838.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:234px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fcoinrule.sjv.io%2Fc%2F5597632%2F1936838%2F18409'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1936838/18409" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Un9G2_OdSRI?si=vAcGbco8DuWt4ypP&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 3: A Few Things You'll Need to Consider Before You Buy a Tripod
@@ -113,6 +101,10 @@ thumbnail: https://thmb.techidaily.com/77d3e1b90c90a1223bd94c398f31bb9940ba742ed
 
 ![ YouTube Vlogger Tripod ](https://images.wondershare.com/filmora/article-images/camrah-smartphone-tripod.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/lCpzYpVPIZA?si=hNte-mPRIzjvqpRy&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  An increasing number of Smartphones features powerful cameras that can record videos at high resolutions. Unfortunately, most iPhones and Android devices are lightweight, which makes it difficult to hold them perfectly still while shooting a video. CamRah Smartphone Tripod offers a perfect solution to this problem because it is easy to pack and you can carry it wherever you go, without needing the extra space.
 
  It weighs just 0.6lbs and it is 10.8 inches tall. The tripod has a maximum load of 11lbs which means that besides Smartphones, you can also mount action cameras, webcams, or even smaller DSLR cameras onto it. The flexible legs made from high-density foam offer stability even when the CamRah Tripod is placed on an uneven surface.
@@ -135,10 +127,7 @@ thumbnail: https://thmb.techidaily.com/77d3e1b90c90a1223bd94c398f31bb9940ba742ed
 ![ YouTube Vlogger Tripod ](https://images.wondershare.com/filmora/article-images/manfrotto-mini-tripod.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2094414/7443" target="_top" id="2094414">
-  <img src="//a.impactradius-go.com/display-ad/7443-2094414" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094414/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/H2cXnI9oOvM?si=3nz2sBB124ln-83T&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Yet another great option for shooting vlogs with a Smartphone. The Manfrotto Mini Travel Tripod kit is also an excellent choice for all vloggers who shoot their videos with compact cameras. The tripod weighs just 0.51lbs and it is 5.31 inches tall, which makes it a perfect travel companion. However, it can't support cameras heavier than 2.2lbs, so you have to carefully choose the camera you want to put on this tripod.
@@ -218,10 +207,7 @@ thumbnail: https://thmb.techidaily.com/77d3e1b90c90a1223bd94c398f31bb9940ba742ed
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151888/7443" target="_top" id="2151888">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151888" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151888/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/AcAYRX0cwwA?si=DxqWU39vqksZbe1s&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -245,20 +231,24 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-videos.techidaily.com/new-2024-approved-uncover-the-secret-correcting-mobile-video-sharing-on-fb-messenger/"><u>[New] 2024 Approved Uncover the Secret Correcting Mobile Video Sharing on FB Messenger</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/new-essential-tips-for-capturing-evening-portraits-for-2024/"><u>[New] Essential Tips for Capturing Evening Portraits for 2024</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/n-2024-beauty-breakdown-mastering-makeup-and-hauls-online/"><u>[New] In 2024, Beauty Breakdown Mastering Makeup and Hauls Online</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/rime-mp3-converters-the-ultimate-list-from-youtube-for-2024/"><u>[New] Prime MP3 Converters The Ultimate List From YouTube for 2024</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-2024-approved-audio-perfection-achieved-expert-tips-without-a-microphone/"><u>[Updated] 2024 Approved Audio Perfection Achieved Expert Tips Without a Microphone</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-in-2024-ideal-recording-gear-for-vloggers/"><u>[Updated] In 2024, Ideal Recording Gear for Vloggers</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/updated-optimizing-youtube-content-for-instagram-platforms/"><u>[Updated] Optimizing YouTube Content for Instagram Platforms</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-twitters-viral-victory-hot-talk-highlights/"><u>[Updated] Twitter's Viral Victory Hot Talk Highlights</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/2024-approved-rewind-revolution-iphones-time-turning-ability/"><u>2024 Approved Rewind Revolution IPhone's Time-Turning Ability</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/711457-9781429991995-courage/"><u>Courage | Free Book</u></a></li>
-<li><a href="https://change-location.techidaily.com/in-2024-catchemall-celebrate-national-pokemon-day-with-virtual-location-on-xiaomi-redmi-note-12-proplus-5g-drfone-by-drfone-virtual-android/"><u>In 2024, CatchEmAll Celebrate National Pokémon Day with Virtual Location On Xiaomi Redmi Note 12 Pro+ 5G | Dr.fone</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/24-discover-top-6-short-video-download-sites-free/"><u>In 2024, Discover Top 6 Short Video Download Sites (FREE)</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/nal-evolution-building-an-enduring-youtubing-identity/"><u>Personal Evolution Building an Enduring YouTubing Identity</u></a></li>
-<li><a href="https://printer-issues.techidaily.com/stay-current-with-the-latest-driver-release-for-hp-4630/"><u>Stay Current with the Latest Driver Release for HP 4630</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/n-yet-seen-how-to-conceal-faces-and-objects-digitally-for-2024/"><u>Unseen Yet Seen How to Conceal Faces and Objects Digitally for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-from-paper-to-cloud-preserving-old-family-photographs/"><u>[New] From Paper to Cloud Preserving Old Family Photographs</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-mastering-the-art-of-youtube-music-reactions-essential-tips/"><u>[New] In 2024, Mastering the Art of YouTube Music Reactions - Essential Tips</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-precision-poetry-the-news-outro-art/"><u>[New] In 2024, Precision Poetry The News Outro Art</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ntegrating-video-content-youtube-and-google-slides/"><u>[New] Integrating Video Content YouTube & Google Slides</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-mirrorless-impact-on-professional-video-recording-for-2024/"><u>[Updated] Mirrorless Impact on Professional Video Recording for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-text-gymnastics-ingenious-techniques-for-animated-bounces-for-2024/"><u>[Updated] Text Gymnastics Ingenious Techniques for Animated Bounces for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-the-symphony-of-screens-coordinated-content-consumption-for-2024/"><u>[Updated] The Symphony of Screens Coordinated Content Consumption for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-ultra-wealthy-digital-creators-for-2024/"><u>[Updated] Ultra-Wealthy Digital Creators for 2024</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/updated-unlock-the-power-of-podcasts-15-tips-for-multitasking-and-growth/"><u>[Updated] Unlock the Power of Podcasts 15 Tips for Multitasking and Growth</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/1-best-free-tools-for-converting-mov-files-to-mp4-top-5-options/"><u>1. Best Free Tools for Converting MOV Files to MP4: Top 5 Options</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/10-movies-that-make-you-a-language-connoisseur/"><u>10 Movies That Make You a Language Connoisseur</u></a></li>
+<li><a href="https://location-fake.techidaily.com/3-ways-to-fake-gps-without-root-on-xiaomi-redmi-note-12-pro-5g-drfone-by-drfone-virtual-android/"><u>3 Ways to Fake GPS Without Root On Xiaomi Redmi Note 12 Pro 5G | Dr.fone</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/bugged-hardware-students-encounter-pest-problems-with-chromebook-devices-a-persistent-issue-explored-by-zdnet/"><u>Bugged Hardware? Students Encounter Pest Problems with Chromebook Devices - A Persistent Issue Explored by ZDNet</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/el-command-center-mastering-your-digital-domain-for-2024/"><u>Channel Command Center Mastering Your Digital Domain for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/essential-free-templates-for-mastering-after-effects-for-2024/"><u>Essential FREE Templates for Mastering After Effects for 2024</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/free-online-raw-to-jpeg-converter-moveavi/"><u>Free Online RAW-to-JPEG Converter - Moveavi</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ating-the-world-of-asmr-video-content-for-2024/"><u>Navigating the World of ASMR Video Content for 2024</u></a></li>
+<li><a href="https://voice-adjusting.techidaily.com/new-premier-collection-of-popular-mobile-alert-melodies/"><u>New Premier Collection of Popular Mobile Alert Melodies</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/strategies-for-apps-that-wont-download-from-play-store-on-samsung-galaxy-a15-5g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Strategies for Apps That Wont Download From Play Store On Samsung Galaxy A15 5G | Dr.fone</u></a></li>
 </ul></div>
 

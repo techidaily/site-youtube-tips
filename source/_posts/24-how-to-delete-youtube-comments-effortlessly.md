@@ -1,7 +1,7 @@
 ---
 title: "In 2024, How to Delete YouTube Comments Effortlessly?"
-date: 2024-11-16T01:52:56.451Z
-updated: 2024-11-18T07:56:34.986Z
+date: 2024-11-21T01:19:58.780Z
+updated: 2024-11-28T06:16:20.056Z
 tags:
   - ai video
   - ai youtube
@@ -41,6 +41,10 @@ So how do you delete all YouTube comments? In this how-to blog, we will show you
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/xIP8ktrmOdg?si=zRnjbGzM6PDx2jCq&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## How to Delete YouTube Comments from Desktop?
 
 In this section, we will tell you how you can do it from your desktop.
@@ -51,13 +55,6 @@ In this section, we will tell you how you can do it from your desktop.
 4. When you locate the comment, click on the three vertical dots on the right-hand side of the comment. From the drop-down list, click on Remove. The process is complete, and YouTube will remove your comment.
 
 You also have the option to report the comment or [hide the user from your channel](https://tools.techidaily.com/wondershare/filmora/download/).
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2148774/18498" target="_top" id="2148774">
-  <img src="//a.impactradius-go.com/display-ad/18498-2148774" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2148774/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## How to Delete All YouTube Comments from Mobile?
 
@@ -116,10 +113,7 @@ To find your History from your desktop, you need to click on the three horizonta
 ![ Report YouTube comments](https://images.wondershare.com/filmora/article-images/report-youtube-comment.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1948932/19272" target="_top" id="1948932">
-  <img src="//a.impactradius-go.com/display-ad/19272-1948932" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948932/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Nyp7-xVwqHA?si=XCuZbpKLFIdrGQQh&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How to Delete All Your Posted YouTube Comments?
@@ -131,35 +125,33 @@ You can also delete all comments you ever posted on any YouTube video by hiding 
 
 ![   YouTube Settings](https://images.wondershare.com/filmora/article-images/two-ways-settings-youtube-channel.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/AcAYRX0cwwA?si=DxqWU39vqksZbe1s&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 1. YouTube will direct you to the Settings page of your account. Choose Advanced Settings from the list on your left. You can also access it from[here](https://www.youtube.com/account%5Fadvanced).
 
 ![   YouTube Advanced  Settings](https://images.wondershare.com/filmora/article-images/youtube-advanced-settings.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ZblaBc-v2vs?si=CKW1gJwXQT2vZJYo&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 1. Scroll down and select Delete Channel. Clicking it will not delete your account. When you click on Delete Channel, you will get two choices – ‘I want to hide my channel’ and ‘I want to permanently delete my content’. Select the first.
 
 ![   YouTube Settings](https://images.wondershare.com/filmora/article-images/remove-youtube-content.jpg)
 
-1. YouTube will now show you what will happen when you hide your channel. Check all the boxes to confirm that you understand, and then tap on Hide My Channel. YouTube will now delete all comments made by your account.
-
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1885932/19272" target="_top" id="1885932">
-  <img src="//a.impactradius-go.com/display-ad/19272-1885932" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1885932/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/97ydpSmzTJw?si=tFcelmtQX4u-b3u5&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
+1. YouTube will now show you what will happen when you hide your channel. Check all the boxes to confirm that you understand, and then tap on Hide My Channel. YouTube will now delete all comments made by your account.
 
 ### Final Thoughts
 
 YouTube can be an unsafe place with unwanted comments everywhere. In this blog, we tried to show how you can get rid of comments on your and on others’ YouTube accounts. The next time you see an offensive comment or post something mistakenly, don’t forget to try our tips and make YouTube a safe platform again.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2043617/7443" target="_top" id="2043617">
-  <img src="//a.impactradius-go.com/display-ad/7443-2043617" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043617/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -182,20 +174,16 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://snapchat-videos.techidaily.com/new-mastering-snap-camera-in-ms-teams/"><u>[New] Mastering Snap Camera in MS Teams</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ips-for-successful-youtube-audios/"><u>[New] Tips for Successful Youtube Audios</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-a-vloggers-dream-exploring-the-best-12-video-capture-devices/"><u>[Updated] 2024 Approved A Vlogger's Dream Exploring the Best 12 Video Capture Devices</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-2024-approved-how-to-add-youtube-end-screen-and-cards-effectively/"><u>[Updated] 2024 Approved How to Add YouTube End Screen and Cards Effectively</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-2024-approved-keyword-proficiency-at-little-to-none-guide-to-the-top-7-youtube-tag-extractor-apps/"><u>[Updated] 2024 Approved Keyword Proficiency at Little to None Guide to the Top 7 Youtube Tag Extractor Apps</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-in-2024-effortlessly-embedding-visual-media-in-free-content-creation/"><u>[Updated] In 2024, Effortlessly Embedding Visual Media in Free Content Creation</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-streamline-videography-an-in-depth-look-at-youtube-studio-editor/"><u>[Updated] Streamline Videography An In-Depth Look at YouTube Studio Editor</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/updated-the-art-of-capturing-scenes-ezvides-screencast-solution-for-2024/"><u>[Updated] The Art of Capturing Scenes EZvide's Screencast Solution for 2024</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-the-ultimate-guide-to-8-mirrorless-cameras-for-vloggers/"><u>[Updated] The Ultimate Guide to 8 Mirrorless Cameras for Vloggers</u></a></li>
-<li><a href="https://android-location.techidaily.com/how-to-fake-gps-on-android-without-mock-location-for-your-realme-narzo-60-pro-5g-drfone-by-drfone-virtual/"><u>How to Fake GPS on Android without Mock Location For your Realme Narzo 60 Pro 5G | Dr.fone</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-data-from-nubia-red-magic-8s-pro-to-samsung-phone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Data from Nubia Red Magic 8S Pro to Samsung Phone | Dr.fone</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/24-investigating-the-financial-benefits-of-each-youtube-watcher/"><u>In 2024, Investigating the Financial Benefits of Each YouTube Watcher</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/in-2024-quick-and-reliable-mp4-file-capture-tool/"><u>In 2024, Quick & Reliable MP4 File Capture Tool</u></a></li>
-<li><a href="https://meme-emoji.techidaily.com/new-how-to-make-an-adorable-video-for-your-babys-first-year/"><u>New How to Make an Adorable Video for Your Babys First Year</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/the-artisans-guide-to-animation-enchantment/"><u>The Artisan's Guide to Animation Enchantment</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/024-approved-broadview-networks-navigating-mcn-choices/"><u>[New] 2024 Approved Broadview Networks Navigating MCN Choices</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-enjoy-9-complete-uncut-holiday-cine-classics-for-no-cost/"><u>[New] In 2024, Enjoy 9 Complete, Uncut Holiday Cine Classics for No Cost</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-in-2024-mastering-live-video-recovery-on-facebook-2023-edition/"><u>[New] In 2024, Mastering Live Video Recovery on Facebook, 2023 Edition</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-unlocking-the-potential-of-monetized-vlogs/"><u>[New] In 2024, Unlocking the Potential of Monetized Vlogs</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/p3-broadcasting-made-easy-upload-tutorial-for-youtube-for-2024/"><u>[New] MP3 Broadcasting Made Easy Upload Tutorial for YouTube for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-beginning-vlog-essential-gear-and-initial-editing-tools/"><u>[Updated] Beginning Vlog Essential Gear & Initial Editing Tools</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-in-2024-crafting-a-legacy-youtubers-playbook-for-success/"><u>[Updated] In 2024, Crafting a Legacy YouTuber’s Playbook for Success</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-photographic-tapestry-assembly-techniques/"><u>[Updated] Photographic Tapestry Assembly Techniques</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/discreet-detail-management-in-image-editing-software/"><u>Discreet Detail Management in Image Editing Software</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/expand-your-digital-workspace-enjoy-dual-monitor-support-on-your-m3-macbook-pro-the-latest-update-that-matches-m3-macbook-air-features/"><u>Expand Your Digital Workspace: Enjoy Dual-Monitor Support on Your M3 MacBook Pro - The Latest Update That Matches M3 MacBook Air Features!</u></a></li>
+<li><a href="https://fake-location.techidaily.com/how-to-simulate-gps-movement-in-ar-games-on-nubia-red-magic-9-proplus-drfone-by-drfone-virtual-android/"><u>How to Simulate GPS Movement in AR games On Nubia Red Magic 9 Pro+? | Dr.fone</u></a></li>
 </ul></div>
 
