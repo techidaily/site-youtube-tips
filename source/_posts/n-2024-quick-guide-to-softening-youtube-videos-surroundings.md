@@ -1,7 +1,7 @@
 ---
 title: "[New] In 2024, Quick Guide to Softening YouTube Videos' Surroundings"
-date: 2024-11-22T01:00:22.564Z
-updated: 2024-11-27T16:17:21.374Z
+date: 2024-12-01T16:22:49.883Z
+updated: 2024-12-07T16:22:39.393Z
 tags:
   - ai video
   - ai youtube
@@ -40,10 +40,6 @@ Even if your set is clean, there could be things like books behind you, which wi
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/bXmwwSmYqq4?si=Bb-eJfLnlpeeClyt&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Part 1: How to Blur Background of Your YouTube Video in Shooting Videos
 
 Blurring your background is also how you create a beautiful bokeh lighting effect. Bokeh is when you blur lights in the background of your shot, creating halo-like circles of light. By attaching a filter with a shape cut out to the camera lens, you can even generate bokeh lights in other shapes, like hearts or stars.
@@ -69,6 +65,10 @@ To get a shallow depth of field, make sure your aperture is wide. Do this by set
 
 Creating a bokeh effect is mostly the same, except that it works best when your subject/depth of field is very close to the camera, and you have a light source off in the background. Zoom Lenses do not usually have wide enough apertures to create bokeh backgrounds.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/U_aNKnMTPjo?si=Og_mEt7NP3Fbsg2n" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Blur Video Background in Post-Production with [Wondershare Filmora Video Editor](https://tools.techidaily.com/wondershare/filmora/download/)
 
 If you need to blur the video background after shooting, you can use some video editing software to add the bokeh effect or the tilt-off effect in post-production. Here, I will show you how to do that in Filmora.
@@ -76,7 +76,7 @@ If you need to blur the video background after shooting, you can use some video 
 Filmora is one of the most widely used video editing software among YouTubers. Its user-friendly interface and tutorial guide enables green-hands to start video editing quickly. Besides, you can find many free filters, effects, and elements pre-programmed, so you can use them directly without looking for presets and templates somewhere else.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/P6Wfzj6YNDM?si=WRZQD9zCdQ1_tW1b&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GyfJUhsz_AY?si=x2HjoLX1B89oEPgZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 1\. Add Bokeh Filter to Video in Filmora
@@ -97,16 +97,12 @@ Go to the **Effects** tab and then switch to the **Utility** menu under **Includ
 
 ![ Filmora Tilt-Shift effects ](https://images.wondershare.com/filmora/article-images/tilt-shift-effects.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/jjGL9wFdlbo?si=Vb1JgZqRXNc03UGG&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Here, I will select the **Tilt-Shift Circle** effect and drop it to the track above the video. Now, you can adjust the size, position, and intensity of the tilt-shift circle effect
 
 ![ Filmora Tilt-Shift Circle effect](https://images.wondershare.com/filmora/article-images/apply-tilt-shift-circle-effect.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/d-COuhPT5mk?si=wLZU6jkkAdJuAn6h&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0nGlyEL5K6Y?si=3KZhTTBvKcPmyS68" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 You see, the video background is blurred, and the people are highlighted. Now it's your turn to download the Filmora video editor and try it yourself.
@@ -114,10 +110,14 @@ You see, the video background is blurred, and the people are highlighted. Now it
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/oeSN3u4fO9M?si=Ua3Hzcil6u6akDgY&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MPoakxUNf9o?si=S-ppSqzHzN9VrxC7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Vca--yEhtdo?si=7ijqjyP-oi3LYze1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -140,24 +140,17 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-tips.techidaily.com/dding-emojis-in-youtube-discussions-for-2024/"><u>[New] Adding Emojis in YouTube Discussions for 2024</u></a></li>
-<li><a href="https://fox-http.techidaily.com/new-embrace-audio-freedom-the-revolutionary-pazera-extractor-guide/"><u>[New] Embrace Audio Freedom The Revolutionary Pazera Extractor Guide</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/inancial-insights-for-vids-how-much-do-youtubers-earn-per-sponsorship/"><u>[New] Financial Insights for Vids How Much Do YouTubers Earn Per Sponsorship?</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/n-2024-monetizing-mastery-a-triple-step-approach-to-understanding-youtube-revenue/"><u>[New] In 2024, Monetizing Mastery A Triple Step Approach to Understanding YouTube Revenue</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/new-mastering-the-art-of-affordable-data-storage-cloud-for-2024/"><u>[New] Mastering the Art of Affordable Data Storage (Cloud) for 2024</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/urbocharge-youtube-videos-efficient-rendering-fast-transfer-for-2024/"><u>[New] Turbocharge YouTube Videos Efficient Rendering, Fast Transfer for 2024</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-directly-infuse-youtube-music-into-any-imovie-project/"><u>[Updated] Directly Infuse YouTube Music Into Any iMovie Project</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-in-2024-best-10-screen-recorders-for-youtube/"><u>[Updated] In 2024, Best 10 Screen Recorders for YouTube</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-key-elements-to-consider-in-asmr-video-watching/"><u>[Updated] Key Elements to Consider in ASMR Video Watching</u></a></li>
-<li><a href="https://article-tips.techidaily.com/2024-approved-navigating-the-world-of-file-conversion-in-vlc-starting-with-mp4/"><u>2024 Approved Navigating the World of File Conversion in VLC, Starting with MP4</u></a></li>
-<li><a href="https://games-able.techidaily.com/diagnosing-and-solving-gpu-induced-image-droop/"><u>Diagnosing & Solving GPU-Induced Image Droop</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/enduring-the-elements-assessing-electric-vehicle-resilience-to-temperature-extremes/"><u>Enduring the Elements: Assessing Electric Vehicle Resilience to Temperature Extremes</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/exceptional-counsel-premium-ringtone-developers/"><u>Exceptional Counsel Premium Ringtone Developers</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/youtube-channel-art-templates-find-them-here-for-2024/"><u>Free YouTube Channel Art Templates - Find Them Here for 2024</u></a></li>
-<li><a href="https://fox-links.techidaily.com/in-2024-ultimate-slomo-videography-tool-assessment/"><u>In 2024, Ultimate SloMo Videography Tool Assessment</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-comfort-selecting-snug-winter-themes-for-filming/"><u>Layered Comfort Selecting Snug Winter Themes for Filming</u></a></li>
-<li><a href="https://win-blog.techidaily.com/optimizing-your-listening-experience-overcoming-2022-spotify-web-player-lag-problems/"><u>Optimizing Your Listening Experience: Overcoming 2022 Spotify Web Player Lag Problems</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ltimate-youtube-seo-toolkit-boosting-your-content-rankings-for-2024/"><u>The Ultimate YouTube SEO Toolkit Boosting Your Content Rankings for 2024</u></a></li>
-<li><a href="https://fox-pages.techidaily.com/upgrading-to-more-space-installing-larger-drives-and-ssds-on-windows-11-systems/"><u>Upgrading to More Space: Installing Larger Drives and SSDs on Windows 11 Systems</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/lashing-feathersticks-short-film-characters-music-for-2024/"><u>[New] Flashing Feathersticks Short Film Characters' Music for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-downloading-the-latest-tracks-a-guide-to-free-extractors-for-pc-users/"><u>[New] In 2024, Downloading the Latest Tracks A Guide to Free Extractors for PC Users</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/new-premier-online-videography-tools-to-eye-for-2024/"><u>[New] Premier Online Videography Tools to Eye for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/peedy-setup-procedures-for-personalized-youtube-shorts-images/"><u>[New] Speedy Setup Procedures for Personalized YouTube Shorts Images</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-2024-approved-audiovisual-interpretation-engine/"><u>[Updated] 2024 Approved Audiovisual Interpretation Engine</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-2024-approved-the-symphony-of-social-sharing-adding-audio-to-instagram/"><u>[Updated] 2024 Approved The Symphony of Social Sharing Adding Audio to Instagram</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-in-2024-perfecting-pitched-lines-writing-natural-conversations/"><u>[Updated] In 2024, Perfecting Pitched Lines Writing Natural Conversations</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/androids-top-visual-adjustment-tools-for-2024/"><u>Android's Top Visual Adjustment Tools for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ing-buzz-strategies-for-shaping-your-unique-youtubing-image/"><u>Building Buzz Strategies for Shaping Your Unique YouTubing Image</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ic-counterpoints-funny-song-flips-for-2024/"><u>Comedic Counterpoints Funny Song Flips for 2024</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/in-2024-master-the-art-of-iphone-image-rotation-effortless-methods/"><u>In 2024, Master the Art of iPhone Image Rotation - Effortless Methods</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/in-2024-the-ultimate-guide-to-digital-marketing-triumphs/"><u>In 2024, The Ultimate Guide to Digital Marketing Triumphs</u></a></li>
 </ul></div>
 

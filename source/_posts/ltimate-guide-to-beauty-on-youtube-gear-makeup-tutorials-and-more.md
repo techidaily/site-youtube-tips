@@ -1,7 +1,7 @@
 ---
 title: "\"The Ultimate Guide to Beauty on YouTube - Gear, Makeup Tutorials, and More\""
-date: 2024-11-21T03:46:20.738Z
-updated: 2024-11-27T19:41:39.872Z
+date: 2024-12-01T16:06:09.669Z
+updated: 2024-12-07T16:12:37.916Z
 tags:
   - ai video
   - ai youtube
@@ -146,10 +146,6 @@ You might want to experiment with sitting at different distances to see how the 
 
 ![tilt down your camera](https://images.wondershare.com/filmora/article-images/tilt-down-camera1.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/MPoakxUNf9o?si=S-ppSqzHzN9VrxC7&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 **_Step 3:_** Check your frame (this is easiest if your camera has a screen that flips out) to make sure there’s not too much empty space in your shot.
 
 **_Step 4:_** Adjust your camera’s focus so your picture is clear. You may need to set up a lamp, chair, or stuffed animal as a stand-in for yourself while you stand behind the camera adjusting the focus.
@@ -163,7 +159,7 @@ An aperture of f/5.0 is good if you’re going to be moving around a lot, but if
 ![set f stop](https://images.wondershare.com/filmora/article-images/set-f-stop2.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RBN1gYY5hUs?si=p89CMiMzeJzU0wGu&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/odDOPrPjRYY?si=7QHzdUkTPNkHJiVj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 **Step 6:** Set your ISO (film speed). A lower ISO will give you a darker, but higher quality, image. A higher ISO will lower your quality and give you a brighter image.
@@ -172,11 +168,11 @@ ISO 400 should be a happy medium for shooting inside with your ring light, but y
 
 ![set film speed](https://images.wondershare.com/filmora/article-images/set-film-speed3.jpg)
 
-For more info on [camera settings for beauty videos, click here](https://www.filmora.io/video-tutorials/how-to-set-up-your-camera-%E2%80%93-the-makeup-series-12.html).
-
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aRMCbJxLuwE?si=E5sfJvoqkv1qCMWz&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Lp78eFEGwVU?si=-4orJBLvJJrggCJ2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
+For more info on [camera settings for beauty videos, click here](https://www.filmora.io/video-tutorials/how-to-set-up-your-camera-%E2%80%93-the-makeup-series-12.html).
 
 ## **Lighting for Beauty**
 
@@ -191,6 +187,10 @@ There are, however, some reasons you might want additional light:
 If you only have a ring light/front light then you may end up looking like you’re surrounded by shadows. If you want more light for your space you can use windows, household lamps, or professional video lights like softboxes or LED panels.
 
  ![light background](https://images.wondershare.com/filmora/article-images/light-background4.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/omWG4u39lmE?si=yk1AEo_gzDpGjYbl" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 #### **To Stand Out Against your Background (‘Backlighting’)**
 
@@ -224,6 +224,10 @@ One cool feature of the Neewer Ring Light is that you can choose between dayligh
 
 ![Neewer Ring Light ](https://images.wondershare.com/filmora/article-images/neewer-ring-light5.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/SDUPd69Qfls?si=uIGZG-riskwmVZYg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 This light is dimmable and can be adjusted to the angle that suits your shot. That’s true of our number 2 pick too, and the second place light actually has a slight edge over the Neewer light because its color temperature is 5400K which is slightly closer to daylight than Neewer’s 5500K, but that’s honestly not super important for YouTube. They’re close enough that you won’t be able to tell the difference, and this light is over $100 more affordable.
 
 #### 2\. [**Prismatic Halo Ring Light**](https://www.amazon.com/Prismatic-Halo-Ring-Light-Stand/dp/B015NJ2YHY/ref=sr%5F1%5F3?s=electronics&ie=UTF8&qid=1530135663&sr=1-3&keywords=prismatic+18%22+halo+ring+light) **\- $260**
@@ -231,10 +235,6 @@ This light is dimmable and can be adjusted to the angle that suits your shot. Th
 This lightweight ring light is easy to transport, set up, and mount your phone or camera to. It’s a fluorescent ‘daylight’ (5400K) light, so the colors in your videos will look natural.
 
 This light is dimmable, so you can turn it down if it’s too bright, and the Prismatic Light Stand will allow you to tilt your light to the perfect angle. This will be handy if you’re mounting your camera inside the ring but want to place it slightly above your face instead of having it look at you head on.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9Sj2QNA-JXI?si=V-_h73iE3VlE214k&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **Build Your Own Diva Ring Light**
 
@@ -264,7 +264,7 @@ This is your ring light. Continue to step 5 if you want it to have a stand (you 
 **_Step 5:_** Fasten your ring light tightly to your paper towel stand securely with several zip ties. Make sure to fasten it at the bottom (where the excess rope light is coming out of your ring light). Cut off the tails of the zip ties.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/_1g4U13PBk0?si=xJLJtlc4hKBTBH8M&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0nGlyEL5K6Y?si=3KZhTTBvKcPmyS68" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **How to Make a Makeup Tutorial – Before You Start**
@@ -303,7 +303,7 @@ Remember to include what type of video you made, i.e. ‘tutorial’, ‘review�
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/PUDdKOsEN74?si=tkZf-KVinjuwmgx9&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/4qA2pGQ5qmw?si=1mAA9WTi2Z5F7n6s" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -327,19 +327,24 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-tips.techidaily.com/n-2024-skyrocket-view-counts-with-youtube-short-creation-techniques/"><u>[New] In 2024, Skyrocket View Counts with YouTube Short Creation Techniques</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/phoneipad-top-10-free-youtube-video-editing-apps/"><u>[New] IPhone/iPad Top 10 Free YouTube Video Editing Apps</u></a></li>
-<li><a href="https://youtube-stream.techidaily.com/new-pro-video-gear-the-ultimate-stabilizers-selection/"><u>[New] Pro Video Gear – The Ultimate Stabilizers Selection</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-end-screen-magic-free-templates-to-boost-video-appeal-for-2024/"><u>[Updated] End-Screen Magic Free Templates to Boost Video Appeal for 2024</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/updated-ensuring-flawless-images-avoid-watermarks-for-2024/"><u>[Updated] Ensuring Flawless Images Avoid Watermarks for 2024</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/2024-approved-enhance-video-storytelling-with-smart-chapter-insertion-techniques-on-youtube/"><u>2024 Approved Enhance Video Storytelling with Smart Chapter Insertion Techniques on YouTube</u></a></li>
-<li><a href="https://extra-information.techidaily.com/bridging-audio-and-web-mastering-the-podcast-rss-format-for-2024/"><u>Bridging Audio & Web Mastering the Podcast RSS Format for 2024</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/utter-plus-for-2024/"><u>ClipCutter Plus for 2024</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ring-your-videos-top-youtube-friendly-cameras/"><u>Mastering Your Videos Top YouTube-Friendly Cameras</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/microsoft-surface-pro-4-touchscreen-malfunction-heres-how-to-get-it-working-again/"><u>Microsoft Surface Pro 4 Touchscreen Malfunction? Here's How to Get It Working Again</u></a></li>
-<li><a href="https://extra-information.techidaily.com/pioneering-the-future-of-drones-today-and-tomorrow/"><u>Pioneering the Future of Drones Today & Tomorrow</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/record-whole-page-visuals/"><u>Record Whole Page Visuals</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/utionize-marketing-top-tools-for-perfectly-timed-video-tags-for-2024/"><u>Revolutionize Marketing Top Tools for Perfectly Timed Video Tags for 2024</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/unveiling-the-fugetek-ft-568-a-detailed-look-at-this-elite-robust-selfie-accessory/"><u>Unveiling the Fugetek FT-568: A Detailed Look at This Elite, Robust Selfie Accessory</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-2024-approved-streamlining-your-editing-workflow-with-final-cut-pro-tips/"><u>[New] 2024 Approved Streamlining Your Editing Workflow with Final Cut Pro Tips</u></a></li>
+<li><a href="https://article-files.techidaily.com/new-all-inclusive-breakdown-deciphering-google-podcasts-for-2024/"><u>[New] All-Inclusive Breakdown Deciphering Google Podcasts for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-a-comprehensively-reviewed-list-of-youtube-video-extractor-apps-android/"><u>[New] In 2024, A Comprehensively Reviewed List of YouTube Video Extractor Apps (Android)</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/new-in-2024-clear-focus-navigating-the-nuances-of-zooming/"><u>[New] In 2024, Clear Focus Navigating the Nuances of Zooming</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-short-form-showdown-youtube-vs-tiktok-edition/"><u>[New] In 2024, Short-Form Showdown Youtube VS. TikTok Edition</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/earning-luminaries-leading-ed-tutorials-online-for-2024/"><u>[New] Learning Luminaries Leading Ed Tutorials Online for 2024</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/updated-2024-approved-mastering-video-and-screenshots-with-simple-steps/"><u>[Updated] 2024 Approved Mastering Video & Screenshots with Simple Steps</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-day-after-evaluation-new-approaches-for-2024/"><u>[Updated] Day After Evaluation New Approaches for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-discovering-the-ultimate-10-vr-video-experience-on-youtube-for-2024/"><u>[Updated] Discovering the Ultimate 10-VR Video Experience on YouTube for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-from-zero-to-viral-video-top-10-user-friendly-youtube-concepts-for-2024/"><u>[Updated] From Zero to Viral Video Top 10 User-Friendly YouTube Concepts for 2024</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/upgraded-strategies-for-eliminating-minecraft-lag-and-enhancing-playtime/"><u>[UPGRADED] Strategies for Eliminating Minecraft Lag and Enhancing Playtime</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/approved-beam-it-up-15-must-haves-for-your-youtube-live-stream/"><u>2024 Approved Beam It Up! 15 Must-Haves for Your YouTube Live Stream</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/cambia-de-formato-audio-digital-convertir-dts-en-aac-sin-coste-con-movavi/"><u>Cambia De Formato Audio Digital - Convertir DTS en AAC Sin Coste Con Movavi</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/download-hp-pro-mfp-color-laserjet-m477-printer-drivers-step-by-step-guide/"><u>Download HP Pro MFP Color LaserJet M477 Printer Drivers: Step-by-Step Guide</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ssential-guide-to-free-licensed-audio-for-yt/"><u>The Essential Guide to Free, Licensed Audio for YT</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/the-ultimate-guide-to-reverse-films-on-android/"><u>The Ultimate Guide to Reverse Films on Android</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/troubleshooting-steps-how-to-repair-aoc-display-issue-on-win10/"><u>Troubleshooting Steps: How to Repair AOC Display Issue on Win10</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ering-the-dynamics-of-youtubes-post-upload-system/"><u>Uncovering the Dynamics of YouTube's Post-Upload System</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/nedit-ace-for-2024/"><u>VisionEdit Ace for 2024</u></a></li>
 </ul></div>
 

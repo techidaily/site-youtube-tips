@@ -1,7 +1,7 @@
 ---
 title: "Thrifty Approaches to YouTube Video Card Production for 2024"
-date: 2024-09-01T13:42:47.342Z
-updated: 2024-09-02T13:42:47.342Z
+date: 2024-12-06T16:02:12.935Z
+updated: 2024-12-07T16:04:32.671Z
 tags:
   - ai video
   - ai youtube
@@ -40,6 +40,10 @@ thumbnail: https://thmb.techidaily.com/0a4429b41076dffc8b778c6281e805f6a7937a0d2
 
 [How To Make an End Card](#how-to)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/tkpBmccvJ_Q?si=J7ellPL1G1l8Axi_" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part1: Intros
 
 #### Elements of an Intro
@@ -68,6 +72,10 @@ You can create a simple intro card in **Filmora**.
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ZeYbTVeaXg0?si=rwLL1DbBoX26BGjm" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 1. Choose your background. You may want to use a short clip as your intro, or you may just want a colored background.
 2. Drag your clip or background into the video track of your timeline and trim it down to five seconds.
 3. If you have a logo, import it into Filmora and drag it into your picture-in-picture track.
@@ -76,6 +84,10 @@ You can create a simple intro card in **Filmora**.
 6. Go to the Text/Titles menu and choose an animated title that suits your channel. Drag it into your text track and edit it to include your name.
 7. The last piece of your intro is sound. You can choose a song from Filmora’s library and cut it down to five seconds, or import your sound effect.
 8. Export your video and save it for use in all of your other videos.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RAnyQ0uj9Yg?si=Es4_ulcdM_-LuDcq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 2: End Cards
 
@@ -112,20 +124,21 @@ Some creators will leave their end cards at that and play music overtop, but it 
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/f3PFn06LijE?si=zHrmlTOzrKxXe-k4" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Shanoon Cox
 
 Shanoon Cox is a writer and a lover of all things video.
 
 Follow @Shanoon Cox
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -134,8 +147,24 @@ Follow @Shanoon Cox
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-links.techidaily.com/new-in-2024-pro-gear-bundle-elevating-your-experience-with-yi-4k/"><u>[New] In 2024, Pro Gear Bundle Elevating Your Experience with YI 4K</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/nlocking-user-generated-content-harnessing-community-influence-for-2024/"><u>[New] Unlocking User-Generated Content Harnessing Community Influence for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-bite-sized-urls-essential-tools-for-youtubers-to-streamline-sharing/"><u>[Updated] Bite-Sized URLs Essential Tools for Youtubers to Streamline Sharing</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-easy-and-inexpensive-techniques-for-youtube-cards-for-2024/"><u>[Updated] Easy and Inexpensive Techniques for YouTube Cards for 2024</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/updated-in-2024-how-to-get-the-most-out-of-your-streamlabs-obs-setup/"><u>[Updated] In 2024, How to Get the Most Out of Your Streamlabs OBS Setup</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-in-2024-premium-editing-tools-unveiled-youtube-edition/"><u>[Updated] In 2024, Premium Editing Tools Unveiled YouTube Edition</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-reimagining-focus-the-new-age-of-zooming-clear/"><u>[Updated] Reimagining Focus The New Age of Zooming Clear</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-revenue-realization-strategies-for-successful-monetization-on-youtube-mobile-for-2024/"><u>[Updated] Revenue Realization Strategies for Successful Monetization on YouTube Mobile for 2024</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/updated-sync-your-mac-visuals-with-acoustic-backup/"><u>[Updated] Sync Your Mac Visuals with Acoustic Backup</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-the-ultimate-guide-tackling-youtube-shorts-issues/"><u>[Updated] The Ultimate Guide Tackling YouTube Shorts Issues</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-youtube-splits-a-filmmakers-creative-playbook/"><u>[Updated] YouTube Splits A Filmmaker’s Creative Playbook</u></a></li>
+<li><a href="https://some-skills.techidaily.com/2024-approved-streamlining-conferencing-using-zoom-to-extend-skype-capabilities/"><u>2024 Approved Streamlining Conferencing Using Zoom to Extend Skype Capabilities</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/embracing-the-unconventional-how-a-more-weird-pc-revitalizes-technology-innovation/"><u>Embracing the Unconventional: How a More 'Weird' PC Revitalizes Technology Innovation</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/how-can-you-create-animated-facebook-ads-with-high-roi/"><u>How Can You Create Animated Facebook Ads With High ROI?</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/24-path-to-digital-fame-starting-and-building-a-youtube-chanel/"><u>In 2024, Path to Digital Fame Starting and Building a YouTube Chanel</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-tips-and-tricks-to-tell-if-your-apple-iphone-xr-is-unlocked-by-drfone-ios/"><u>In 2024, Tips And Tricks To Tell if Your Apple iPhone XR Is Unlocked</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ring-the-art-of-joining-youtube-clips-for-2024/"><u>Mastering the Art of Joining YouTube Clips for 2024</u></a></li>
+</ul></div>
 
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075475/7443" target="_top" id="2075475"><img src="//a.impactradius-go.com/display-ad/7443-2075475" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075475/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->

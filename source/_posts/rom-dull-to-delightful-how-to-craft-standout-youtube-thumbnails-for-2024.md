@@ -1,7 +1,7 @@
 ---
 title: "\"[New] From Dull to Delightful  How To Craft Standout YouTube Thumbnails for 2024\""
-date: 2024-11-27T05:09:28.732Z
-updated: 2024-11-27T23:20:59.294Z
+date: 2024-12-04T16:02:29.115Z
+updated: 2024-12-07T16:07:17.460Z
 tags:
   - ai video
   - ai youtube
@@ -43,17 +43,13 @@ Here are 5 easy tips for creating thumbnails that get views.
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aa6vSdt1elM?si=qPhmO-hoWVIPBnnC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Edit Your Videos Before Creating Video Thumbnails
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LlVkEwpjKKo?si=hXi-mchMaJvbnIzM&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/JNxZ4Z6BVCg?si=522oz1OPSQDhNYWT&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## 1\. Have a Consistent Layout
 
@@ -63,6 +59,10 @@ An example of a standard layout could be you in the middle of the screen wearing
 
 ![Consistent Layout](https://images.wondershare.com/filmora/article-images/consistent-layout.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jnITUsxMz5s?si=ohwRVH6eWhVnC6Xf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **2\. Use Your Face**
 
 People feel automatically connected and drawn into images that make eye contact. This makes thumbnails which feature faces more click-able than thumbnails which don’t, in most genres (i.e. if you make food videos then this may not apply – featuring the food might be more important than featuring your face). [Check out more tips like this here](https://tools.techidaily.com/wondershare/filmora/download/).
@@ -70,7 +70,7 @@ People feel automatically connected and drawn into images that make eye contact.
 Also, if somebody recognizes you in your thumbnail from a previous video of yours, that will go a long way towards making them click.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/K4lRBnNnd9k?si=5e0MbdOz-fF6Ry_k&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YezPJZzPJ8Q?si=xF1t4BQHFquzvnzE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 3\. Use Graphics/Emojis that are On Topic
@@ -80,7 +80,7 @@ Anybody can take a screenshot of themselves in their video and use it as a thumb
 Make sure the images you choose are relevant to the topic of your video.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/it8VkxDUdAc?si=ef6VZWR7kW4P9ikh&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/it8VkxDUdAc?si=ef6VZWR7kW4P9ikh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 4\. Make Your Text Huge
@@ -88,10 +88,6 @@ Make sure the images you choose are relevant to the topic of your video.
 If you use text in your thumbnail (you don’t have to) then it should be to add context. For example, if the main image is just you smiling then you might need some text to let viewers know the video is a makeup tutorial.
 
 Thumbnails might look large while you’re putting them together in your image editor, but when they’re displayed on YouTube they’re a lot smaller. That goes double if a viewer is watching on their phone. So, make sure that any text you use is large enough that it can be read easily on small screens.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/htnQWyEOCgc?si=fy86hi8_hTtbWAnw&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## 5\. Keep it Clutter-Free
 
@@ -104,6 +100,10 @@ A good rule for text is to use only 1-3 words. That way they won’t clutter you
 Use these tips to make video thumbnails for YouTube, and tell us what kind of results you get!
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FATJWpNYmio?si=72ugPTb3vJXz6cAM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -126,18 +126,24 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-tips.techidaily.com/n-2024-youtube-shorts-content-strategy-for-success/"><u>[New] In 2024, YouTube Shorts Content Strategy for Success</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/new-the-standard-edition-review-of-djis-drone-model-3/"><u>[New] The Standard Edition Review of DJI's Drone Model 3</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-in-2024-troubleshoot-and-clear-your-youtube-pixel-voids/"><u>[Updated] In 2024, Troubleshoot and Clear Your YouTube Pixel Voids</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/updated-picshot-revolutionizing-collage-design-processes/"><u>[Updated] Picshot Revolutionizing Collage Design Processes</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-redefining-your-viewing-experience-youtube-playlist-shuffle/"><u>[Updated] Redefining Your Viewing Experience YouTube Playlist Shuffle</u></a></li>
-<li><a href="https://program-issues.techidaily.com/ace-gaming-performance-troubleshooting-and-solutions-for-low-fps-on-windows-machines/"><u>Ace Gaming Performance: Troubleshooting and Solutions for Low FPS on Windows Machines</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/automate-conversion-tracking-with-advanced-cookie-technology/"><u>Automate Conversion Tracking with Advanced Cookie Technology</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/sive-roundup-the-best-video-to-mp3-converters-for-2024/"><u>Exclusive Roundup The Best Video to Mp3 Converters for 2024</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/in-2024-how-to-use-ispoofer-on-honor-90-lite-drfone-by-drfone-virtual-android/"><u>In 2024, How to use iSpoofer on Honor 90 Lite? | Dr.fone</u></a></li>
-<li><a href="https://techtrends.techidaily.com/master-your-task-list-proven-strategies-to-streamline-workday-processes-tips/"><u>Master Your Task List: Proven Strategies to Streamline Workday Processes - Tips</u></a></li>
-<li><a href="https://ai-driven-video-production.techidaily.com/new-2024-approved-webm-to-mp4-converter-roundup-top-10-picks/"><u>New 2024 Approved WebM to MP4 Converter Roundup Top 10 Picks</u></a></li>
-<li><a href="https://fake-location.techidaily.com/read-this-guide-to-find-a-reliable-alternative-to-fake-gps-on-vivo-v30-lite-5g-drfone-by-drfone-virtual-android/"><u>Read This Guide to Find a Reliable Alternative to Fake GPS On Vivo V30 Lite 5G | Dr.fone</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/bes-prime-stream-essential-tech-equipment-guide-for-creators/"><u>YouTube's Prime Stream Essential Tech, Equipment Guide for Creators</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/new-androidios-the-ultimate-free-image-editing-tool-guide-top-10-for-2024/"><u>[New] Android/iOS The Ultimate Free Image Editing Tool Guide (Top 10) for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-directors-speak-the-soul-of-film-writing/"><u>[New] Directors Speak The Soul of Film Writing</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ownload-youtube-gallery-files-instantly-for-2024/"><u>[New] Download YouTube Gallery Files Instantly for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-jumpstart-your-professional-filmmaking-exclusive-cost-free-green-screen-training-from-top-youtube-educators/"><u>[New] In 2024, Jumpstart Your Professional Filmmaking Exclusive, Cost-Free Green Screen Training From Top YouTube Educators</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-learn-vfx-for-free-mastering-the-art-of-background-substitution-through-4-innovative-video-tutorials/"><u>[New] In 2024, Learn VFX for Free Mastering the Art of Background Substitution Through 4 Innovative Video Tutorials</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-2024-approved-fresh-face-finds-budget-friendly-platforms-to-purchase/"><u>[Updated] 2024 Approved Fresh Face Finds Budget-Friendly Platforms to Purchase</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-2024-approved-understanding-light-settings-in-youtube-video-editing/"><u>[Updated] 2024 Approved Understanding Light Settings in YouTube Video Editing</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-master-strategies-for-skyrocketing-youtube-follows-for-2024/"><u>[Updated] Master Strategies for Skyrocketing YouTube Follows for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-pc-based-video-editing-tips-for-youtube-success-for-2024/"><u>[Updated] PC-Based Video Editing Tips for YouTube Success for 2024</u></a></li>
+<li><a href="https://win-net.techidaily.com/5ywo6z2i5pwz5a2477ya6yen5bu65asx5y6755qe5pah5lu24ocu4ocu6zqo6lqr56kf5yiq6zmk5b6m5b6p5y6f5oqa6kgt6kej5p6q/"><u>全面教學：重建失去的文件——隨身碟刪除後復原技術解析</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ing-a-billionaire-on-the-blockchain-non-ad-profits-on-youtube/"><u>Becoming a Billionaire on the Blockchain Non-Ad Profits on YouTube</u></a></li>
+<li><a href="https://network-issues.techidaily.com/correcting-windows-brightness-spike/"><u>Correcting Windows Brightness Spike</u></a></li>
+<li><a href="https://location-social.techidaily.com/how-to-change-location-on-facebook-dating-for-your-honor-90-lite-drfone-by-drfone-virtual-android/"><u>How to Change Location On Facebook Dating for your Honor 90 Lite | Dr.fone</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/24-leveraging-youtubes-algorithm-a-comprehensive-guide-to-seo/"><u>In 2024, Leveraging YouTube's Algorithm A Comprehensive Guide to SEO</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/in-depth-analysis-can-the-samsung-galaxy-a71-5g-challenge-flagship-devices-on-value-and-performance/"><u>In-Depth Analysis: Can the Samsung Galaxy A71 5G Challenge Flagship Devices on Value & Performance?</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/making-funny-photos-no-fees-involved/"><u>Making Funny Photos No Fees Involved</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/optimized-with-advanced-cookie-based-tracking-technology/"><u>Optimized with Advanced Cookie-Based Tracking Technology</u></a></li>
+<li><a href="https://buynow-help.techidaily.com/ultimate-guide-to-the-highest-quality-karaoke-devices/"><u>Ultimate Guide to the Highest Quality Karaoke Devices</u></a></li>
+<li><a href="https://ai-video-tools.techidaily.com/updated-the-ultimate-guide-to-converting-webm-to-mp4-10-best-options-for-2024/"><u>Updated The Ultimate Guide to Converting WebM to MP4 10 Best Options for 2024</u></a></li>
 </ul></div>
 

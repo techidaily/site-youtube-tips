@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  The Solo Creator’s Path to Dynamic Animation Art\""
-date: 2024-11-21T23:12:43.890Z
-updated: 2024-11-28T06:16:01.503Z
+date: 2024-12-06T16:08:16.478Z
+updated: 2024-12-07T16:13:07.302Z
 tags:
   - ai video
   - ai youtube
@@ -52,7 +52,7 @@ In this post, we’re going to kick things up a bit. Here is a list of places wh
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YB7Ou4-iKVM?si=7Fq8iUwI8voccMLx&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Nyp7-xVwqHA?si=XCuZbpKLFIdrGQQh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **[Mt. Mograph](https://www.youtube.com/channel/UCSUSgx9qc%5FNydrOL59xbJIA)**
@@ -60,7 +60,7 @@ In this post, we’re going to kick things up a bit. Here is a list of places wh
 On this YouTube channel, motion graphics specialist Matt offers free animation tutorials using a variety of programs including Adobe After Effects and Cinema 4D. His lessons are for a range of skill levels, from beginner to advanced. If you are just starting out then Mt.Mograph is a great resource.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LBCobAYzzcc?si=J3eSTQ3AdyxWAjGo&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ZblaBc-v2vs?si=CKW1gJwXQT2vZJYo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **[Richard Harrington on Lynda](https://www.lynda.com/Rich-Harrington/120-1.html)**
@@ -70,7 +70,7 @@ Lynda isn’t free, but the 10-day free trial period is definitely long enough f
 What’s great about this course is that it assumes you have no animation experience, and it walks you through the main thing a lot of YouTubers want to learn animation for – creating an animated logo.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/PNw3Lb26wFA?si=5NR1XRVSp41EQYMy&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/793ViIxl4tI?si=DDBkjPlPX5bZ-f1Y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **[Bloop Animation](https://www.bloopanimation.com/)**
@@ -78,7 +78,7 @@ What’s great about this course is that it assumes you have no animation experi
  Most of the video animation courses on this site are paid, but they have a lot of cool free tutorials as well. The focus is more on animating figures/cartoons than video effects, but if you have any interest in animation more generally then this is a great place to start learning. They even have a free ebook you can download which is targeted at beginners.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/B2MlLvGxMwI?si=q_blGjXyJrGtzT8d&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/grbt-5VvbuI?si=qnoirlmljslpqcQj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **[Video Copilot](http://www.videocopilot.net/)**
@@ -88,7 +88,7 @@ This site has a huge number of free After Effects tutorials. There are basic int
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qv4Qm7kpeMs?si=9fv5SOS5a2DvixTK&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XoC2TGp1PLY?si=iH9xs76NhWn4pP-E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -112,22 +112,21 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-tips.techidaily.com/dentifying-causes-for-disappearing-youtube-shorts-thumbnails-for-2024/"><u>[New] Identifying Causes for Disappearing YouTube Shorts Thumbnails for 2024</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/new-in-2024-achieve-perfect-screen-captures-on-the-mi-11-lite/"><u>[New] In 2024, Achieve Perfect Screen Captures on the Mi 11 Lite</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/n-2024-visual-description-programmer/"><u>[New] In 2024, Visual Description Programmer</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/nleashing-your-creative-spark-stylistic-self-discovery-high-ctr-for-2024/"><u>[New] Unleashing Your Creative Spark Stylistic Self-Discovery [High CTR] for 2024</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/pgrade-your-view-enabling-youtubes-high-quality-av1-option-for-2024/"><u>[New] Upgrade Your View Enabling YouTube's High-Quality AV1 Option for 2024</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-branding-excellence-youtube-naming-masterclass/"><u>[Updated] 2024 Approved Branding Excellence YouTube Naming Masterclass</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-in-2024-wealth-accumulation-mr-beasts-journey/"><u>[Updated] In 2024, Wealth Accumulation Mr. Beast's Journey</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-learn-to-fine-tune-youtube-videos-for-efficient-consumption-for-2024/"><u>[Updated] Learn to Fine-Tune YouTube Videos for Efficient Consumption for 2024</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-revolutionizing-video-sharing-alternatives-to-youtube-for-2024/"><u>[Updated] Revolutionizing Video Sharing Alternatives to YouTube for 2024</u></a></li>
-<li><a href="https://fake-location.techidaily.com/can-life360-track-or-see-text-messages-what-can-you-do-with-life360-on-honor-x7b-drfone-by-drfone-virtual-android/"><u>Can Life360 Track Or See Text Messages? What Can You Do with Life360 On Honor X7b? | Dr.fone</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/capturing-and-keeping-your-social-media-moments/"><u>Capturing and Keeping Your Social Media Moments</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/how-to-effectively-use-siri-speech-features-in-tiktok-videos/"><u>How to Effectively Use Siri Speech Features in TikTok Videos</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/al-mics-tailored-to-youtube-professionals/"><u>Optimal Mics Tailored to YouTube Professionals</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/protect-your-privacy-identifying-whether-someone-is-using-an-airtag-for-surveillance/"><u>Protect Your Privacy: Identifying Whether Someone Is Using an AirTag for Surveillance</u></a></li>
-<li><a href="https://discover-forum.techidaily.com/resolving-backup-destination-invalid-errors-in-windows-versions-11-10-8-7/"><u>Resolving 'Backup Destination Invalid' Errors in Windows Versions (11, 10, 8, 7)</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/tablet-shopping-tips-the-8-most-important-considerations-to-make/"><u>Tablet Shopping Tips: The 8 Most Important Considerations to Make</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/ultimate-pick-the-best-10-cooking-show-selections-for-foodies-on-netflix/"><u>Ultimate Pick: The Best 10 Cooking Show Selections for Foodies on Netflix</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/everaging-tags-boost-engagement-and-traffic-for-videos/"><u>[New] Leveraging Tags Boost Engagement and Traffic for Videos</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/uick-youtube-snippets-explained-simply-for-2024/"><u>[New] Quick YouTube Snippets Explained Simply for 2024</u></a></li>
+<li><a href="https://fox-access.techidaily.com/updated-giggle-in-the-virtual-realm-how-to-create-your-own-hilarious-memes-for-2024/"><u>[Updated] Giggle in the Virtual Realm How to Create Your Own Hilarious Memes for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-in-2024-probing-into-prominent-user-speeches/"><u>[Updated] In 2024, Probing Into Prominent User Speeches</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-in-2024-step-by-step-guide-distribute-your-youtube-collection/"><u>[Updated] In 2024, Step-by-Step Guide Distribute Your YouTube Collection</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-in-2024-youtubes-new-look-shorts-now-on-screen/"><u>[Updated] In 2024, YouTube's New Look - Shorts Now on Screen</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/updated-tips-for-filming-without-the-hindrance-of-sounds/"><u>[Updated] Tips for Filming Without the Hindrance of Sounds</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-weaving-in-youtubes-video-selection-a-step-by-step-guide-for-2024/"><u>[Updated] Weaving in YouTube's Video Selection A Step-by-Step Guide for 2024</u></a></li>
+<li><a href="https://extra-information.techidaily.com/a-comprehensive-guide-to-turning-vids-into-mp3-on-pinterest/"><u>A Comprehensive Guide to Turning Vids Into MP3 on Pinterest</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/a-how-to-guide-on-bypassing-the-apple-iphone-11-icloud-lock-by-drfone-ios/"><u>A How-To Guide on Bypassing the Apple iPhone 11 iCloud Lock</u></a></li>
+<li><a href="https://howto.techidaily.com/authentication-error-occurred-on-samsung-galaxy-m34-5g-here-are-10-proven-fixes-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Authentication Error Occurred on Samsung Galaxy M34 5G? Here Are 10 Proven Fixes | Dr.fone</u></a></li>
+<li><a href="https://common-error.techidaily.com/fix-overwatch-voice-communication-problems-quickly-and-effectively/"><u>Fix Overwatch Voice Communication Problems Quickly and Effectively</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/videos-to-vault-ajays-revenue-journey-on-youtube/"><u>From Videos to Vault AJay’s Revenue Journey on YouTube</u></a></li>
+<li><a href="https://smart-video-creator.techidaily.com/updated-the-anatomy-of-a-perfect-lower-third-fcpx-best-practices-for-2024/"><u>Updated The Anatomy of a Perfect Lower Third FCPX Best Practices for 2024</u></a></li>
+<li><a href="https://video-creation-software.techidaily.com/updated-video-editing-showdown-virtualdub-vs-the-competition/"><u>Updated Video Editing Showdown Virtualdub vs The Competition</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/upgrade-to-a-complete-set-of-macxdvd-tools-for-free-secure-your-licensed-version-now/"><u>Upgrade to a Complete Set of MacXDVD Tools for Free – Secure Your Licensed Version Now!</u></a></li>
 </ul></div>
 

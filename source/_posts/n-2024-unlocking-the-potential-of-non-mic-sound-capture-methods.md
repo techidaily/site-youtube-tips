@@ -1,7 +1,7 @@
 ---
 title: "\"[New] In 2024, Unlocking the Potential of Non-Mic Sound Capture Methods\""
-date: 2024-11-25T05:59:08.926Z
-updated: 2024-11-27T16:09:10.568Z
+date: 2024-12-05T16:10:15.813Z
+updated: 2024-12-07T16:17:49.932Z
 tags:
   - ai video
   - ai youtube
@@ -44,6 +44,10 @@ Luckily, there are a lot of easy, free, things you can do to protect the quality
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UoBCgLTmznE?si=MXXiGsd2qpd_DrzE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 1\. Keep Your Camera Close (like, really close)
 
 The biggest problem with the mic built into any camera or phone is just that, since it’s with the camera, it’s usually too far away from you. Built-in mics can record decent audio up close, but usually, your camera will be set up farther away from you than an external mic would be.
@@ -53,7 +57,7 @@ For example, your camera’s mic might be just as good as a clip-on LAV, but tha
 Moving your camera/smartphone physically closer to you will make it hard to include anything besides your head and shoulders in your shot, but it will get you significantly better audio.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/odDOPrPjRYY?si=7QHzdUkTPNkHJiVj&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2NU63YqpVqw?si=uoJs0-nZYAkILqXx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 2.Shoot Somewhere Quiet
@@ -69,10 +73,6 @@ There’s more that goes into picking a good room than how quiet it is. If you t
 You should also pay attention to what’s in the room you’re recording in. Avoid hard, reflective, surfaces like appliances and mirrors which your voice will bounce off of. The same conditions that make you sound great when you sing in the shower will – like recording in a small space -make your voiceover unpleasantly echo-y.
 
 Look for a room that has a lot of soft things in it, like beds and sofas.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/XIUatTFH0Zw?si=ZCtoBtIy18y2F5Vc&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## 4\. Protect your Built-In Mic from Wind
 
@@ -92,6 +92,10 @@ _You use the adhesive backing to attach the base velcro to your camera. The othe
 
 The only thing about a micromuff is that it costs about $30, and if you’re going to spend $30 on audio equipment then you could just buy yourself an inexpensive LAV mic. I only bring up the micromuff because it’s a very simple design you can probably DIY – you just need velcro with adhesive backing and any of the fluff-sources we just discussed.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YwOwUI47FuU?si=NK7IEELjx7_SJSl2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 5\. Use a Free Audio App
 
 If you’re recording on a smartphone, you can download a free app that will let you make adjustments to your audio as you record it. With the right app, you can adjust your gain (volume is how you control ‘output’ audio, and gain is for ‘input’ audio. By turning up your gain, you can make your mic more sensitive), tempo, and more. A lot of the time, your audio recording app will also let you edit your audio afterward.
@@ -109,7 +113,7 @@ Do you have any of your own audio tips to pass on? Leave them in the comments!
 _This topic was suggested by RS Beauty over in the forums. Thanks for the idea!_
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/_O8m9KphYzs?si=jITthzeyX_Kmt9X2&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Un9G2_OdSRI?si=vAcGbco8DuWt4ypP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Polish Your YouTube Videos with Filmora
@@ -119,14 +123,10 @@ As one of the most widely used video editing software in YouTube video editing, 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/U6lCtLUeROA?si=se6OFuis9JpcTGJf&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1dR4tF3VgyU?si=AJipgqZsNNxsRsBW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/oeSN3u4fO9M?si=Ua3Hzcil6u6akDgY&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -149,20 +149,21 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-record-videos.techidaily.com/new-cross-platform-comparison-iphone-vs-android-youtube-viewing-for-2024/"><u>[New] Cross-Platform Comparison IPhone vs Android YouTube Viewing for 2024</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-2024-approved-next-gen-streaming-prosperity-for-gamers/"><u>[Updated] 2024 Approved Next-Gen Streaming Prosperity for Gamers</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-in-2024-the-secret-sauce-for-successful-youtubers-channel-featuring-techniques/"><u>[Updated] In 2024, The Secret Sauce for Successful YouTubers Channel Featuring Techniques</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-skyrocket-viewer-numbers-with-the-top-12-effective-tactics/"><u>[Updated] Skyrocket Viewer Numbers with the Top 12 Effective Tactics</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-what-is-a-parody-and-how-to-make-a-parody-video/"><u>[Updated] What Is a Parody and How to Make a Parody Video</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/tect-of-audiovisual-brilliance-for-2024/"><u>Architect of Audiovisual Brilliance for 2024</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/catch-or-beat-sleeping-snorlax-on-pokemon-go-for-infinix-gt-10-pro-drfone-by-drfone-virtual-android/"><u>Catch or Beat Sleeping Snorlax on Pokemon Go For Infinix GT 10 Pro | Dr.fone</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/-of-fame-top-30-show-titles-to-sizzle-viewership/"><u>Feast of Fame Top 30 Show Titles to Sizzle Viewership</u></a></li>
-<li><a href="https://driver-install.techidaily.com/graphics-gain-in-windows-7-with-updated-hp-drivers/"><u>Graphics Gain in Windows 7 with Updated HP Drivers</u></a></li>
-<li><a href="https://fake-location.techidaily.com/in-2024-3-ways-to-change-location-on-facebook-marketplace-for-realme-v30t-drfone-by-drfone-virtual-android/"><u>In 2024, 3 Ways to Change Location on Facebook Marketplace for Realme V30T | Dr.fone</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/24-responding-to-criticism-with-confidence-on-youtube/"><u>In 2024, Responding to Criticism with Confidence on YouTube</u></a></li>
-<li><a href="https://program-issues.techidaily.com/launch-lost-ark-successfully-updated-troubleshooting-steps/"><u>Launch Lost Ark Successfully: Updated Troubleshooting Steps</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/-best-fmovie-alternatieves-for-2024/"><u>Top 7 Best Fmovie Alternatieves for 2024</u></a></li>
-<li><a href="https://howto.techidaily.com/want-to-uninstall-google-play-service-from-oneplus-open-here-is-how-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Want to Uninstall Google Play Service from OnePlus Open? Here is How | Dr.fone</u></a></li>
-<li><a href="https://win-best.techidaily.com/xcopy-im-vergleich-zu-robocopy-detaillierte-funktionserklarung-und-alternativen-ansatz/"><u>XCopy Im Vergleich Zu RoboCopy: Detaillierte Funktionserklärung Und Alternativen Ansatz</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/new-2024-approved-instantaneous-windows-image-player/"><u>[New] 2024 Approved Instantaneous Windows Image Player</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-capture-cumulative-chronicles/"><u>[New] Capture Cumulative Chronicles</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/rafting-viral-videos-on-youtube-a-strategic-plan/"><u>[New] Crafting Viral Videos on YouTube A Strategic Plan</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-in-2024-from-the-ground-up-building-a-new-dynamic-youtube-chanel/"><u>[Updated] In 2024, From the Ground Up Building a New, Dynamic YouTube Chanel</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-in-2024-pcandroid-friendly-methods-to-post-videos-on-facebook-successfully/"><u>[Updated] In 2024, PC/Android-Friendly Methods to Post Videos on Facebook Successfully</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/updated-in-2024-screencapture-revolution-examining-camstudio/"><u>[Updated] In 2024, ScreenCapture Revolution Examining CamStudio</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-in-2024-youtubes-foe-a-guide-to-the-top-5-editing-rivals/"><u>[Updated] In 2024, YouTube's Foe? A Guide to the Top 5 Editing Rivals</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-unlocking-your-potential-in-youtube-video-production-scripts/"><u>[Updated] Unlocking Your Potential in YouTube Video Production Scripts</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-visionaries-of-marvellous-marvel-realities-for-2024/"><u>[Updated] Visionaries of Marvellous Marvel Realities for 2024</u></a></li>
+<li><a href="https://howto.techidaily.com/6-solutions-to-fix-error-505-in-google-play-store-on-oppo-find-x7-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>6 Solutions to Fix Error 505 in Google Play Store on Oppo Find X7 | Dr.fone</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/in-2024-boost-your-igtv-presence-with-effective-title-and-summary-tweaks/"><u>In 2024, Boost Your IGTV Presence with Effective Title & Summary Tweaks</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/24-rapidly-crafting-valorant-image-highlights-for-gamers/"><u>In 2024, Rapidly Crafting Valorant Image Highlights for Gamers</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/24-tactics-for-transforming-youtube-list-layouts/"><u>In 2024, Tactics for Transforming YouTube List Layouts</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/step-by-step-guide-resolving-razer-barracuda-x-mic-problems-for-w10w11-users/"><u>Step-by-Step Guide: Resolving Razer Barracuda X Mic Problems for W10/W11 Users</u></a></li>
+<li><a href="https://ai-video-tools.techidaily.com/updated-free-online-movie-making-software-top-picks-for-2024/"><u>Updated Free Online Movie Making Software Top Picks for 2024</u></a></li>
+<li><a href="https://ai-voice.techidaily.com/updated-in-2024-latest-top-darth-vader-voice-generators-for-all-platforms/"><u>Updated In 2024, Latest Top Darth Vader Voice Generators for All Platforms</u></a></li>
 </ul></div>
 

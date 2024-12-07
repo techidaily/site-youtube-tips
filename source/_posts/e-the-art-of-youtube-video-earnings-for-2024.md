@@ -1,7 +1,7 @@
 ---
 title: "Inside the Art of YouTube Video Earnings for 2024"
-date: 2024-11-21T03:39:47.844Z
-updated: 2024-11-28T02:19:36.731Z
+date: 2024-12-04T16:08:39.290Z
+updated: 2024-12-07T16:11:56.236Z
 tags:
   - ai video
   - ai youtube
@@ -31,11 +31,11 @@ To earn well, your content must align with what viewers truly desire. Read this 
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/DxUX4R6Cf7c?si=prHevNQJivSkIfUt&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Part 1\. How to Get Monetized on YouTube: Rules and Requirements
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Zgwn5kVI5V4?si=1j6j4OuSSndFieXU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### How to Monetize YouTube Channel
 
@@ -81,10 +81,6 @@ You can monetize your YouTube videos in 10 different ways, including:
 * [YouTube Brandconnect](#filmora9)
 * [YouTube Shopping](#filmora10)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/4qA2pGQ5qmw?si=1mAA9WTi2Z5F7n6s&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 1\. Google AdSense
 
 YouTube channel monetization is the most popular method. By adding AdSense to your videos, you can generate revenue from the ads displayed. You must adhere to our advertiser-friendly guidelines when creating your videos. The monetization of all videos may not be possible, therefore. YouTube and AdSense work seamlessly together. With no technical knowledge required, your monetization strategy can be set up and managed easily.
@@ -98,6 +94,10 @@ Sponsorship involves paying a content creator to use, demonstrate, or test a bra
 The rewards of sponsorship can be immense, but sponsorships are hard to come by. You can pitch relevant brands to partner with your influential channel if your channel has a large following.
 
 ![paid sponsorship](https://images.wondershare.com/filmora/article-images/2023/2023-YouTube-Monetization-Mastery-How-to-Monetize-YouTube-Videos-4.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2Iv3DjT2Fyw?si=pR_z8ZDDVGF2MvKJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 3\. YouTube Premium
 
@@ -132,7 +132,7 @@ Using the YouTube app, short, vertical videos can be uploaded straight to YouTub
 ![youtube shorts](https://images.wondershare.com/filmora/article-images/2023/2023-YouTube-Monetization-Mastery-How-to-Monetize-YouTube-Videos-7.JPG)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/PD0vq5qAYkw?si=5H3KWtCfUOYg1Nlv&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/l-SCWTWpegY?si=oxTsHQkIu1v4-I6b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 9\. YouTube BrandConnect
@@ -184,6 +184,10 @@ Wondershare Filmora empowers you to take your YouTube videos to the next level. 
 [Free Download](https://tools.techidaily.com/wondershare/filmora/download/) For Win 7 or later(64-bit)
 
 [Free Download](https://tools.techidaily.com/wondershare/filmora/download/) For macOS 10.14 or later
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/xg3PHS_Ee80?si=fE_iGIqHjKvWFIN3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -195,10 +199,6 @@ With **Wondershare Filmora**'s user-friendly tools, your videos will stand out o
 
 ![Wondershare Filmora 12](https://images.wondershare.com/filmora/banner/filmora-latest-product-box.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qn1XkPJde9Y?si=i6ZJARXO8sJhy2FV&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Part 1\. How to Get Monetized on YouTube: Rules and Requirements
 
 ### How to Monetize YouTube Channel
@@ -210,6 +210,10 @@ Google AdSense generates substantial website revenue. If viewers interact with t
 Some videos cannot be monetized, however. Content must meet specific requirements to qualify for YouTube's program. Criteria include content quality, community guidelines, and copyright compliance. Your YouTube channel can generate income once your videos meet these standards.
 
 ![youTube partner Program](https://images.wondershare.com/filmora/article-images/2023/2023-YouTube-Monetization-Mastery-How-to-Monetize-YouTube-Videos-1.JPG)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KF793jv1LIc?si=fJOogQJ2f8JUfTzZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Monetizing YouTube Videos: What Are The Requirements?
 
@@ -230,10 +234,6 @@ When you upload content to YouTube, you'll need to keep these things in mind. Th
 
 ## Part 2\. 10 Proven Ways to Monetize Your YouTube Channel
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LlYIdWQc-jw?si=ZQ5809CbQGEar0vg&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 10 Methods to Monetize YouTube Videos
 
 You can monetize your YouTube videos in 10 different ways, including:
@@ -249,6 +249,10 @@ You can monetize your YouTube videos in 10 different ways, including:
 * [YouTube Brandconnect](#filmora9)
 * [YouTube Shopping](#filmora10)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/tPgf_wSdhS8?si=BHoH1ryaxmwk-8FV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 1\. Google AdSense
 
 YouTube channel monetization is the most popular method. By adding AdSense to your videos, you can generate revenue from the ads displayed. You must adhere to our advertiser-friendly guidelines when creating your videos. The monetization of all videos may not be possible, therefore. YouTube and AdSense work seamlessly together. With no technical knowledge required, your monetization strategy can be set up and managed easily.
@@ -256,7 +260,7 @@ YouTube channel monetization is the most popular method. By adding AdSense to yo
 ![ Google Adsense](https://images.wondershare.com/filmora/article-images/2023/2023-YouTube-Monetization-Mastery-How-to-Monetize-YouTube-Videos-3.JPG)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/6kzbT13ds3M?si=hBInu0Or-cX2ANJF&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/58KlTPHv8dU?si=7ICagyNgrao7OkVO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 2\. Paid Sponsorships
@@ -279,10 +283,6 @@ Creating membership tiers on your channel allows you to offer different perks to
 
 ![channel memebership](https://images.wondershare.com/filmora/article-images/2023/2023-YouTube-Monetization-Mastery-How-to-Monetize-YouTube-Videos-6.JPG)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/BR4gsW-J7as?si=9a56UDKZKhREZnwz&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 5\. Merchandise
 
 You can sell merchandise on YouTube videos with over 10,000 subscribers using a merch shelf. By selling branded merchandise to your YouTube fans, you can generate additional revenue.
@@ -297,10 +297,6 @@ It's not just for startups anymore; you can use crowdfunding to fund content cre
 
 During live streams and premieres, creators can engage their fans with Super Chat and Super Stickers. In the live chat, fans can purchase Super Chats to display their message prominently. A Super Sticker is an animated image displayed during a live chat session. The Super Thanks feature enables creators to earn income from their videos. Additional appreciation may be expressed by those who wish to do so
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/-G7cU8dYvuI?si=JaKqRcW6qq9CDvty&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 8\. YouTube Shorts
 
 Using the YouTube app, short, vertical videos can be uploaded straight to YouTube using a smartphone. In the same way as Instagram Stories are uploaded to the social media site. The length of YouTube shorts is limited to 60 seconds. In 2021 and 2022, a $100 million fund will be distributed for YouTube Shorts. With this initial stage, YouTube Shorts began to monetize in May 2021\. A YouTube Short will only be compensated if it meets the fund's criteria.
@@ -308,7 +304,7 @@ Using the YouTube app, short, vertical videos can be uploaded straight to YouTub
 ![youtube shorts](https://images.wondershare.com/filmora/article-images/2023/2023-YouTube-Monetization-Mastery-How-to-Monetize-YouTube-Videos-7.JPG)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/kTHQrw8e1gk?si=gTPIa7KjhSZ0Vz97&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LdVT_-3gESA?si=_HfjpbUEHSRKTXjt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 9\. YouTube BrandConnect
@@ -324,6 +320,10 @@ YouTube shopping gives you the chance to promote your own products or those of o
 Wondershare Filmora is your creative ally when it comes to enhancing and editing YouTube videos. Video editing software like Filmora allows you to produce visually engaging and captivating content. Creating the conditions for effective YouTube monetization.
 
 Filmora is cross-platform compatible. Making it accessible for all creators, so you can work on your videos wherever you are. With Filmora, you can enhance your video content no matter what platform you're using.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/S3Th6oa_isA?si=TTQ013BB9beUM4x6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Edit YouTube videos with Filmora's features
 
@@ -362,7 +362,7 @@ Wondershare Filmora empowers you to take your YouTube videos to the next level. 
 [Free Download](https://tools.techidaily.com/wondershare/filmora/download/) For macOS 10.14 or later
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/mHFtYJppXFk?si=ylFaAT4nXqCmlV8F&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/yr0yS_Ywrjs?si=QxzYiX1KmUaExmlo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Conclusion
@@ -392,22 +392,24 @@ With **Wondershare Filmora**'s user-friendly tools, your videos will stand out o
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-tips.techidaily.com/n-2024-masterclass-in-youtube-video-previews-and-trailers/"><u>[New] In 2024, Masterclass in YouTube Video Previews and Trailers</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/n-2024-selecting-the-perfect-online-source-15-best-royalty-free-music-urls/"><u>[New] In 2024, Selecting the Perfect Online Source 15 Best Royalty-Free Music URLs</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/new-in-2024-spark-interest-10-innovative-highlight-ideas-to-try-now/"><u>[New] In 2024, Spark Interest 10 Innovative Highlight Ideas to Try Now</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ptimizing-youtube-auditory-experience-for-viewers-for-2024/"><u>[New] Optimizing YouTube Auditory Experience for Viewers for 2024</u></a></li>
-<li><a href="https://fox-http.techidaily.com/updated-choosing-a-gimbal-for-smooth-drone-photos-and-videos-for-2024/"><u>[Updated] Choosing a Gimbal for Smooth Drone Photos and Videos for 2024</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/updated-secrets-revealed-saving-video-chats-from-facebook-messenger/"><u>[Updated] Secrets Revealed Saving Video Chats From Facebook Messenger</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-the-artisans-almanac-makeup-tools-and-more-on-youtube/"><u>[Updated] The Artisan's Almanac Makeup, Tools & More on Youtube</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/updated-top-20-youtube-friendly-facebook-video-editors-for-2024/"><u>[Updated] Top 20 YouTube-Friendly Facebook Video Editors for 2024</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-understanding-youtubes-social-media-protocols-for-2024/"><u>[Updated] Understanding YouTube's Social Media Protocols for 2024</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/approved-the-ultimate-tutorial-transferring-youtube-videos-to-dailymotion/"><u>2024 Approved The Ultimate Tutorial Transferring YouTube Videos to Dailymotion</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/expert-insights-testing-and-comparing-the-5g-capabilities-of-samsungs-galaxy-note20-ultra/"><u>Expert Insights: Testing and Comparing the 5G Capabilities of Samsung's Galaxy Note20 Ultra</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-restore-missing-pictures-files-from-tecno-spark-10c-by-fonelab-android-recover-pictures/"><u>How To Restore Missing Pictures Files from Tecno Spark 10C.</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/in-2024-best-itel-pattern-lock-removal-tools-remove-android-pattern-lock-without-losing-data-by-drfone-android/"><u>In 2024, Best Itel Pattern Lock Removal Tools Remove Android Pattern Lock Without Losing Data</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/in-2024-the-best-android-sim-unlock-code-generators-unlock-your-samsung-galaxy-m14-5g-phone-hassle-free-by-drfone-android/"><u>In 2024, The Best Android SIM Unlock Code Generators Unlock Your Samsung Galaxy M14 5G Phone Hassle-Free</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ltimate-guide-to-memorable-youtube-names-for-2024/"><u>The Ultimate Guide to Memorable YouTube Names for 2024</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/-unique-android-apps-for-effortless-ad-free-use/"><u>Top 7 Unique Android Apps for Effortless, Ad-Free Use</u></a></li>
-<li><a href="https://sound-issues.techidaily.com/world-of-warcraft-audio-glitch-fixed-enjoy-your-quests-again/"><u>World of Warcraft Audio Glitch Fixed - Enjoy Your Quests Again!</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/024-approved-expert-guide-to-loops-in-ios-video-playback/"><u>[New] 2024 Approved Expert Guide to Loops in iOS Video Playback</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-elevating-your-macro-videos-a-comprehensive-checklist-for-2024/"><u>[New] Elevating Your Macro Videos A Comprehensive Checklist for 2024</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/new-how-to-safely-increase-your-youtube-fanbase-to-one-million/"><u>[New] How to Safely Increase Your YouTube Fanbase To One Million</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-the-videographers-essentials-top-9-gear-upgrades-for-mobile-filming/"><u>[New] In 2024, The Videographer's Essentials - Top 9 Gear Upgrades for Mobile Filming</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-unlocking-youtube-success-top-video-strategies-to-explode-views/"><u>[New] In 2024, Unlocking YouTube Success Top Video Strategies to Explode Views</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/yans-revenue-revolution-from-childhood-to-youtube-riches-for-2024/"><u>[New] Ryan’s Revenue Revolution From Childhood to YouTube Riches for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-kickstarting-with-gopro-the-top-10-list-of-perks-for-2024/"><u>[Updated] Kickstarting with GoPro The Top 10 List of Perks for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-optimal-video-downloads-with-top-converters-for-2024/"><u>[Updated] Optimal Video Downloads with Top Converters for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-secrets-of-finding-exclusive-youtube-design-archives-for-2024/"><u>[Updated] Secrets of Finding Exclusive YouTube Design Archives for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-tailoring-your-youtube-video-introduction-perfectly-for-2024/"><u>[Updated] Tailoring Your YouTube Video Introduction Perfectly for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-unveil-your-channels-potential-with-30-top-tier-free-intros/"><u>[Updated] Unveil Your Channel's Potential with 30 Top-Tier Free Intros</u></a></li>
+<li><a href="https://fake-location.techidaily.com/fixing-foneazy-mockgo-not-working-on-nokia-c110-drfone-by-drfone-virtual-android/"><u>Fixing Foneazy MockGo Not Working On Nokia C110 | Dr.fone</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/24-free-fx-library-to-enhance-youtube-productions/"><u>In 2024, Free FX Library to Enhance YouTube Productions!</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/in-2024-refined-conference-aesthetics-the-process-to-blur-backgrounds/"><u>In 2024, Refined Conference Aesthetics The Process to Blur Backgrounds</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-sim-unlock-realme-11-5g-phones-without-code-2-ways-to-remove-android-sim-lock-by-drfone-android/"><u>In 2024, Sim Unlock Realme 11 5G Phones without Code 2 Ways to Remove Android Sim Lock</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/24-smart-techniques-to-elevate-your-youtube-summaries/"><u>In 2024, Smart Techniques to Elevate Your Youtube Summaries</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/is-gsm-flasher-adb-legit-full-review-to-bypass-your-vivo-v29frp-lock-by-drfone-android/"><u>Is GSM Flasher ADB Legit? Full Review To Bypass Your Vivo V29FRP Lock</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/secrets-to-always-seeing-your-sticky-notes-in-windows/"><u>Secrets to Always Seeing Your Sticky Notes in Windows</u></a></li>
+<li><a href="https://games-able.techidaily.com/streaming-simplicity-intels-contribution-with-stream-assist/"><u>Streaming Simplicity: Intel's Contribution with Stream Assist</u></a></li>
 </ul></div>
 

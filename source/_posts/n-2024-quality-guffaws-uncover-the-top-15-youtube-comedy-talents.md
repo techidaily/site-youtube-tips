@@ -1,7 +1,7 @@
 ---
 title: "\"[New] In 2024, Quality Guffaws  Uncover the Top 15 YouTube Comedy Talents\""
-date: 2024-11-25T17:00:42.471Z
-updated: 2024-11-27T18:58:51.960Z
+date: 2024-12-01T16:14:56.918Z
+updated: 2024-12-07T16:24:40.632Z
 tags:
   - ai video
   - ai youtube
@@ -73,10 +73,6 @@ Total subscribers: 13 million
 
 CollegeHumor is a show started by two high school friends and comedy icons to produce original comedy videos centered on parody similar to Mad TV and SNL.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/q4-YQ9Wjtfg?si=6afn1fydg_Wb9B8z&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 5. **First We Feast**
 
 Total subscribers: 6,941,755
@@ -100,10 +96,6 @@ The Tonight Show is a late-night talk show hosted by former SNL cast member Jimm
 Total subscribers : 111M
 
 PewDiePie, hosted by a Swedish-born YouTuber, also known as Felix Arvid Ulf Kjellberg, is considered one of the funniest YouTubers of all time, having the second most subscribed YouTube channel. His sparkling personality, high energy, and unique sense of humor bring people closer to his channel.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aknYnDfODro?si=zONIVzA9FFq0rLOD&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 9. **The Late Night Show**
 
@@ -221,6 +213,10 @@ The Ellen Show is the best prank channel on YouTube by Female comedian and icon 
 
 Smosh is a Funny YouTube gamer show founded in 2005 by two Friends known as Ian Hecox and Daniel Padilla. They are well known for their funny nerdy spoofs and video game-themed music videos, making their humor enduring and magnetic.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ZeYbTVeaXg0?si=rwLL1DbBoX26BGjm" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 3.**David Dobrik**
 
 ### Total subscribers: 13,716,307
@@ -251,11 +247,19 @@ Total subscribers: 22,001,002
 
 The Tonight Show is a late-night talk show hosted by former SNL cast member Jimmy Fallon and filled with satire of current events, celebrity interviews, and comedic skits.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jvwX82j3ci0?si=gAWoovjXgs3m1d7S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 8. **PewDiePie**
 
 Total subscribers : 111M
 
 PewDiePie, hosted by a Swedish-born YouTuber, also known as Felix Arvid Ulf Kjellberg, is considered one of the funniest YouTubers of all time, having the second most subscribed YouTube channel. His sparkling personality, high energy, and unique sense of humor bring people closer to his channel.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/H2cXnI9oOvM?si=3nz2sBB124ln-83T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 9. **The Late Night Show**
 
@@ -279,19 +283,11 @@ Total subscribers: 6.32M
 
 H3h3Productions, hosted by Ethan Edward Klein and Hila Klein, is a comedy of husband and wife. The beautiful aspect of the show is the pranks and satirical approach toward dialogues on topics not planned and criticism.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LlYIdWQc-jw?si=ZQ5809CbQGEar0vg&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 13. **Dolan Twins**
 
 Total subscribers: 10.3M
 
 Dolan Twins is hosted by twins living in L. They are known as Ethan and Grayson Dolan, who love to entertain their followers. They produce unique creative videos showcasing themselves building things, pulling massive pranks, and making fun of each other.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/HtM7d4dpN1I?si=2vN_xgVGD4eYGORu&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 14. **JennaMarbles**
 
@@ -319,6 +315,10 @@ Get started easily with Filmora's powerful performance, intuitive interface, and
 
 ![](https://images.wondershare.com/filmora/banner/filmora-latest-product-box-right-side.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/S0b9szh8vEk?si=NlGzpJ6MN_SJNk5A" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### **Step 1: Download, install and launch**
 
 Download the Filmora program, then tap on Import to load your media files (images or videos) to the timeline.
@@ -326,6 +326,10 @@ Download the Filmora program, then tap on Import to load your media files (image
 ### **Step 2: Edit and Create Videos**
 
 Create fun videos using all handy tools on the timeline (effects, picture in and picture out, editing, voice-over, etc.). Add more photos to tell stories, replace the audio with video, trim out unnecessary portions, apply stunning effects, and add more fun editing tools are required to create your funny videos on Filmora.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Nl0Z0eth1u4?si=0eecOBNfc--51AJO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### **Step 3: Save and Export**
 
@@ -429,6 +433,10 @@ Total subscribers: 17.3M
 
 Good Mythical Morning is a show hosted by Rhett James McLaughlin and Charles Lincoln "Link" Neal III, also known as Rhett & Link. One fantastic feature about these duo comedy hosts is their ability to incorporate humor and personalities into their talk show routines, daytime comedy, and varieties.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DEqoiNArwjQ?si=oaL_lgnI-RxY5Qy_" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 11. **Tana Mongeau**
 
 Tana Mongeau, also known as Tana Paul, is a YouTuber and has her own MTV reality TV show. Tana often jokes about herself and what she does as a reckless tween living in Vegas. She would also make fun videos of herself and own up to being unreliable and irresponsible.
@@ -476,7 +484,7 @@ Get started easily with Filmora's powerful performance, intuitive interface, and
 Download the Filmora program, then tap on Import to load your media files (images or videos) to the timeline.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/iLlpdv0cz_k?si=HwTdnMmeVJXm4GPV&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/htnQWyEOCgc?si=fy86hi8_hTtbWAnw" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### **Step 2: Edit and Create Videos**
@@ -513,6 +521,10 @@ YouTube has now become the video precious standard that one can watch the best f
 
 ![funny youtube channels](https://images.wondershare.com/filmora/article-images/2021/funny-youtube-channels.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/r_wWybMqZEM?si=0nPjCQDLS2MCaQbG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 #### In this article
 
 01 [15 Funniest YouTube Channels to Follow](#part1)
@@ -521,13 +533,13 @@ YouTube has now become the video precious standard that one can watch the best f
 
 03 [FAQs about Funny YouTube Channels](#part3)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/sXLLPY11of0?si=-3YNnpnO0wbc0K_-" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 1: 15 Funniest YouTube Channels to Follow
 
 Whether you are bored or having a bad day, visiting the best prank channels on YouTube is the best way to ease your day and cure a case of the Monday blues. Here is a list of Top 15 Funny YouTube Channels to Watch When You're Bored from the best lip-syncing and sketches, comedy skits, and interviews:
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/pRR3Oq03EuE?si=ZTy8-WH0AesA9zRh&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 1. [****The Ellen Show**](https://www.youtube.com/user/TheEllenShow)
 
@@ -541,19 +553,11 @@ The Ellen Show is the best prank channel on YouTube by Female comedian and icon 
 
 Smosh is a Funny YouTube gamer show founded in 2005 by two Friends known as Ian Hecox and Daniel Padilla. They are well known for their funny nerdy spoofs and video game-themed music videos, making their humor enduring and magnetic.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/nlwr9LjJ-ng?si=I6UNAtfBkY2FTceu&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 3.**David Dobrik**
 
 ### Total subscribers: 13,716,307
 
 David dobrik is well known for his goofy laugh mixed with absurd pranks by his fans. He is referred to as the king of pranks due to his crazy personality.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aoMiYpYiFZs?si=qvYvGytDD17fvSXO&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 4. **CollegeHumor**
 
@@ -629,6 +633,10 @@ Emma Chamberlin cracks her fans with her carefree youthful personality and seemi
 
 Filmora is a free and easy-to-use [video editing](https://tools.techidaily.com/wondershare/filmora/download/) software suitable for beginners. The software supports above 50 formats, Filmstock effects store, 4k editing, all basic and advanced editing tools in a manner used and easily accessible. Wondershare Filmora is a perfect editor for making funny videos on YouTube.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Un9G2_OdSRI?si=vAcGbco8DuWt4ypP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Here is a step-by-step guide on making funny videos on YouTube using Filmora
 
 #### Wondershare Filmora
@@ -639,10 +647,6 @@ Get started easily with Filmora's powerful performance, intuitive interface, and
 
 ![](https://images.wondershare.com/filmora/banner/filmora-latest-product-box-right-side.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=M69YSY0Mk_gsdU0Q&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### **Step 1: Download, install and launch**
 
 Download the Filmora program, then tap on Import to load your media files (images or videos) to the timeline.
@@ -650,10 +654,6 @@ Download the Filmora program, then tap on Import to load your media files (image
 ### **Step 2: Edit and Create Videos**
 
 Create fun videos using all handy tools on the timeline (effects, picture in and picture out, editing, voice-over, etc.). Add more photos to tell stories, replace the audio with video, trim out unnecessary portions, apply stunning effects, and add more fun editing tools are required to create your funny videos on Filmora.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/X18Dq7rV-xI?si=twFfXIPD0TFmC5EM&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### **Step 3: Save and Export**
 
@@ -698,15 +698,19 @@ Finding the best prank channels on YouTube to crack your rib during your boring 
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-footage.techidaily.com/new-in-2024-enhance-your-videos-call-to-action-a-step-by-step-filmora-guide/"><u>[New] In 2024, Enhance Your Video's Call-to-Action A Step-by-Step Filmora Guide</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-best-soundshapers-for-content-makers-on-youtube/"><u>[Updated] Best Soundshapers for Content Makers on YouTube</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/updated-dance-drumming-dodoes-for-2024/"><u>[Updated] Dance Drumming Dodoes for 2024</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-in-2024-10-fastest-growing-youtube-channels-to-light-up-your-mind/"><u>[Updated] In 2024, 10 Fastest Growing YouTube Channels to Light Up Your Mind</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/y-brilliance-inside-the-world-of-youtube-cosmetics-for-2024/"><u>Beauty Brilliance Inside the World of Youtube Cosmetics for 2024</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/in-2024-life360-circle-everything-you-need-to-know-on-honor-magic-5-pro-drfone-by-drfone-virtual-android/"><u>In 2024, Life360 Circle Everything You Need to Know On Honor Magic 5 Pro | Dr.fone</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/in-2024-sim-unlock-honor-x8b-phones-without-code-2-ways-to-remove-android-sim-lock-by-drfone-android/"><u>In 2024, Sim Unlock Honor X8b Phones without Code 2 Ways to Remove Android Sim Lock</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/24-synchronize-your-surfing-master-multi-video-youtube-use/"><u>In 2024, Synchronize Your Surfing Master Multi-Video YouTube Use</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/in-2024-unlocking-flawless-youtube-twitplay/"><u>In 2024, Unlocking Flawless YouTube Twitplay</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/in-2024-unlocking-full-potential-with-iphone-hdr/"><u>In 2024, Unlocking Full Potential with iPhone HDR</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ntense-leaderboard-scrutinizer-tracking-youtube-titans-for-2024/"><u>[New] Intense Leaderboard Scrutinizer Tracking YouTube Titans for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/outube-view-bots-how-to-increase-youtube-views/"><u>[New] YouTube View Bots How to Increase YouTube Views?</u></a></li>
+<li><a href="https://video-capture.techidaily.com/updated-2024-approved-elevate-ps2-gameplay-on-ios-devices/"><u>[Updated] 2024 Approved Elevate PS2 Gameplay on iOS Devices</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-2024-approved-storytelling-steps-for-youtube-ascension/"><u>[Updated] 2024 Approved Storytelling Steps for YouTube Ascension</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-in-2024-a-comprehensible-walkthrough-finding-your-youtube-remarks/"><u>[Updated] In 2024, A Comprehensible Walkthrough Finding Your YouTube Remarks</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-in-2024-expert-5-virtual-screenshots-tech/"><u>[Updated] In 2024, Expert 5 Virtual Screenshots Tech</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/updated-omni-directional-vision-and-its-distinctive-features/"><u>[Updated] Omni-Directional Vision and Its Distinctive Features</u></a></li>
+<li><a href="https://hardware-reviews.techidaily.com/affordable-essential-cooling-at-just-5-uphere-m201-ssd-heatsink-unveiled/"><u>Affordable Essential Cooling at Just $5 - UpHere M201 SSD Heatsink Unveiled!</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ating-discussion-topics-in-the-social-space/"><u>Dominating Discussion Topics in the Social Space</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/in-2024-avoiding-simulated-reality-ills-strategies-and-tips/"><u>In 2024, Avoiding Simulated Reality Ills Strategies and Tips</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/in-2024-stay-in-the-limelight-how-to-keep-youtube-cc-and-boost-views/"><u>In 2024, Stay in the Limelight How to Keep YouTube CC and Boost Views</u></a></li>
+<li><a href="https://video-capture.techidaily.com/navigating-the-world-of-android-video-snapshots-for-2024/"><u>Navigating the World of Android Video Snapshots for 2024</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/seamlessly-connect-the-3-step-guide-to-enhanced-communication-on-snapchat/"><u>Seamlessly Connect The 3-Step Guide to Enhanced Communication on Snapchat</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/red-engagement-design-your-youtube-sign-up-bar-with-an-animated-approach-using-filmora-for-2024/"><u>Tailored Engagement Design Your YouTube Sign-Up Bar with an Animated Approach Using Filmora for 2024</u></a></li>
 </ul></div>
 

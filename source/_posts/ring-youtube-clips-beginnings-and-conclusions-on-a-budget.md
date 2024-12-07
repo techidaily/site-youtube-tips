@@ -1,7 +1,7 @@
 ---
 title: "\"Mastering YouTube Clips  Beginnings & Conclusions on a Budget\""
-date: 2024-11-25T20:36:42.282Z
-updated: 2024-11-28T04:05:31.518Z
+date: 2024-12-01T16:06:34.651Z
+updated: 2024-12-07T16:06:25.495Z
 tags:
   - ai video
   - ai youtube
@@ -46,7 +46,7 @@ thumbnail: https://thmb.techidaily.com/fa134e33a19af2a6d89131747e3b5172ee7c32958
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aoMiYpYiFZs?si=qvYvGytDD17fvSXO&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RAnyQ0uj9Yg?si=Es4_ulcdM_-LuDcq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part1: Intros
@@ -78,7 +78,7 @@ You can create a simple intro card in **Filmora**.
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/xg3PHS_Ee80?si=fE_iGIqHjKvWFIN3&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GU08CQVsZz0?si=V-SvPfzRsQysMS0e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 1. Choose your background. You may want to use a short clip as your intro, or you may just want a colored background.
@@ -91,7 +91,7 @@ You can create a simple intro card in **Filmora**.
 8. Export your video and save it for use in all of your other videos.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/T-ssCD10v2M?si=WVWGNayUiCAkMZzZ&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/97ydpSmzTJw?si=tFcelmtQX4u-b3u5" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 2: End Cards
@@ -130,7 +130,7 @@ Some creators will leave their end cards at that and play music overtop, but it 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/O7ChChlyX2o?si=7pMKdN1NZig1kYek&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Xq2r4ZKM-Po?si=fA2DdEB1op-atCkz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Shanoon Cox
@@ -154,24 +154,18 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-zero.techidaily.com/nalyzing-the-frequency-of-youtube-payments/"><u>[New] Analyzing the Frequency of YouTube Payments</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/new-delving-into-youtubes-digital-video-workshop-for-2024/"><u>[New] Delving Into YouTube's Digital Video Workshop for 2024</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/iscover-these-top-10-thriving-youtube-communities/"><u>[New] Discover These Top 10 Thriving YouTube Communities</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ncreasing-video-popularity-persisting-with-cc-on-youtube-for-2024/"><u>[New] Increasing Video Popularity Persisting with CC on YouTube for 2024</u></a></li>
-<li><a href="https://article-files.techidaily.com/new-laptop-the-ultimate-guide-to-free-movie-decoders-for-2024/"><u>[New] Laptop The Ultimate Guide to Free Movie Decoders for 2024</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/new-optimal-vr-headset-choice-embracing-the-freedom-of-mobile-or-the-tethered-experience/"><u>[New] Optimal VR Headset Choice Embracing the Freedom of Mobile Or The Tethered Experience?</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/nlocking-the-vault-the-wealth-of-mr-beast-for-2024/"><u>[New] Unlocking the Vault The Wealth of Mr. Beast for 2024</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-2024-approved-make-sense-of-iphone-video-repetition-tech/"><u>[Updated] 2024 Approved Make Sense of iPhone Video Repetition Tech</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-how-to-retrieve-your-voice-on-youtube-comments-for-2024/"><u>[Updated] How To Retrieve Your Voice on YouTube (Comments) for 2024</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/approved-experience-the-new-unleash-a-set-of-50-designs-for-free/"><u>2024 Approved Experience the New Unleash a Set of 50 Designs for Free!</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210398634-9781667412665-arquitectura-del-mas-alla-vida/"><u>Arquitectura Del Mas Alla Vida | Free Book</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/educate-yourself-learn-about-the-signs-of-drug-and-alcohol-use-as-well-as-the-types-of-substances-that-might-be-accessible-to-teenagers-in-your-area-this-kn79/"><u>Educate Yourself: Learn About the Signs of Drug and Alcohol Use, as Well as the Types of Substances that Might Be Accessible to Teenagers in Your Area. This Knowledge Can Help You Spot Potential Red Flags More Easily.</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/enhance-your-media-with-top-free-android-editing-tools-for-2024/"><u>Enhance Your Media with Top Free Android Editing Tools for 2024</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/in-2024-cloud-economy-unveiling-best-deals/"><u>In 2024, Cloud Economy Unveiling Best Deals</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/in-2024-harnessing-metaverse-promotion-power/"><u>In 2024, Harnessing Metaverse Promotion Power</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/24-indulge-with-top-youtube-movies-guides/"><u>In 2024, Indulge with Top YouTube Movies Guides</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/24-the-roadmap-to-engaging-youtube-trailers-through-filmora/"><u>In 2024, The Roadmap to Engaging YouTube Trailers Through Filmora</u></a></li>
-<li><a href="https://hardware-tips.techidaily.com/navigating-3d-print-designs-a-guide-to-the-industrys-top-5-standards/"><u>Navigating 3D Print Designs: A Guide to the Industry's Top 5 Standards</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ltimate-list-of-free-user-friendly-editing-apps/"><u>The Ultimate List of Free, User-Friendly Editing Apps</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-from-monotonous-to-mesmerizing-grading-guidance-for-editors/"><u>[New] From Monotonous to Mesmerizing Grading Guidance for Editors</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/op-asmr-gear-expert-picked-microphone-selections-for-2024/"><u>[New] Top ASMR Gear Expert-Picked Microphone Selections for 2024</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/2024-approved-easy-peasy-ffvegior-grab-facebook-video-mp4-files/"><u>2024 Approved Easy Peasy FFVEGIOR Grab Facebook Video MP4 Files</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/compact-and-powerful-the-asrock-thin-x600m-itx-motherboard-for-diy-sleek-htpc-setups/"><u>Compact and Powerful: The ASRock Thin X600M-Itx Motherboard for DIY Sleek HTPC Setups</u></a></li>
+<li><a href="https://win-answers.techidaily.com/diagnosing-and-correcting-crashes-in-thaumaturge-while-playing-on-personal-computer/"><u>Diagnosing and Correcting Crashes in Thaumaturge While Playing on Personal Computer</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/gopros-newest-clash-max-360-versus-hero-11-showdown/"><u>GoPro's Newest Clash Max 360 Versus Hero 11 Showdown</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ng-audio-visual-artists-collaborating-photos-for-2024/"><u>Leading Audio-Visual Artists Collaborating Photos for 2024</u></a></li>
+<li><a href="https://smart-video-editing.techidaily.com/new-slow-and-steady-wins-the-game-top-10-video-players/"><u>New Slow and Steady Wins the Game Top 10 Video Players</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/er-10-video-grabbers-for-streaming-content-creators/"><u>Premier 10 Video Grabbers for Streaming Content Creators</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/prime-days-most-amazing-electronics-discounts-at-amazon/"><u>Prime Day's Most Amazing Electronics Discounts at Amazon</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ing-paradigms-non-youtube-video-hosts-for-2024/"><u>Shifting Paradigms Non-Youtube Video Hosts for 2024</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/the-hdr-camera-connoisseurs-handbook/"><u>The HDR Camera Connoisseur's Handbook</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/top-rated-mp3-devices-comprehensive-review/"><u>Top Rated MP3 Devices : Comprehensive Review</u></a></li>
 </ul></div>
 

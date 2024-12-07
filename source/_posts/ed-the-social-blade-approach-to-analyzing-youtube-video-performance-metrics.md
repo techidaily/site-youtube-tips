@@ -1,7 +1,7 @@
 ---
 title: "[Updated] The Social Blade Approach to Analyzing YouTube Video Performance Metrics"
-date: 2024-11-21T21:45:00.719Z
-updated: 2024-11-27T22:45:43.713Z
+date: 2024-11-30T16:08:06.262Z
+updated: 2024-12-07T16:03:06.626Z
 tags:
   - ai video
   - ai youtube
@@ -39,7 +39,7 @@ While many of the stats you can find on Social Blade are also available right on
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/FATJWpNYmio?si=72ugPTb3vJXz6cAM&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Hpne0zPsZwU?si=yN5QDsG_WLb_Y3u-" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Your YouTube Analytics
@@ -47,7 +47,7 @@ While many of the stats you can find on Social Blade are also available right on
 ![Social Blade for YouTube Analytics](https://images.wondershare.com/filmora/article-images/social-blade-youtube-analytics.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/PD0vq5qAYkw?si=5H3KWtCfUOYg1Nlv&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YZma8PBO0D8?si=9-qQgGVTuChYd27a" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Social Blade is an excellent place to gauge the growth of your channel. It provides statistics on our subscribers, views, and estimated revenue.
@@ -69,7 +69,7 @@ If you scroll down to the second section you will be able to see your views, sub
 By looking at this chart you can see which videos benefited your channel most after they were posted (your videos are not listed, but you can see based on the day you posted them). This will give you a good idea of what your audience wants to see.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YB7Ou4-iKVM?si=7Fq8iUwI8voccMLx&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9Q8Feep0Rc0?si=YkPhRxXGvrRRMJtb" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Spying on Other Channels
@@ -84,18 +84,18 @@ You can also use Social Blade to look up huge YouTube stars who you admire, just
 
  That's how you can use Social Blade for YouTube - have you ever used it?
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fZTlPdOFNmo?si=Ym8p7ayV1gtNzzXj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Make Your Videos Stand Out with Powerful Video Editor
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/gOyLy8DeizY?si=GkAmK0hChZw6_2tW&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/3koT_-kvbks?si=sQV7FzPiz6GYITrE&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Vca--yEhtdo?si=7ijqjyP-oi3LYze1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -119,21 +119,18 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://eaxpv-info.techidaily.com/new-2024-approved-how-to-spark-interest-with-unique-channel-names/"><u>[New] 2024 Approved How to Spark Interest With Unique Channel Names</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/hriving-as-an-online-gaming-content-creator-for-2024/"><u>[New] Thriving as an Online Gaming Content Creator for 2024</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/updated-how-to-block-someone-on-instagram-for-2024/"><u>[Updated] How to Block Someone on Instagram for 2024</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-in-2024-exquisite-couple-clips-the-best-weddings-online-8-picks/"><u>[Updated] In 2024, Exquisite Couple Clips The Best Weddings Online (8 Picks)</u></a></li>
-<li><a href="https://twitter-clips.techidaily.com/updated-in-2024-prime-5-replacements-for-twitter-users/"><u>[Updated] In 2024, Prime 5 Replacements for Twitter Users</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-monetizing-mastery-a-triple-step-approach-to-understanding-youtube-revenue-for-2024/"><u>[Updated] Monetizing Mastery A Triple Step Approach to Understanding YouTube Revenue for 2024</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/approved-crafting-thumbnails-on-the-go-for-aspiring-mobile-film-makers/"><u>2024 Approved Crafting Thumbnails on the Go For Aspiring Mobile Film Makers</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/in-2024-professional-framing-adding-bb-and-letterbox-overlays-to-fb-videos/"><u>In 2024, Professional Framing Adding BB and Letterbox Overlays to FB Videos</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/in-2024-top-apps-and-online-tools-to-track-vivo-y02t-phone-withwithout-imei-number-by-drfone-android/"><u>In 2024, Top Apps and Online Tools To Track Vivo Y02T Phone With/Without IMEI Number</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/24-transform-your-streaming-journey-by-activating-youtubes-av1/"><u>In 2024, Transform Your Streaming Journey by Activating YouTube's AV1</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/h-transition-of-online-videos-to-tv-screens-for-2024/"><u>Smooth Transition of Online Videos to TV Screens for 2024</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/gy-of-data-and-imagination-ideas-from-google-trends-for-2024/"><u>Synergy of Data and Imagination Ideas From Google Trends for 2024</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/rt-of-video-popularity-secrets-for-youtube-stardom-for-2024/"><u>The Art of Video Popularity Secrets for YouTube Stardom for 2024</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/understanding-chatgpt-shared-links-functionality-explained/"><u>Understanding ChatGPT Shared Links: Functionality Explained</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/universal-unlock-pattern-for-infinix-note-30-vip-racing-edition-by-drfone-android/"><u>Universal Unlock Pattern for Infinix Note 30 VIP Racing Edition</u></a></li>
-<li><a href="https://techidaily.com/useful-ways-that-can-help-to-effectively-recover-deleted-files-from-samsung-by-fonelab-android-recover-data/"><u>Useful ways that can help to effectively recover deleted files from Samsung</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/new-download-and-utilize-the-full-power-of-ez-grabber-quickly/"><u>[New] Download and Utilize the Full Power of EZ Grabber Quickly</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/new-gaining-traction-on-youtube-the-successful-sponsorship-roadmap-by-famebit-for-2024/"><u>[New] Gaining Traction on YouTube The Successful Sponsorship Roadmap by FameBit for 2024</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/updated-2024-approved-overcoming-shaky-drone-video-quality/"><u>[Updated] 2024 Approved Overcoming Shaky Drone Video Quality</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-2024-approved-understanding-youtubes-privacy-options-for-viewers/"><u>[Updated] 2024 Approved Understanding YouTube's Privacy Options for Viewers</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-an-easy-to-follow-guide-to-applying-cc-license-types-for-2024/"><u>[Updated] An Easy-to-Follow Guide to Applying CC License Types for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-how-to-use-a-tripod-for-vlogging/"><u>[Updated] How To Use a Tripod for Vlogging</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-real-time-vr-hardware-analysis-for-2024/"><u>[Updated] Real-Time VR Hardware Analysis for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-tackling-youtubes-dark-view-troubleshooting-steps/"><u>[Updated] Tackling YouTube's Dark View Troubleshooting Steps</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-the-social-blade-approach-to-analyzing-youtube-video-performance-metrics-for-2024/"><u>[Updated] The Social Blade Approach to Analyzing YouTube Video Performance Metrics for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-youtube-creator-studio-vs-youtube-studio-beta-which-one-is-better/"><u>[Updated] YouTube Creator Studio Vs. YouTube Studio (Beta) Which One Is Better?</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/2024-approved-dji-takes-flight-the-game-changing-faceoff-of-mavic-air-vs-spark/"><u>2024 Approved DJI Takes Flight The Game-Changing Faceoff of Mavic Air Vs. Spark</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/24-is-youtube-premium-worth-it-a-user-guide/"><u>In 2024, Is YouTube Premium Worth It A User Guide</u></a></li>
+<li><a href="https://techidaily.com/things-you-dont-know-about-oppo-reno-11-pro-5g-reset-code-drfone-by-drfone-reset-android-reset-android/"><u>Things You Dont Know About Oppo Reno 11 Pro 5G Reset Code | Dr.fone</u></a></li>
 </ul></div>
 

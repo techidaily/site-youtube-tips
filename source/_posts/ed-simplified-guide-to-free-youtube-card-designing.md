@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Simplified Guide to Free YouTube Card Designing"
-date: 2024-09-01T13:41:53.246Z
-updated: 2024-09-02T13:41:53.246Z
+date: 2024-11-30T16:08:36.052Z
+updated: 2024-12-07T16:00:46.528Z
 tags:
   - ai video
   - ai youtube
@@ -40,6 +40,10 @@ thumbnail: https://thmb.techidaily.com/151e2edee1a0284cef5f2216fc95a6d76e6031c7d
 
 [How To Make an End Card](#how-to)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vEYkX2NJgZw?si=IaHqlqJcYipwUOht" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part1: Intros
 
 #### Elements of an Intro
@@ -68,6 +72,10 @@ You can create a simple intro card in **Filmora**.
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/97ydpSmzTJw?si=tFcelmtQX4u-b3u5" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 1. Choose your background. You may want to use a short clip as your intro, or you may just want a colored background.
 2. Drag your clip or background into the video track of your timeline and trim it down to five seconds.
 3. If you have a logo, import it into Filmora and drag it into your picture-in-picture track.
@@ -76,6 +84,10 @@ You can create a simple intro card in **Filmora**.
 6. Go to the Text/Titles menu and choose an animated title that suits your channel. Drag it into your text track and edit it to include your name.
 7. The last piece of your intro is sound. You can choose a song from Filmora’s library and cut it down to five seconds, or import your sound effect.
 8. Export your video and save it for use in all of your other videos.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qmQjRcnaq9g?si=jadcGtXemUAlKOTa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 2: End Cards
 
@@ -112,20 +124,21 @@ Some creators will leave their end cards at that and play music overtop, but it 
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cDNwgyE0nbY?si=3k_WBhpIw3WudJot" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Shanoon Cox
 
 Shanoon Cox is a writer and a lover of all things video.
 
 Follow @Shanoon Cox
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -134,8 +147,26 @@ Follow @Shanoon Cox
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-best-youtube-mp3-downloader-compilation-top-10/"><u>[New] In 2024, Best YouTube Mp3 Downloader Compilation (Top 10)</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-optimal-lens-selection-for-smooth-vlogging-experience/"><u>[New] In 2024, Optimal Lens Selection for Smooth Vlogging Experience</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/rotect-your-data-while-converting-youtube-videos-to-mp3-tracks-for-2024/"><u>[New] Protect Your Data While Converting YouTube Videos to MP3 Tracks for 2024</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-2024-approved-mastering-snap-camera-in-ms-teams/"><u>[Updated] 2024 Approved Mastering Snap Camera in MS Teams</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/updated-elite-commanders-showdown-the-pinnacle-total-war-clashes/"><u>[Updated] Elite Commanders' Showdown The Pinnacle Total War Clashes</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-in-2024-convert-youtube-videos-smoothly-into-professional-webm-files/"><u>[Updated] In 2024, Convert YouTube Videos Smoothly Into Professional WebM Files</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-in-2024-real-time-caption-generator/"><u>[Updated] In 2024, Real-Time Caption Generator</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-optimal-yt-thumbnails-aspect-ratios-decoded-for-2024/"><u>[Updated] Optimal YT Thumbnails Aspect Ratios Decoded for 2024</u></a></li>
+<li><a href="https://article-files.techidaily.com/2024-approved-swift-skillz-best-high-speed-games-for-laptopsmobile/"><u>2024 Approved Swift Skillz Best High-Speed Games for Laptops/Mobile</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/e-a-shorts-connoisseur-must-know-facts/"><u>Become a Shorts Connoisseur Must-Know Facts</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/crafting-musical-instagram-narratives-without-for-2024/"><u>Crafting Musical Instagram Narratives (Without) for 2024</u></a></li>
+<li><a href="https://howto.techidaily.com/google-play-services-wont-update-12-fixes-are-here-on-lava-yuva-2-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Google Play Services Wont Update? 12 Fixes are Here on Lava Yuva 2 | Dr.fone</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/in-2024-a-list-screen-recorders-for-expert-users/"><u>In 2024, A-List Screen Recorders for Expert Users</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/in-2024-architecting-top-quality-canon-chrono-films/"><u>In 2024, Architecting Top Quality Canon Chrono Films</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/24-how-to-become-a-youtube-partner-you-need-10000-views-now/"><u>In 2024, How to Become a YouTube Partner - You Need 10,000 Views Now!</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/in-2024-the-complete-guide-to-vivo-y100i-frp-bypass-everything-you-need-to-know-by-drfone-android/"><u>In 2024, The Complete Guide to Vivo Y100i FRP Bypass Everything You Need to Know</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/e-orbiters-youtube-personalities-at-the-zenith-for-2024/"><u>Online Orbiters YouTube Personalities at the Zenith for 2024</u></a></li>
+<li><a href="https://win-forum.techidaily.com/the-ultimate-guide-to-fresh-windows-11-driver-installation/"><u>The Ultimate Guide to Fresh Windows 11 Driver Installation</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/top-6-kid-friendly-movie-websites-offering-free-films/"><u>Top 6 Kid-Friendly Movie Websites Offering Free Films</u></a></li>
+</ul></div>
 
-
-<!-- affiliate ads begin -->
-<a href="https://shop.emeditor.com/order/checkout.php?PRODS=4631722&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.emeditor.com/wp-content/uploads/2023/05/frontpage2-2048x588.webp" border="0">EmEditor Professional (Lifetime License, non-store app)</a>
-<!-- affiliate ads end -->

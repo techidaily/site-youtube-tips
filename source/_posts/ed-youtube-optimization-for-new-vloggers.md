@@ -1,7 +1,7 @@
 ---
 title: "[Updated] YouTube Optimization for New Vloggers"
-date: 2024-09-01T13:41:16.493Z
-updated: 2024-09-02T13:41:16.493Z
+date: 2024-12-03T16:13:19.795Z
+updated: 2024-12-07T16:12:33.348Z
 tags:
   - ai video
   - ai youtube
@@ -156,6 +156,10 @@ Have the specific keywords at the top, followed by more general keywords, and th
 
 **Branded**: Gordon Ramsay scrambled eggs
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0pSRlspzW-A?si=A82G3Yxwj_31cKDq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 2: Make The Best Darn Video Possible
 
 It doesn’t matter how relevant your keywords are or how epic your title is, if you video sucks (i.e. your viewers click in and leave right away), YouTube will not show it in search.
@@ -190,6 +194,10 @@ For example, in this scrambled egg video you are making, at the end you can ask,
 
 ![Encourage Viewers to Engage in Video](https://images.wondershare.com/filmora/article-images/encourage-viewers-to-engage-min.gif)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qObsqoJB9LI?si=ppqxfXzP0UL4J6Tp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Who knows, who will respond.
 
 #### Step 9: Design a Thumbnail
@@ -200,6 +208,10 @@ Your viewers will absolutely judge your video by its cover so it’s important t
 
 ![Design a Thumbnail](https://images.wondershare.com/filmora/article-images/design-youtube-video-thumbnail.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/B2MlLvGxMwI?si=q_blGjXyJrGtzT8d" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Take a look at your competition. If they all look the same, do something different. Add text or a human face (preferably yours) to evoke emotion, as viewers are more likely to click into a video if they see an expressive image.
 
 Don’t want to pay money for a photo editing software such as Photoshop?
@@ -208,19 +220,12 @@ You can use an online service called [Canva](https://www.canva.com/)or download 
 
 Want to know more thumbnail maker? Check our picks of the [best free YouTube thumbnail makers](https://tools.techidaily.com/wondershare/filmora/download/).
 
-<!-- affiliate ads begin -->
-<iframe id="iframe_672" src="//a.impactradius-go.com/gen-ad-code/5597632/1959812/17834/" width="720" height="300" scrolling="no" frameborder="0" marginheight="0" marginwidth="0"></iframe>
-<!-- affiliate ads end -->
 ## Part 3: Publishing With Attention to Optimization
 
 Well done finishing the video! You are almost there… but not there yet.
 
 ![XDyocwuGRiSptxueJZ5aokKqKt-JXMbX](https://images.filmora.io/5/XDyocwuGRiSptxueJZ5aokKqKt-JXMbX.gif)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=38729081&QTY=1&AFFILIATE=108875&CART=1"><img src="https://website-prod.cache.wpscdn.com/img/wps-spreadsheet-free-excel-editor-online-offline-1x.93e269d.png" border="0">
-WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
-<!-- affiliate ads end -->
 Come on, keep going!
 
 #### Step 10: Fill Out Your Videos Assets
@@ -230,8 +235,9 @@ The video is done, the thumbnail is designed, and you have all your title, descr
 ![Fill Out Your Videos Assets](https://images.wondershare.com/filmora/article-images/creator-stuido-fill-out-video-assets.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://ursime.pxf.io/c/5597632/2048972/16384" target="_top" id="2048972"><img src="//a.impactradius-go.com/display-ad/16384-2048972" border="0" alt="" width="1200" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2048972/16384" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Lp78eFEGwVU?si=-4orJBLvJJrggCJ2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 #### Step 11: Add Transcripts
 
 In addition to making your content accessible for people who don’t want to or can’t listen to the audio in your video, adding subtitles and closed captions will help YouTube understand the spoken content in your video.
@@ -257,29 +263,24 @@ Besides considering YouTube SEO, you should make a good YouTube video as well. F
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<a href="https://checkout.devart.com/order/checkout.php?PRODS=5023555&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/45b430710ad04765a6afd58d9d9fafca/products/dotConnect_O.png" border="0">dotConnect for Oracle is an ADO.NET data provider for Oracle with Entity Framework Support.</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Jng92DT1n_Y?si=EdMRoNAFi0Q6mP7G" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 Do you have any questions about SEO? Please leave us a comment below.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082535/7443" target="_top" id="2082535"><img src="//a.impactradius-go.com/display-ad/7443-2082535" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082535/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Shanoon Cox
 
 Shanoon Cox is a writer and a lover of all things video.
 
 Follow @Shanoon Cox
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -288,4 +289,24 @@ Follow @Shanoon Cox
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-lab.techidaily.com/024-approved-how-to-add-a-youtube-video-to-google-slides/"><u>[New] 2024 Approved How to Add a YouTube Video to Google Slides</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/024-approved-youtube-entrepreneurship-building-a-recognizable-brand/"><u>[New] 2024 Approved YouTube Entrepreneurship Building a Recognizable Brand</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/rom-beginner-to-expert-a-comprehensive-guide-to-looping-your-favorite-vids-for-2024/"><u>[New] From Beginner to Expert A Comprehensive Guide to Looping Your Favorite Vids for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-meme-master-tracking-jake-pauls-youtube-evolution/"><u>[New] In 2024, Meme Master Tracking Jake Paul's YouTube Evolution</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-soundscape-sanctuary-free-high-resolution-dj-videos-available/"><u>[New] In 2024, Soundscape Sanctuary Free High-Resolution DJ Videos Available</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-the-faces-to-watch-top-cosmetic-creatives/"><u>[New] In 2024, The Faces to Watch Top Cosmetic Creatives</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-youtube-editing-made-easy-with-the-8-best-no-cost-software-options/"><u>[New] In 2024, YouTube Editing Made Easy with The 8 Best No-Cost Software Options</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/new-unleashing-the-power-of-obs-macos-install-and-usage-tips/"><u>[New] Unleashing the Power of OBS MacOS Install & Usage Tips</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-speedy-workshop-converting-your-visuals-into-stellar-youtube-pics/"><u>[Updated] Speedy Workshop Converting Your Visuals Into Stellar YouTube Pics</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-youtube-moguls-and-millionaires-for-2024/"><u>[Updated] YouTube Moguls and Millionaires for 2024</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/2024-approved-chromes-pip-magic-for-seamless-video-playback/"><u>2024 Approved Chrome's PIP Magic for Seamless Video Playback</u></a></li>
+<li><a href="https://article-helps.techidaily.com/cartooncast-comprehensive-24-guidebook/"><u>CartoonCast Comprehensive '24 Guidebook</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/introducing-the-new-rapid-chrome-version-by-google-for-windows-users-a-game-changer-with-exceptions/"><u>Introducing the New Rapid Chrome Version by Google for Windows Users – A Game-Changer with Exceptions!</u></a></li>
+<li><a href="https://fox-http.techidaily.com/premier-presenter-label-provider-for-2024/"><u>Premier Presenter Label Provider for 2024</u></a></li>
+<li><a href="https://win-dash.techidaily.com/1722958210574-the-water-to-cement-ratio-is-crucial-for-determining-concrete-strength-and-workability/"><u>The Water-to-Cement Ratio Is Crucial for Determining Concrete Strength and Workability</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/k-50-exclusive-youtube-banner-free-gifts-in-2024/"><u>Unlock 50 Exclusive YouTube Banner Free Gifts, In 2024</u></a></li>
+<li><a href="https://solve-luxury.techidaily.com/vibrant-sunny-flora-hd-wallpapers-and-background-graphics-by-yl-software-stunning-pictures-for-visual-enhancement/"><u>Vibrant Sunny Flora HD Wallpapers & Background Graphics by YL Software: Stunning Pictures for Visual Enhancement</u></a></li>
+</ul></div>
 
