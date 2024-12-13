@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Binge on Christmas Classics  Enjoy 9 Whole-Film Flicks No Charge!\""
-date: 2024-12-04T16:31:35.700Z
-updated: 2024-12-07T16:12:59.056Z
+date: 2024-12-08T16:52:15.770Z
+updated: 2024-12-13T17:26:29.765Z
 tags:
   - ai video
   - ai youtube
@@ -32,12 +32,16 @@ If you are looking for Christmas entertainment this season you may be quick to l
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qv4Qm7kpeMs?si=9fv5SOS5a2DvixTK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UJJbj1vbzs8?si=X3zd8thLJKprfuEa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 1. The nutcracker 1990
 
 The Nutcracker is a holiday classic that many people seek out every year on the stage. This family ballet classic was filmed by the Pacific Northwest ballet in a huge and lavish version of the production in 1986\. This still stands as one of the best versions of the Nutcracker ever captured on film and you can watch it for free on YouTube. You can find the Nutcracker at :
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-Bov2KfWQ_Y?si=MnVczisgeJ-sGW2r" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 2. A smoky mountain Christmas
 
@@ -47,47 +51,43 @@ A Smoky Mountain Christmas is a film from 1986 directed by Harry Winkler and sta
 
 This film from 1989 features Jim Varney and his most famous character Ernest in a holiday Christmas movie that is an instant classic. This film is very funny and a favorite amongst some of the Ernest films for many. This Christmas movie from 1989 can be found at:
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/wNhKhWc0wLc?si=1XLYV0sXV52Xc0lu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 4. A Christmas story
 
 A Christmas story has long been one of the favorite Christmas movies for many families. In this film from 1983 we travel back in time to a traditional 1940s Christmas. In this film we follow the nine-year-old Ralphie who is looking for the famous red Ryder BB gun for Christmas and will stop at absolutely nothing to get it. A Christmas story can be found at:
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/BR4gsW-J7as?si=9a56UDKZKhREZnwz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 5. Richie Rich's Christmas wish
 
 In this film from 1998 we hear the story of the richest kid in the world on Christmas. In this film we see the richest in the world wishing that he had never been born with the wish coming true. Richie needs to find himself a new wishing machine and a way out of the parallel universe he gets stuck in to get back to his family. You can find this film at:
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/JMgRzDANfSQ?si=NDy01ntXGGOi1Uxs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 6. On the second day of Christmas
 
 This film stars the hulk Mark Ruffalo in one of his earlier roles as a store employee who catches a con woman trying to steal from a department store on Christmas. His character agrees to be responsible for the con woman and her niece over the holidays to prevent them from staying with social services. A romance develops! This 1997 film can be found at:
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Nyp7-xVwqHA?si=XCuZbpKLFIdrGQQh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 7. Santa Who?
 
 Santa who is a film from the year 2000 starring Leslie Nielsen. In this holiday classic Santa suffers a severe case of amnesia on Christmas Eve and needs to recover for Christmas day in order to make it through and deliver presents to all of the good children of the world. See if Santa gets his Christmas memories back by watching Santa Who here:
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0Kr7Dpw0HuM?si=05wWDXdPgmC-oBBE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 8. A Christmas Carol
 
 In this film from 1984 George C Scott brings to life the role of Ebenezer Scrooge from the perspective of the Charles Dickens novel. This is heavily been regarded as one of the most accurate versions to the Charles Dickens story. Although it may not have all of the special effects of some of the other versions of a Christmas carol this is still one of the favored versions of the story out there. You can watch this 1984 film here:
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/n-66V-LRK3Y?si=fNeB2pXCePeQli6E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 9. Miracle on 34th street
 
 In this recreation of the original film from 1947 this shortened full-length version from 1955 per trade is the classic story of santa on trial. A department store Santa suggests that he's the real santa and goes on trial to prove it. In this version of miracle on 34th Street starring Thomas Mitchell and Macdonald Carey we learn who really believes in Santa Claus. You can find this classic film here:
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Iz2LYWd8EqI?si=G_3CqFRAmeVPczjj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Shanoon Cox
 
@@ -110,18 +110,20 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-tips.techidaily.com/iny-videos-deciphered-crucial-elements-in-2024/"><u>[New] Tiny Videos Deciphered Crucial Elements, In 2024</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ed-best-mobile-film-and-picture-capture-tools-for-iphones-and-androids/"><u>[Updated] Best Mobile Film & Picture Capture Tools for iPhones & Androids</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-in-2024-frame-by-frame-verbalizer/"><u>[Updated] In 2024, Frame by Frame Verbalizer</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-in-2024-globes-biggest-video-content-mogul/"><u>[Updated] In 2024, Globe’s Biggest Video Content Mogul</u></a></li>
-<li><a href="https://tiktok-videos.techidaily.com/2024-approved-the-ultimate-tiktok-boosting-playbook-strategies-to-grow-your-community/"><u>2024 Approved The Ultimate TikTok Boosting Playbook Strategies to Grow Your Community</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/all-you-need-to-know-about-mega-greninja-for-oneplus-ace-2-pro-drfone-by-drfone-virtual-android/"><u>All You Need To Know About Mega Greninja For OnePlus Ace 2 Pro | Dr.fone</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-lines-the-art-of-anonymizing-youtube-content/"><u>Blurred Lines The Art of Anonymizing YouTube Content</u></a></li>
-<li><a href="https://games-able.techidaily.com/game-release-postponements-not-so-bad-after-all/"><u>Game Release Postponements - Not So Bad After All</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/how-to-unlock-sony-xperia-10-v-phone-password-without-factory-reset-by-drfone-android/"><u>How to Unlock Sony Xperia 10 V Phone Password Without Factory Reset?</u></a></li>
-<li><a href="https://review-topics.techidaily.com/in-2024-how-to-stop-life360-from-tracking-you-on-apple-iphone-13-pro-drfone-by-drfone-virtual-ios/"><u>In 2024, How to Stop Life360 from Tracking You On Apple iPhone 13 Pro? | Dr.fone</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/in-2024-starting-with-a-gopro-essential-upgrades-for-new-filmmakers/"><u>In 2024, Starting with a GoPro Essential Upgrades for New Filmmakers</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/in-2024-tamil-trax-download-edit-and-sync-songs-as-mobile-ringtone/"><u>In 2024, Tamil Trax Download, Edit & Sync Songs as Mobile Ringtone</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ating-youtube-music-eclecticism-for-2024/"><u>Navigating YouTube Music Eclecticism for 2024</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/new-final-impressions-how-to-design-a-standout-vimeo-end-screen/"><u>[New] Final Impressions How to Design a Standout Vimeo End Screen</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-guide-to-convert-youtube-twitter-videos-to-mp3-songs/"><u>[New] Guide to Convert YouTube Twitter Videos to MP3 Songs</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/n-2024-drive-subscriptions-upward-through-effective-youtube-branding/"><u>[New] In 2024, Drive Subscriptions Upward Through Effective YouTube Branding</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-seamless-sound-transfer-top-10-youtube-to-mp3-picks/"><u>[New] In 2024, Seamless Sound Transfer Top 10 YouTube to Mp3 Picks</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-youtube-shorts-earning-strategies-what-you-need-how-much-you-can-make/"><u>[New] In 2024, Youtube Shorts Earning Strategies What You Need, How Much You Can Make</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/nvestigating-profit-per-viewer-engagement-on-video-platforms/"><u>[New] Investigating Profit per Viewer Engagement on Video Platforms</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-guidelines-to-frame-your-youtube-creation-flow-for-2024/"><u>[Updated] Guidelines to Frame Your YouTube Creation Flow for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-in-2024-youtubes-best-love-stories-perfectly-captured-weddings/"><u>[Updated] In 2024, YouTube's Best Love Stories Perfectly Captured Weddings</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-mute-auto-generated-youtube-content-trails-for-2024/"><u>[Updated] Mute Auto-Generated YouTube Content Trails for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-ultimate-playwriting-workshop/"><u>[Updated] Ultimate Playwriting Workshop</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-how-to-detect-and-stop-mspy-from-spying-on-your-xiaomi-redmi-a2-drfone-by-drfone-virtual-android/"><u>In 2024, How to Detect and Stop mSpy from Spying on Your Xiaomi Redmi A2 | Dr.fone</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-mirror-apple-iphone-12-to-mac-drfone-by-drfone-ios/"><u>In 2024, How to Mirror Apple iPhone 12 to Mac? | Dr.fone</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/24-youtube-update-easy-access-to-your-shorts/"><u>In 2024, YouTube Update Easy Access to Your Shorts</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210266072-9781788176477-living-in-tune/"><u>Living in Tune | Free Book</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/unterstutzt-av1-in-der-version-von-adobe-premiere-pro-fur-den-importeffekt/"><u>Unterstützt AV1 in Der Version Von Adobe Premiere Pro Für Den Importeffekt?</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "\"In 2024, From Long to Brief  How to Shorten YouTube Footage\""
-date: 2024-09-01T13:39:17.972Z
-updated: 2024-09-02T13:39:17.972Z
+date: 2024-12-12T17:10:28.127Z
+updated: 2024-12-13T16:54:56.186Z
 tags:
   - ai video
   - ai youtube
@@ -36,6 +36,10 @@ For instance, the application is offering non-linear ripple video editing. This 
 
 ---
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/5EKBEujWCw4?si=PwVvvervi8OrYaEA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## How to Edit YouTube Video Length Using the built-in Video Editor
 
 The YouTube video editor is easy to use, and you can easily learn how to do all sorts of changes to your video. Let's see the things that you need to go through in order to edit the length.
@@ -46,6 +50,10 @@ The YouTube video editor is easy to use, and you can easily learn how to do all 
 
 ![Locate YouTube Video Editor](https://images.wondershare.com/filmora/article-images/add-music-to-youtube-video-6.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XIUatTFH0Zw?si=ZCtoBtIy18y2F5Vc" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 In order to do so, you would have to go ahead and login into your account. Then, go to the “My Channel” panel and select the video that you want to cut. Once you've done this, click on the “Video manager” option and click on the “create” tab which should be located on the right side for the page. There, you will be able to find the “Video Editor”. Of course, you can also add “/editor” to YouTube's URL, and you would be good to go.
 
 #### Step 2 Import Your Video
@@ -54,11 +62,19 @@ Once you've done all of the above, you would have to drag your video in order to
 
 ![drag video to YouTube timeline](https://images.wondershare.com/filmora/article-images/drag-video-to-youtube-timeline.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/wNhKhWc0wLc?si=1XLYV0sXV52Xc0lu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 #### Step 3 Edit the Length
 
 This is the part where you actually get to edit the length of your video. In order to do so effectively, you have to drag the bar at either end of your clip towards the other end in order to shorten the clip conveniently.
 
 ![edit video length in youtube](https://images.wondershare.com/filmora/article-images/edit-video-length-in-youtube.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Jng92DT1n_Y?si=EdMRoNAFi0Q6mP7G" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 What is more, if you want to increase the length, you have to drag the bar to the opposite end – outwards. There is going to be an indicator which is going to appear at the bottom of the clip, and it's going to show you the overall duration of the file, and it's going to adjust itself as you slide the bars accordingly.
 
@@ -68,20 +84,21 @@ Of course, you would have to save the clip in order for the changes to reflect. 
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ZeYbTVeaXg0?si=rwLL1DbBoX26BGjm" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -90,8 +107,22 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://remote-screen-capture.techidaily.com/new-2024-approved-commanders-crown-the-ultimate-ranking-of-7-total-war-classics/"><u>[New] 2024 Approved Commanders' Crown The Ultimate Ranking of 7 Total War Classics</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/new-in-2024-navigating-mov-saving-in-windows-11-top-six-methods-reviewed/"><u>[New] In 2024, Navigating .MOV Saving in Windows 11 - Top Six Methods Reviewed</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-picturecut-pro/"><u>[New] In 2024, PictureCut Pro</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-pixel-pilgrimage-journey-through-one-thousand-channels/"><u>[New] In 2024, Pixel Pilgrimage Journey Through One Thousand Channels</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-top-10-innovative-yt-reactions-for-engaging-content/"><u>[New] In 2024, Top 10 Innovative YT Reactions for Engaging Content</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/rime-audio-alteration-tech-for-influencer-marketers-for-2024/"><u>[New] Prime Audio Alteration Tech for Influencer Marketers for 2024</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-easily-download-specific-youtube-sections-for-2024/"><u>[Updated] Easily Download Specific YouTube Sections for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-in-2024-youtube-shorts-mastery-tackling-common-issues/"><u>[Updated] In 2024, YouTube Shorts Mastery Tackling Common Issues</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-the-filmmakers-pathway-to-youtube-success-with-professional-360-video-edits/"><u>[Updated] The Filmmaker's Pathway to YouTube Success with Professional 360 Video Edits</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/1728465049222-windows-10/"><u>如何将Windows 10的云存储复制到当地硬盘 -一个最基础的指南</u></a></li>
+<li><a href="https://extra-information.techidaily.com/easy-bucks-on-reddit-for-newbies-a-guide-to-top-13-ways/"><u>Easy Bucks on Reddit for Newbies - A Guide to Top 13 Ways</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ting-your-videos-status-on-youtube-for-2024/"><u>Elevating Your Video's Status on YouTube for 2024</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/exploring-upgrades-is-windows-11-the-next-step-forward/"><u>Exploring Upgrades: Is Windows 11 the Next Step Forward?</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/in-2024-elevate-your-snap-game-15-strategies-for-social-success/"><u>In 2024, Elevate Your Snap Game 15 Strategies for Social Success</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/in-2024-resolve-your-iphone-11-keeps-asking-for-outlook-password-by-drfone-ios/"><u>In 2024, Resolve Your iPhone 11 Keeps Asking for Outlook Password</u></a></li>
+</ul></div>
 
-
-<!-- affiliate ads begin -->
-<a href="https://store.revouninstaller.com/order/checkout.php?PRODS=27889512&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4282ec8de8c9be897e7aff4aa231b1a4/728__90.jpg" border="0"></a>
-<!-- affiliate ads end -->

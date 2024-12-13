@@ -1,7 +1,7 @@
 ---
 title: "YouTube Growth Hacking for New Videographers"
-date: 2024-11-30T16:03:10.036Z
-updated: 2024-12-07T16:30:39.595Z
+date: 2024-12-08T17:01:19.957Z
+updated: 2024-12-13T16:46:53.209Z
 tags:
   - ai video
   - ai youtube
@@ -42,10 +42,6 @@ Let’s Go!
 >
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/U6lCtLUeROA?si=se6OFuis9JpcTGJf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Part 1: Research Your Topic and Competitors
 
@@ -93,6 +89,10 @@ Once you have an idea of what people are searching for related to your topic, yo
 
 ![Find Keywords with Ubersuggest](https://images.wondershare.com/filmora/article-images/keyword-seo-tool-ubersuggest.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LaGNHfAT92w?si=bvHo1iYK2JBIPtRo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 This app gives you a whole list of long-tail keywords, which are 3-4-word phrases which is specific to what your video is about.
 
 Some you will use to dig deeper in and other you will deem irrelevant to your videos. A good way of determining the value of a keyword is by the stats the application shows.
@@ -100,7 +100,7 @@ Some you will use to dig deeper in and other you will deem irrelevant to your vi
 ![ Keywords in Ubersuggest](https://images.wondershare.com/filmora/article-images/find-keywords-with-ubersuggest.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/lCpzYpVPIZA?si=hNte-mPRIzjvqpRy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2ipTu54inBo?si=gRegjvtVq5gm_PHo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ####  
@@ -169,10 +169,6 @@ Have the specific keywords at the top, followed by more general keywords, and th
 
 **Branded**: Gordon Ramsay scrambled eggs
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/XVsiIO7hWOc?si=UvWnqxaI_yHwEr74" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Part 2: Make The Best Darn Video Possible
 
 It doesn’t matter how relevant your keywords are or how epic your title is, if you video sucks (i.e. your viewers click in and leave right away), YouTube will not show it in search.
@@ -207,6 +203,10 @@ For example, in this scrambled egg video you are making, at the end you can ask,
 
 ![Encourage Viewers to Engage in Video](https://images.wondershare.com/filmora/article-images/encourage-viewers-to-engage-min.gif)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=heERQcpMi77lqToE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Who knows, who will respond.
 
 #### Step 9: Design a Thumbnail
@@ -225,15 +225,15 @@ You can use an online service called [Canva](https://www.canva.com/)or download 
 
 Want to know more thumbnail maker? Check our picks of the [best free YouTube thumbnail makers](https://tools.techidaily.com/wondershare/filmora/download/).
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/jpdGEJJwMLY?si=eKgXOPpNeYvYKcel" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Part 3: Publishing With Attention to Optimization
 
 Well done finishing the video! You are almost there… but not there yet.
 
 ![XDyocwuGRiSptxueJZ5aokKqKt-JXMbX](https://images.filmora.io/5/XDyocwuGRiSptxueJZ5aokKqKt-JXMbX.gif)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_7AYCS7zBU0?si=7R9oIpE4hyEbtk3x" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Come on, keep going!
 
@@ -244,7 +244,7 @@ The video is done, the thumbnail is designed, and you have all your title, descr
 ![Fill Out Your Videos Assets](https://images.wondershare.com/filmora/article-images/creator-stuido-fill-out-video-assets.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/XIUatTFH0Zw?si=ZCtoBtIy18y2F5Vc" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kTHQrw8e1gk?si=gTPIa7KjhSZ0Vz97" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 #### Step 11: Add Transcripts
@@ -296,14 +296,20 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-craft-proficient-content-for-short-form-video-best-edits-reviewed/"><u>[New] In 2024, Craft Proficient Content for Short-Form Video Best Edits Reviewed</u></a></li>
-<li><a href="https://vimeo-videos.techidaily.com/updated-in-2024-a-step-by-step-to-adding-music-to-vimeo-videos/"><u>[Updated] In 2024, A Step-by-Step to Adding Music to Vimeo Videos</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-mastering-the-location-of-youtubes-creator-dashboard-for-2024/"><u>[Updated] Mastering the Location of YouTube's Creator Dashboard for 2024</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-softening-edges-strategic-lighting-for-content-creators-for-2024/"><u>[Updated] Softening Edges Strategic Lighting for Content Creators for 2024</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/approved-masterclass-in-youtube-video-previews-and-trailers/"><u>2024 Approved Masterclass in YouTube Video Previews and Trailers</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/fix-msidll-missing-error-on-your-pc-step-by-step-troubleshooting/"><u>Fix MSI.DLL Missing Error on Your PC - Step-by-Step Troubleshooting</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/in-2024-top-10-fingerprint-lock-apps-to-lock-your-tecno-pova-5-phone-by-drfone-android/"><u>In 2024, Top 10 Fingerprint Lock Apps to Lock Your Tecno Pova 5 Phone</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/navigating-through-itunes-and-google-play-what-sets-them-apart/"><u>Navigating Through iTunes and Google Play - What Sets Them Apart?</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/tles-made-simple-top-10-zero-cost-downloaders-for-2024/"><u>Subtitles Made Simple Top 10 Zero-Cost Downloaders for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/024-approved-thriving-as-a-novice-youtuber-sidestep-these-8-crucial-pitfalls/"><u>[New] 2024 Approved Thriving as a Novice YouTuber? Sidestep These 8 Crucial Pitfalls!</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/rafting-thumbnails-on-the-go-for-aspiring-mobile-film-makers-for-2024/"><u>[New] Crafting Thumbnails on the Go For Aspiring Mobile Film Makers for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/aily-dharma-the-best-yoga-channels-for-self-growth-for-2024/"><u>[New] Daily Dharma The Best Yoga Channels for Self-Growth for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-in-2024-integrating-imovie-productions-into-youtube/"><u>[Updated] In 2024, Integrating iMovie Productions Into YouTube</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-in-2024-prime-choices-the-premier-portable-devices-for-editors/"><u>[Updated] In 2024, Prime Choices The Premier Portable Devices for Editors</u></a></li>
+<li><a href="https://article-files.techidaily.com/updated-prime-platforms-crafting-3d-animation-art-for-2024/"><u>[Updated] Prime Platforms Crafting 3D Animation Art for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-simplified-approach-to-removing-youtube-comments-with-ease-for-2024/"><u>[Updated] Simplified Approach to Removing YouTube Comments with Ease for 2024</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/best-of-the-best-the-ultimate-guide-to-choosing-your-go-to-video-editor-top-14-recommendations/"><u>Best of the Best: The Ultimate Guide to Choosing Your Go-To Video Editor - TOP 14 Recommendations</u></a></li>
+<li><a href="https://fox-sys.techidaily.com/effortless-archiving-solutions-discover-the-best-no-cost-programs-to-move-files-across-windows-versions/"><u>Effortless Archiving Solutions: Discover the Best No-Cost Programs to Move Files Across Windows Versions!</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/how-to-unlock-tecno-spark-go-2023-phone-without-google-account-by-drfone-android/"><u>How to Unlock Tecno Spark Go (2023) Phone without Google Account?</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-how-to-stop-my-spouse-from-spying-on-my-honor-v-purse-drfone-by-drfone-virtual-android/"><u>In 2024, How to Stop My Spouse from Spying on My Honor V Purse | Dr.fone</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/in-2024-optimizing-self-filmed-content-on-youtube/"><u>In 2024, Optimizing Self-Filmed Content on YouTube</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ize-view-count-best-yt-thumbnail-sizes-for-2024/"><u>Maximize View Count Best YT Thumbnail Sizes for 2024</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211329736-9783892016434-reincarnazione-un-dono-di-grazia-della-vita/"><u>Reincarnazione. Un dono di grazia della vita | Free Book</u></a></li>
+<li><a href="https://location-social.techidaily.com/why-your-whatsapp-live-location-is-not-updating-and-how-to-fix-on-your-samsung-galaxy-a14-5g-drfone-by-drfone-virtual-android/"><u>Why Your WhatsApp Live Location is Not Updating and How to Fix on your Samsung Galaxy A14 5G | Dr.fone</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Achieve Sharpness  Camera Tips Without a Tripod\""
-date: 2024-09-01T13:38:41.221Z
-updated: 2024-09-02T13:38:41.221Z
+date: 2024-12-08T16:13:34.454Z
+updated: 2024-12-13T16:42:21.837Z
 tags:
   - ai video
   - ai youtube
@@ -34,7 +34,15 @@ Wondershare Filmora has the best video stabilization tool is your videos have a 
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/lxv4NM-89CU?si=Uj5rOkhrwZ_6QIuW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Here are 3 of our favorite DIY tripods.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9hsPbiic0O8?si=58mZ2Cu6wicQfsUP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### **DIY smartphone tripod using binder clips or hair clips**
 
@@ -54,13 +62,18 @@ And here it is with hair clips:
 
 ![hair clips](https://images.wondershare.com/filmora/article-images/hair-clips.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LI9nKlbhnw8?si=uUXFVbuEqXtFHHv0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Now you can set your smartphone upon any stable surface, like a table or a stack of books.
 
  _Here are some more cool ideas!_
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4530091&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pearlmountainsoft.com/n_img/product/cit_win/banScrn.jpg" border="0">CollageIt Pro</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jvwX82j3ci0?si=gAWoovjXgs3m1d7S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### **DIY adjustable tripod using books and a towel**
 
 You’ve probably heard a million times that you can stabilize your camera by sitting it down on any stable surface – on your desk, on a stack of books, up in a tree, etc. This is very true!
@@ -78,9 +91,6 @@ To get similar functions from the ‘any stable surface’ solution you can use 
 
 Now if your camera isn’t up high enough, or is too high, you can adjust it just by adding or taking away books. If you want to move it closer or farther away from you, just pull the towel forwards or backward.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=32667153&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.coolmuster.com/uploads/image/20201228/feature02.png" border="0"></a>
-<!-- affiliate ads end -->
 ### **DIY gripping ‘Gorillapod’ using wire and tape**
 
 Gorillapod’s are cool because you can use them like normal tripods, carry them around like selfie sticks, or attach them to things like fences and posts. Here’s how you can make something similar using **wire**, **electrical tape** or **duct tape**, and a **1/4 bolt**.
@@ -90,8 +100,9 @@ Your wire should be fairly stiff and you’ll need three pieces the same length,
  ![wire and type](https://images.wondershare.com/filmora/article-images/wire-and-type.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://shop.copernic.com/order/checkout.php?PRODS=41033091&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8d30aa96e72440759f74bd2306c1fa3d/Copernic-2023-Affiliate-728x90-Advanced.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RCYs8keh-Vs?si=uDC28-9yh-k6HLj4" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 _All of your supplies plus the finished product._
 
 **Readying your legs**
@@ -114,23 +125,17 @@ _Note: make sure the bolt is a fit for your camera before you get too far into t
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087394/7443" target="_top" id="2087394"><img src="//a.impactradius-go.com/display-ad/7443-2087394" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087394/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -139,4 +144,20 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://digital-screen-recording.techidaily.com/new-2024-approved-cultivating-success-in-valheim-prime-seed-picks/"><u>[New] 2024 Approved Cultivating Success in Valheim Prime Seed Picks</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/new-elevate-video-branding-incorporating-watermarks-into-youtube-media-for-2024/"><u>[New] Elevate Video Branding Incorporating Watermarks Into YouTube Media for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-2024-approved-ideal-thumbnails-for-maximum-clicks/"><u>[Updated] 2024 Approved Ideal Thumbnails for Maximum Clicks</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-2024-approved-pioneering-profitability-your-videos-vs-competitors-success-stories/"><u>[Updated] 2024 Approved Pioneering Profitability Your Videos Vs. Competitors' Success Stories</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-diving-into-youtube-creation-and-making-it-monetary-for-2024/"><u>[Updated] Diving Into YouTube Creation & Making It Monetary for 2024</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/updated-how-to-create-and-edit-videos-on-windows-10/"><u>[Updated] How to Create and Edit Videos on Windows 10</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-in-2024-confirm-monetization-accuracy-essential-steps-for-your-yt-channels/"><u>[Updated] In 2024, Confirm Monetization Accuracy Essential Steps for Your YT Channels</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/approved-youtube-affiliate-marketing-how-to-make-money-with-it/"><u>2024 Approved YouTube Affiliate Marketing How to Make Money with It</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/delete-gmail-account-withwithout-password-on-nubia-by-drfone-android/"><u>Delete Gmail Account With/Without Password On Nubia</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/fixing-dolby-advanced-audio-issue-how-to-resolve-dolby-audio-driver-not-starting-on-windows-11/"><u>Fixing Dolby Advanced Audio Issue: How to Resolve 'Dolby Audio Driver Not Starting' On Windows 11</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/get-metas-exceptional-512gb-quest-3-offer-top-virtual-reality-bargain-today/"><u>Get Meta's Exceptional 512GB Quest 3 Offer - Top Virtual Reality Bargain Today !</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/um-screener-tech-perfect-for-youtube-videos/"><u>Premium Screener Tech Perfect for YouTube Videos</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/savory-chaos-reigns-supreme-an-overcooked-2-critique/"><u>Savory Chaos Reigns Supreme: An Overcooked! 2 Critique</u></a></li>
+</ul></div>
 

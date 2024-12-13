@@ -1,7 +1,7 @@
 ---
 title: "[New] In 2024, Optimal Lighting for Stellar Video Production"
-date: 2024-12-06T16:19:00.897Z
-updated: 2024-12-07T16:19:24.827Z
+date: 2024-12-06T16:57:00.146Z
+updated: 2024-12-13T17:27:04.192Z
 tags:
   - ai video
   - ai youtube
@@ -37,10 +37,6 @@ Going outside and using natural light is the cheapest way to get a lot of light 
 
 ![ Lighting for YouTube Video](https://images.wondershare.com/filmora/article-images/three-point-lighting.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/xtylXDY9YfA?si=VonzSiDFGCpJm2uC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 The most common technique of lighting a scene is called **three-point lighting**. It involves three different sources of light in the shot and is used by portrait photographers, which is also a great method for lighting your vlog.
 
 The brightest source of light is also known as the **key light** which need to be high quality. A window will work, but if you do not have access to one where you are filming then consider an LED panel light or a softbox light like the ones used in portrait photography.
@@ -54,13 +50,13 @@ The **fill light** is less bright than the primary source of light and it is pla
 The final step to creating three point lighting is to set up another light behind you. This is your 'Backlight', and it will help you stand out from your background. **Backlight or Hair light** is always placed behind and above the subject to create separation between the subject in the shot and the background. This basic lighting technique can be applied in almost every scene you shoot, which is why it is important to keep an open mind and to continue experimenting with possible light setups.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/_1g4U13PBk0?si=xJLJtlc4hKBTBH8M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/T-ssCD10v2M?si=WVWGNayUiCAkMZzZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Watch Video! Top Lighting Tips for Vlogging
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/pGHmqD53gc8?si=ymgHIB6Aa7_MoUUf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/poI1NQxHfjc?si=ZLG0wziYcTKIKwL5" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Lightning Tips for Aspiring YouTube Videographers
@@ -89,6 +85,10 @@ Sets of reflectors are often under $50, so they are fairly affordable. However, 
 
 ![lighting tips](https://images.wondershare.com/filmora/article-images/lighting-tips01.JPG)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6kzbT13ds3M?si=hBInu0Or-cX2ANJF" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 If your strong main light is too hard on your eyes then you can use a translucent 'reflector' to soften it. Set your translucent reflector, or other screen, up in front of your main light to diffuse it.
 
 If you are hosting a **beauty vlog** then you might consider a slightly different set up. Instead of having your main light off to one side set it up directly in front of you so your entire face is lit evenly. It is still a good idea to use fill lights in this set up to give you some dimension, and a backlight is even more essential for helping you stand out from the background. The even light hitting your face will also make you look flat if you do not use a backlight.
@@ -96,7 +96,7 @@ If you are hosting a **beauty vlog** then you might consider a slightly differen
 ![lighting tips](https://images.wondershare.com/filmora/article-images/lighting-tips02.JPG)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/XA_wP7rS9ww?si=LarMG3sEHAhSoL6q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gyGoQi7hsZk?si=8OcKcPUj2wSBmVZ1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 If you are using all of the lighting options available to you and your video still looks too dark then you can try brightening it by **opening up the aperture of your camera** lens/setting a lower f-stop. Letting more light into your camera can help your footage look brighter, although you also run the risk of making things look overexposed/ washed out if you are not careful.
@@ -106,7 +106,7 @@ If you are stuck shooting in **low light conditions** it is best to use a lens w
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qfCSLAhd4FY?si=CUBztmilaeAwl1lw" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UcplMvRBulA?si=iBonbwDS1v7RAlHK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -130,21 +130,16 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://visual-screen-recording.techidaily.com/new-essential-tech-skills-learn-how-to-record-your-mac-display/"><u>[New] Essential Tech Skills Learn How to Record Your Mac Display</u></a></li>
-<li><a href="https://fox-http.techidaily.com/new-free-passport-photography-made-simple-our-top-10-picks-list-for-2024/"><u>[New] Free Passport Photography Made Simple Our Top 10 Picks List for 2024</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/uick-steps-to-validate-your-youtube-login/"><u>[New] Quick Steps to Validate Your YouTube Login</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-2024-approved-cutting-through-content-clutter-youtube-shorts-essentials/"><u>[Updated] 2024 Approved Cutting Through Content Clutter YouTube Shorts Essentials</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-2024-approved-harmonious-hubs-your-guide-to-posting-audio-on-youtube/"><u>[Updated] 2024 Approved Harmonious Hubs Your Guide to Posting Audio on YouTube</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-in-2024-balancing-creativity-and-logic-in-gaming-videos/"><u>[Updated] In 2024, Balancing Creativity and Logic in Gaming Videos</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-in-2024-the-journey-from-ad-revenue-to-bank-account-balance/"><u>[Updated] In 2024, The Journey From Ad Revenue to Bank Account Balance</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-puredownload-free-youtube-file-acquisition/"><u>[Updated] PureDownload Free YouTube File Acquisition</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/updated-score-big-with-these-8-no-cost-3d-videos-apps-for-windows-and-mac-os/"><u>[Updated] Score Big with These 8 No-Cost 3D Videos Apps for Windows & Mac OS</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-the-essential-tutorial-for-stunning-hdr-portraits-for-2024/"><u>[Updated] The Essential Tutorial for Stunning HDR Portraits for 2024</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/approved-demystifying-video-profit-on-youtube/"><u>2024 Approved Demystifying Video Profit on YouTube</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/2024-approved-recording-skype-meetings-on-modern-operating-systems/"><u>2024 Approved Recording Skype Meetings on Modern Operating Systems</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/hp-laptop-effiziente-image-wiederaufnahme-mit-myrecover-die-ultimative-losung-fur-verlorene-fotos/"><u>HP Laptop: Effiziente Image-Wiederaufnahme Mit MyRecover – Die Ultimative Lösung Für Verlorene Fotos</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ming-to-start-reversing-order-on-your-youtube-watch-list-for-2024/"><u>Streaming to Start Reversing Order on Your YouTube Watch List for 2024</u></a></li>
-<li><a href="https://fake-location.techidaily.com/thinking-about-changing-your-netflix-region-without-a-vpn-on-vivo-v29-drfone-by-drfone-virtual-android/"><u>Thinking About Changing Your Netflix Region Without a VPN On Vivo V29? | Dr.fone</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/unlocking-success-with-youtube-on-facebook/"><u>Unlocking Success with YouTube on Facebook</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-2024-approved-chuckle-cache-the-best-humor-tweets-on-twitch/"><u>[New] 2024 Approved Chuckle Cache The Best Humor Tweets on Twitch</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/levating-your-channel-a-gamers-blueprint-for-success/"><u>[New] Elevating Your Channel A Gamers' Blueprint for Success</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-organizing-soundtracks-formulating-a-youtube-music-list/"><u>[New] In 2024, Organizing Soundtracks Formulating a YouTube Music List</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-in-2024-step-by-step-guide-to-add-clearer-subtitles-on-youtube/"><u>[Updated] In 2024, Step-By-Step Guide to Add Clearer Subtitles on YouTube</u></a></li>
+<li><a href="https://fox-access.techidaily.com/updated-the-best-apps-for-keeping-your-linkedin-vids-safe-and-sound-for-2024/"><u>[Updated] The Best Apps for Keeping Your LinkedIn Vids Safe & Sound for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-youtube-enhancement-the-art-of-background-blur/"><u>[Updated] YouTube Enhancement The Art of Background Blur</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/googles-pixel-watch-2-and-apple-watch-s9-face-off-assessing-value-for-modern-tech-enthusiasts/"><u>Google's Pixel Watch 2 and Apple Watch S9 Face-Off: Assessing Value for Modern Tech Enthusiasts</u></a></li>
+<li><a href="https://techidaily.com/how-to-reset-a-vivo-y100-5g-phone-that-is-locked-drfone-by-drfone-reset-android-reset-android/"><u>How to Reset a Vivo Y100 5G Phone That Is Locked | Dr.fone</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/how-to-track-a-lost-honor-magic-vs-2-for-free-drfone-by-drfone-virtual-android/"><u>How to Track a Lost Honor Magic Vs 2 for Free? | Dr.fone</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-3-ways-to-track-honor-90-gt-without-them-knowing-drfone-by-drfone-virtual-android/"><u>In 2024, 3 Ways to Track Honor 90 GT without Them Knowing | Dr.fone</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/in-2024-how-do-you-unlock-your-apple-iphone-13-learn-all-4-methods-drfone-by-drfone-ios/"><u>In 2024, How Do You Unlock your Apple iPhone 13? Learn All 4 Methods | Dr.fone</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "[New] Strategic Marketing Insights for Maximizing YouTube Shorts Popularity"
-date: 2024-09-01T13:36:28.511Z
-updated: 2024-09-02T13:36:28.511Z
+date: 2024-12-09T17:18:11.988Z
+updated: 2024-12-13T16:41:10.467Z
 tags:
   - ai video
   - ai youtube
@@ -91,8 +91,9 @@ Hold the **Short videos** bar from the moving handle at the left, and move it ri
 ![Publish Added Section in Featured Section](https://images.wondershare.com/filmora/article-images/publish-featured-section.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BBusiness%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/business-970x90.gif" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_dOmuXhsV6Y?si=aT6vgPbDx4ajjvdr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Part 2: Create Attractive Thumbnail for YouTube Shorts to Get More Views
 
 The thumbnails are the face of the videos that you publish anywhere online. Therefore, it is imperative to take down the default one that is automatically added by YouTube, and add your own, custom image instead.
@@ -116,8 +117,9 @@ Always use an image with clear content and large text (if any). This lets the vi
 You should avoid using misleading images as thumbnails. While such photos would attract more viewers initially, people will gradually lose trust in your channel if they do not find what they expect by the glimpse of the thumbnail.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068411/7443" target="_top" id="2068411"><img src="//a.impactradius-go.com/display-ad/7443-2068411" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068411/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PNw3Lb26wFA?si=5NR1XRVSp41EQYMy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Part 3: Optimize YouTube Shorts to Get More Views
 
 The fact of the matter is, YouTube Shorts videos aren’t much different that any other video that you publish on the platform. Therefore, the process of optimizing both short and regular videos is identical.
@@ -143,16 +145,13 @@ Make sure to add relevant tags to your short videos. For instance, adding ‘#Sh
 ![Filmora logo](https://images.wondershare.com/filmora/logo_icon/wondershare-filmora-logo-horizontal.png) ![filmora product interface](https://images.wondershare.com/filmora/images/common/filmora-product-banner.png)
 
 <!-- affiliate ads begin -->
-<h3 id="200610"><a href="https://sentrypc.7eer.net/c/5597632/200610/3022">Parental Control Software</a></h3>
-<span class="text-ad-content">
-	#1 Rated Parental Control Software.<br/>
-	Monitor & Control all PC Activity!<br/>
-		<cite style="color:green">sentrypc.com/parental-controls/</cite>
-	</span><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/200610/3022" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0Kr7Dpw0HuM?si=05wWDXdPgmC-oBBE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 <!-- affiliate ads begin -->
-<a href="https://vapordna.pxf.io/c/5597632/1496243/17238" target="_top" id="1496243"><img src="//a.impactradius-go.com/display-ad/17238-1496243" border="0" alt="" width="1000" height="1221"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1496243/17238" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GPk8_xpN_rA?si=YbAdgsjAKsCn_UsB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### Filmora - Best YouTube Shorts Video Editor for PC
 
 * Easily record a video on PC and Mac.
@@ -172,14 +171,12 @@ For macOS 10.12 or later
 
 [![iOS](https://images.wondershare.com/assets/images-common/badges-apple.svg)](https://app.adjust.com/w06dr6m%5F19za1f6) [![Android](https://images.wondershare.com/assets/images-common/badges-google.svg) ](https://app.adjust.com/w06dr6m%5F19za1f6)
 
-<!-- affiliate ads begin -->
-<a href="https://twopages.pxf.io/c/5597632/1873313/18544" target="_top" id="1873313"><img src="//a.impactradius-go.com/display-ad/18544-1873313" border="0" alt="" width="1080" height="1263"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1873313/18544" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 [Try It Free >>](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<a href="https://store.iobit.com/order/checkout.php?PRODS=4596923&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/184260348236f9554fe9375772ff966e/ascscan_468X60.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Q-mXUpVQijU?si=f1MzflPJ8-bD2_iQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Part 4: How to Analyze YouTube Shorts Performance
 
 YouTube Shorts are videos that are no more than 60 seconds long in length. When added under the ‘Featured’ category, you can see a significant amount of increment in the hits, and therefore the view count and the playback duration of your YouTube channel gets directly affected.
@@ -192,20 +189,21 @@ Yes. As mentioned above, the view counts and playback durations of YouTube Short
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/umvX4ZdWbxk?si=tPXL0-Kzf9SQaY8z" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -214,4 +212,22 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-videos.techidaily.com/new-2024-approved-achieve-social-media-excellence-with-ios-and-androids-best-planners/"><u>[New] 2024 Approved Achieve Social Media Excellence with iOS & Android's Best Planners</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ifa-visuals-key-youtube-video-trends/"><u>[New] FIFA Visuals Key YouTube Video Trends</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/vercoming-obscured-visual-space-on-youtube/"><u>[New] Overcoming Obscured Visual Space on YouTube</u></a></li>
+<li><a href="https://fox-access.techidaily.com/new-the-financials-of-boosting-your-youtube-videos-for-2024/"><u>[New] The Financials of Boosting Your YouTube Videos for 2024</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/updated-making-simple-text-pop-in-videos-without-costs/"><u>[Updated] Making Simple Text Pop in Videos without Costs</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-maximizing-youtube-gaming-income/"><u>[Updated] Maximizing YouTube Gaming Income</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/approved-from-live-demos-to-online-sharing-mastering-idevice-screenshots-for-video-content/"><u>2024 Approved From Live Demos to Online Sharing Mastering iDevice Screenshots for Video Content</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/2024-approved-leading-vr-accessories-the-top-10-countdown/"><u>2024 Approved Leading VR Accessories The Top 10 Countdown</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/approved-shattering-synthetic-statistics-on-youtube/"><u>2024 Approved Shattering Synthetic Statistics on YouTube</u></a></li>
+<li><a href="https://solve-helper.techidaily.com/easy-installation-tutorial-for-gaia-v610-on-the-kodi-nexus-and-matrix-platforms/"><u>Easy Installation Tutorial for Gaia v6.1.0 on the Kodi Nexus & Matrix Platforms</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/empowering-online-teams-with-chatgpts-assistance/"><u>Empowering Online Teams with ChatGPT's Assistance</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/nizing-your-music-a-youtube-playlist-journey-for-2024/"><u>Harmonizing Your Music A YouTube Playlist Journey for 2024</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-best-pokemons-for-pvp-matches-in-pokemon-go-for-samsung-galaxy-a14-4g-drfone-by-drfone-virtual-android/"><u>In 2024, Best Pokemons for PVP Matches in Pokemon Go For Samsung Galaxy A14 4G | Dr.fone</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/in-2024-how-to-remove-and-reset-face-id-on-apple-iphone-12-pro-drfone-by-drfone-ios/"><u>In 2024, How to Remove and Reset Face ID on Apple iPhone 12 Pro | Dr.fone</u></a></li>
+<li><a href="https://techtrends.techidaily.com/top-8-preferred-alternative-mobile-contact-numbers-applications/"><u>Top 8 Preferred Alternative Mobile Contact Numbers Applications</u></a></li>
+</ul></div>
 

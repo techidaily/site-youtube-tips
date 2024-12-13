@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Make a Difference  YouTube's Quick Thumbnail Guide for 2024\""
-date: 2024-12-05T16:27:44.575Z
-updated: 2024-12-07T16:21:40.122Z
+date: 2024-12-07T16:35:28.371Z
+updated: 2024-12-13T16:34:11.489Z
 tags:
   - ai video
   - ai youtube
@@ -51,41 +51,33 @@ With time, Filmora brings new and advanced features for its users to equip them 
 
 ![ai-portrait-thumbnail-step3](https://images.wondershare.com/filmora/article-images/ai-portrait-thumbnail-step4.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/C3cJe7Wgn6I?si=EckDFML-VJ_2sYz8" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 **Step 04:** Choose a background of your choice for your thumbnail. You can choose a background from the sample colors provided by Filmora.
 
 ![ai-portrait-thumbnail-step4](https://images.wondershare.com/filmora/article-images/ai-portrait-thumbnail-step4.png)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/j5gTm5KxtQ0?si=onF1rBS2nEM5nLGg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 **Step 05:** If you want to use your custom background, you can import it into the Filmora by clicking import or dragging and dropping it in the media section.
 
 ![ai-portrait-thumbnail-step5](https://images.wondershare.com/filmora/article-images/ai-portrait-thumbnail-step5.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fvAC8jgs62o?si=xqEXZ7dpAXZ4sZ7A" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 **Step 06:** Import your video the same way into the media folder of Filmora and drag it into the timeline and place it above your background.
 
 ![ai-portrait-thumbnail-step6](https://images.wondershare.com/filmora/article-images/ai-portrait-thumbnail-step6.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/X4q6gyaEojM?si=ImdFm6Zsr0azykqV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 **Step 07:** Select your footage, go to the Effects tab and click on AI Portraits. It will open up all the effects related to AI Portraits. These AI Portrait features help you separate the human from a background without using a green screen or anything else.
 
 ![ai-portrait-thumbnail-step7](https://images.wondershare.com/filmora/article-images/ai-portrait-thumbnail-step11.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/-yZKNLxj3po?si=-RbF6nCJEVlHWP-M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 **Step 08:** Double click on any of these effects to see how they will look like on your footage.
 
 ![ai-portrait-thumbnail-step8](https://images.wondershare.com/filmora/article-images/ai-portrait-thumbnail-step8.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ASUEYpqSP5E?si=0KOZxrTVexTuUkRn" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 **Step 09:** To make a thumbnail for your Youtube, we have to remove the background of your footage first. To do that we have to apply Human Segmentation to the footage first. It will separate the human from the footage. Drag and drop the Human Segmentation effect into the footage in the timeline. Once you drop it into the footage, it will ask you to purchase this feature to export the footage. Since we are not trying to export the footage, we are only creating a thumbnail, click on "Try It". Once the background is removed, you can add other effects as well. Drag and drop the "Human Border" into the footage. It creates an outline around the human in your footage.
 
@@ -99,6 +91,10 @@ With time, Filmora brings new and advanced features for its users to equip them 
 
 ![ai-portrait-thumbnail-step11](https://images.wondershare.com/filmora/article-images/ai-portrait-thumbnail-step11.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/T-ssCD10v2M?si=WVWGNayUiCAkMZzZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Step 12:** Once you are satisfied with the final results, click on the Camera icon below the preview screen or press "Ctrl+Alt+S" to take the screenshot.
 
 ![ai-portrait-thumbnail-step12](https://images.wondershare.com/filmora/article-images/ai-portrait-thumbnail-step12.png)
@@ -111,10 +107,14 @@ This article on making a thumbnail for your Youtube is just an idea for you, and
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/djPqRkskaBo?si=O6FEI-KVW0HwN417" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/0dOfcihxjiw?si=_fkp1S1Uw0N1dp6b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/yDuvbv0QOYI?si=byottcEM_Rrvi4EL" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Shanoon Cox
@@ -138,22 +138,24 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-capture.techidaily.com/new-effective-strategies-to-capture-and-save-google-voice-dialogues/"><u>[New] Effective Strategies to Capture and Save Google Voice Dialogues</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-2024-approved-prosperous-gaming-vids-through-smart-hash-implementation/"><u>[Updated] 2024 Approved Prosperous Gaming Vids Through Smart Hash Implementation</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-in-depth-guide-on-using-annotations-for-marketing/"><u>[Updated] In-Depth Guide on Using Annotations for Marketing</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-monetizing-mastery-comparing-streaming-giants-strategies-for-2024/"><u>[Updated] Monetizing Mastery Comparing Streaming Giants' Strategies for 2024</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-perfecting-yt-thumbnails-quick-and-simple-guide-for-2024/"><u>[Updated] Perfecting YT Thumbnails Quick & Simple Guide for 2024</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-unlocking-monetization-success-a-3-step-system-to-determine-your-youtube-earnings-for-2024/"><u>[Updated] Unlocking Monetization Success A 3-Step System to Determine Your YouTube Earnings for 2024</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/approved-access-youtube-beats-freshly-split-with-this-compelling-list-of-17-crackers/"><u>2024 Approved Access YouTube Beats Freshly Split With This Compelling List of 17 Crackers</u></a></li>
-<li><a href="https://win-help.techidaily.com/1728465565102-windows-11/"><u>三种方式清理Windows 11的外接硬盘：一个完备指南</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/cters-that-convert-ideal-story-strategies-for-2024/"><u>Characters That Convert Ideal Story Strategies for 2024</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/24-flutter-freedom-for-videos-the-best-tools-to-flv-to-youtubes/"><u>In 2024, Flutter Freedom for Videos The Best Tools to Flv-to-YouTubes</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/plan-like-a-pro-on-a-budget-top-eb-free-ai-itinerary-generators-and-chatgpt-applications-for-travel-buffs/"><u>Plan Like a Pro on a Budget: Top Eb-Free AI Itinerary Generators & ChatGPT Applications for Travel Buffs</u></a></li>
-<li><a href="https://win-forum.techidaily.com/quick-start-to-activating-revo-permission-manager-using-revo-uninstaller-applications/"><u>Quick Start to Activating Revo Permission Manager Using Revo Uninstaller Applications</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/steer-clear-of-macchatgpt-safeguard-your-digital-life/"><u>Steer Clear of MacChatGPT: Safeguard Your Digital Life</u></a></li>
-<li><a href="https://howto.techidaily.com/top-10-fixes-for-phone-keep-disconnecting-from-wi-fi-on-lava-blaze-2-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Top 10 Fixes for Phone Keep Disconnecting from Wi-Fi On Lava Blaze 2 | Dr.fone</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/trouble-watching-on-netflix-learn-quick-fixes-for-immediate-playback-solutions/"><u>Trouble Watching on Netflix? Learn Quick Fixes for Immediate Playback Solutions</u></a></li>
-<li><a href="https://program-issues.techidaily.com/troubleshooting-forests-saga-resolving-pc-game-crashes/"><u>Troubleshooting 'Forest's Saga: Resolving PC Game Crashes</u></a></li>
-<li><a href="https://techtrends.techidaily.com/understanding-twitch-interruptions-global-disruption-vs-individual-access-issues/"><u>Understanding Twitch Interruptions: Global Disruption vs Individual Access Issues</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-2024-approved-creativity-on-a-tablet-leading-drawing-apps/"><u>[New] 2024 Approved Creativity on a Tablet Leading Drawing Apps</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-all-you-need-to-know-about-downloading-wm6/"><u>[New] All You Need to Know About Downloading WM6</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-mastering-the-craft-how-to-produce-mukbang-videos/"><u>[New] In 2024, Mastering the Craft How to Produce Mukbang Videos</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-top-alternative-movies-to-watch-ranked-7/"><u>[New] In 2024, Top Alternative Movies to Watch, Ranked #7</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/new-vivid-visual-victory-professional-image-coloration/"><u>[New] Vivid Visual Victory Professional Image Coloration</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-2024-approved-unlock-6-free-youtube-endings-for-pros/"><u>[Updated] 2024 Approved Unlock 6 Free YouTube Endings for Pros!</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-explore-the-world-of-kinemaster-and-ranking-10-online-competitors-for-2024/"><u>[Updated] Explore the World of KineMaster & Ranking 10 Online Competitors for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-in-2024-cut-to-perfection-premier-android-editing-software/"><u>[Updated] In 2024, Cut to Perfection Premier Android Editing Software</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-in-2024-the-ultimate-list-of-world-explorers-on-youtube/"><u>[Updated] In 2024, The Ultimate List of World Explorers on Youtube</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-integrate-spotify-and-youtube-top-5-playlist-to-channel-converters-available-for-2024/"><u>[Updated] Integrate Spotify and YouTube Top 5 Playlist-to-Channel Converters Available for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-making-a-mark-advanced-strategies-for-youtube-video-production-for-2024/"><u>[Updated] Making a Mark Advanced Strategies for YouTube Video Production for 2024</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/downloading-samfw-frp-tool-30-for-oneplus-ace-2v-by-drfone-android/"><u>Downloading SamFw FRP Tool 3.0 for OnePlus Ace 2V</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/24-expanding-digital-presence-stream-to-youtube-plus-additional-platforms/"><u>In 2024, Expanding Digital Presence Stream to YouTube + Additional Platforms</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-the-top-5-android-apps-that-use-fingerprint-sensor-to-lock-your-apps-on-motorola-edge-40-pro-by-drfone-android/"><u>In 2024, The Top 5 Android Apps That Use Fingerprint Sensor to Lock Your Apps On Motorola Edge 40 Pro</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/e-the-art-of-youtube-video-earnings-for-2024/"><u>Inside the Art of YouTube Video Earnings for 2024</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/resolve-your-iphone-6-keeps-asking-for-outlook-password-drfone-by-drfone-ios/"><u>Resolve Your iPhone 6 Keeps Asking for Outlook Password | Dr.fone</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/tips-and-tricks-for-setting-up-your-xiaomi-phone-pattern-lock-by-drfone-android/"><u>Tips and Tricks for Setting Up your Xiaomi Phone Pattern Lock</u></a></li>
+<li><a href="https://win-workspace.techidaily.com/top-11-vob-player-software-for-windows-and-mac-os-compare-the-best-free-video-tools/"><u>Top 11 VOB Player Software for Windows and Mac OS - Compare the Best Free Video Tools!</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/1726027428018-premiere-pro/"><u>プロフェッショナルな編集のヒント：Premiere Proでのビデオアスペクト比変更技術</u></a></li>
 </ul></div>
 

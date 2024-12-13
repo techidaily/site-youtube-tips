@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Seamless Blend of Text & Video Without Payment\""
-date: 2024-09-01T13:37:10.932Z
-updated: 2024-09-02T13:37:10.932Z
+date: 2024-12-12T16:29:09.355Z
+updated: 2024-12-13T16:40:46.024Z
 tags:
   - ai video
   - ai youtube
@@ -28,6 +28,10 @@ It may be challenging to capture the attention of your audience if the video ope
 
 Luckily, video editing and presentation software products offer the tools you will need to combine video and text. In this article, we are going to show you how to add a video to text in PowerPoint and Filmora.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/f-yPCh24EsA?si=3z8FAd_lMZeAjug7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 1: How to Add Video to Text for Free with PowerPoint?
 
 An effective PowerPoint presentation should contain proportionate amounts of textual and visual elements. Using too many images, videos or animations can make following a presentation difficult, just as too much text can render a presentation too static.
@@ -40,11 +44,19 @@ Head over to the Insert tab, select Rectangle from the Shapes menu, and create a
 
 ![Add video to text - Powerpoint- insert shape](https://images.wondershare.com/filmora/article-images/insert-rectangle-shape.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/NTQGoOOiJzs?si=zbZwflEfXgBY3qbs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 The next step you will have to take is to create the cut-out of the text within the rectangle. Select both the text and shape you placed in the background before clicking on the Format tab that is located near the end of PowerPoint’s ribbon.
 
 Find the Insert Shape option and choose Subtract from the Merge Shapes drop-down menu. The shape of the text in the textbox will be applied to the object in the background, which enables you to add a video to that text.
 
 ![Add video to text - Powerpoint- substract](https://images.wondershare.com/filmora/article-images/subtract-from-merge-shapes.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/yDuvbv0QOYI?si=byottcEM_Rrvi4EL" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Click on the Insert tab, and then choose the Video option from the Media menu. You can [insert a video](https://tools.techidaily.com/wondershare/filmora/download/) that is stored on a local hard drive or the Internet to PowerPoint. The video will cover the entire slide, so you must right-click on it and select the Send to Back option.
 
@@ -55,6 +67,10 @@ You can then fine-tune the video playback settings from the Playback tab. Previe
 Besides presentation software, you can also use video editing software products to add a video to text. Filmora lets you add a video to text in just a few simple steps. You can first make a text video with animation first, and then use the picture in picture feature to add the video to text. Here are the detailed information about how to add a video to text in Filmora.
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DBMTAJBx-X4?si=sje5pFJXiHzJJGbP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 You should start by creating a new project in Filmora and importing the video you want to add to the text into the project. Click on the Titles tab, and choose the title that matches the visual style of your project.
 
@@ -69,6 +85,10 @@ Proceed to select a font and adjust the text size before deciding if you want to
 Now it’s time to add the text video and the background video to the project media library, and then place the two videos one above the other. Since we’re adding video to text, the text video should be placed above the background video.
 
 ![Add video to text - Filmora9 Compositing](https://images.wondershare.com/filmora/article-images/compositing-video-9.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/eu4vwlZcMvM?si=4vEczfVU4BUUFP-t" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Click on the video that contains text to gain access to the Video tab of the Editor panel and then expand the Compositing menu. Change the Blending Mode to Multiply, and the text in the overlaying video should be filled with the parts of the footage from the video below it.
 
@@ -88,14 +108,11 @@ Liza Brown is a writer and a lover of all things video.
 
 Follow @Liza Brown
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -104,8 +121,24 @@ Follow @Liza Brown
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-decoding-youtube-community-terms-and-policies/"><u>[New] In 2024, Decoding YouTube Community Terms and Policies</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-elevate-your-edits-the-beginners-insider-look-at-editing-techniques/"><u>[New] In 2024, Elevate Your Edits The Beginner's Insider Look at Editing Techniques</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-striking-visuals-for-success-a-deep-dive-into-youtube-live-imagery/"><u>[New] Striking Visuals for Success A Deep Dive Into YouTube Live Imagery</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/he-ultimate-guide-unveiling-the-top-8-youtube-boosters-for-2024/"><u>[New] The Ultimate Guide Unveiling the Top 8 Youtube Boosters for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-2024-approved-crafting-splitscreen-youtube-videos-a-guide-to-creativity/"><u>[Updated] 2024 Approved Crafting Splitscreen YouTube Videos A Guide to Creativity</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/updated-2024-approved-expertly-curated-green-screen-gear-list/"><u>[Updated] 2024 Approved Expertly Curated Green Screen Gear List</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/updated-2024-approved-from-capturing-to-sharing-mastery-of-aiseesoft-recorder-features/"><u>[Updated] 2024 Approved From Capturing to Sharing Mastery of Aiseesoft Recorder Features</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-2024-approved-top-asmr-gear-expert-picked-microphone-selections/"><u>[Updated] 2024 Approved Top ASMR Gear Expert-Picked Microphone Selections</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-demystifying-video-profit-on-youtube/"><u>[Updated] Demystifying Video Profit on YouTube</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-in-2024-transcendental-tranquility-youtubes-best-yoga-channels/"><u>[Updated] In 2024, Transcendental Tranquility – YouTube’s Best Yoga Channels</u></a></li>
+<li><a href="https://article-helps.techidaily.com/updated-reducing-loudness-gradually-techniques-for-logic-pro-users-for-2024/"><u>[Updated] Reducing Loudness Gradually Techniques for Logic Pro Users for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/approved-unveiling-the-leading-10-no-cost-youtube-channels-for-stunning-visuals/"><u>2024 Approved Unveiling the Leading 10 No-Cost YouTube Channels for Stunning Visuals</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ing-a-viral-youtube-sensation-simplified-action-plan-for-2024/"><u>Creating a Viral YouTube Sensation Simplified Action Plan for 2024</u></a></li>
+<li><a href="https://driver-install.techidaily.com/direct-download-asus-usb-drivers-win-setup/"><u>Direct Download: ASUS USB Drivers Win Setup</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/in-2024-11-best-location-changers-for-nubia-red-magic-9-proplus-drfone-by-drfone-virtual-android/"><u>In 2024, 11 Best Location Changers for Nubia Red Magic 9 Pro+ | Dr.fone</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/24-visionary-vittles-steps-to-craft-food-films/"><u>In 2024, Visionary Vittles Steps to Craft Food Films</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/unlock-apple-iphone-xs-without-passcode-easily-drfone-by-drfone-ios/"><u>Unlock Apple iPhone XS Without Passcode Easily | Dr.fone</u></a></li>
+</ul></div>
 
-
-<!-- affiliate ads begin -->
-<a href="https://printrendy.pxf.io/c/5597632/1453721/17020" target="_top" id="1453721"><img src="//a.impactradius-go.com/display-ad/17020-1453721" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1453721/17020" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->

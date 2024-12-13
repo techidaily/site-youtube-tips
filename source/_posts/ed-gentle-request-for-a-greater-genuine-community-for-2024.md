@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Gentle Request for a Greater, Genuine Community for 2024"
-date: 2024-11-30T16:35:02.856Z
-updated: 2024-12-07T16:21:20.054Z
+date: 2024-12-12T17:14:21.502Z
+updated: 2024-12-13T16:23:13.915Z
 tags:
   - ai video
   - ai youtube
@@ -42,7 +42,7 @@ There are people who think that if people like their videos they’ll subscribe,
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/NTQGoOOiJzs?si=zbZwflEfXgBY3qbs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1dR4tF3VgyU?si=AJipgqZsNNxsRsBW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## What is a 'Call To Action'?
@@ -53,10 +53,6 @@ It has become the norm for YouTubers to ask viewers to subscribe in their sign-o
 
 That’s great. At the end of a video is a good place to ask people to subscribe, but is it the best and only place you should be reminding them? If you take a peek at your analytics and you might find that most of your viewers aren’t watching to the ends of your videos (people have short attention spans).
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/UCqHbpxQGP4?si=XGkajFHdqyoKNAFM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## A More Effective Way of Asking For Subscribers
 
 Collins Key is one YouTuber who has mastered asking for subscribers early on, and given that he has over 7 million subscribers himself I’d say it’s working out. Check out the technique in this video collab with Brooklyn and Bailey:
@@ -66,6 +62,10 @@ Collins Key is one YouTuber who has mastered asking for subscribers early on, an
 As you can see, the video starts with a ‘flash forward’ to one of the twins saying the heater is on fire and then a reminder of what’s going to happen later – the heater catching fire – is written in the top left of the screen so it stays on the viewers' mind. This is one way in which the viewer is immediately hooked.
 
 ![ how to ask people to subscribe](https://images.wondershare.com/filmora/article-images/ask-people-to-subscribe-by-hook.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qfCSLAhd4FY?si=CUBztmilaeAwl1lw" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 #### Step 2: Get to The Point Quickly
 
@@ -78,13 +78,13 @@ It’s only after hooking the viewer in and reiterating the promise of the title
 ![ how to ask people to subscribe](https://images.wondershare.com/filmora/article-images/ask-people-to-subscribe-in-perfect-moment.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/BmegThMdrJE?si=rILo1FJb9DgnPljV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vQbNyknjJJ8?si=RGVIEWLdPbvRC_r6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Collins Key has been one of the fastest-growing channels on YouTube. He does not implement this strategy in every video, but it’s not a stretch to think it’s had something to do with his success. Instead of simply asking you to subscribe at the end of the video, he creates a part of the video early on – before people who don’t watch until the end will have clicked away – where you feel as if you’re ‘supposed to’ subscribe.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Un9G2_OdSRI?si=vAcGbco8DuWt4ypP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/sXLLPY11of0?si=-3YNnpnO0wbc0K_-" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Polish Your YouTube Videos with Filmora
@@ -97,13 +97,13 @@ Here is a tutorial video about how to use Filmora to edit your YouTube video. Ch
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/ME5-sAQJVE4?si=ZfcvJSnhQevWtjI0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 That's how you can get more YouTube subscribers by asking the right way. You may follow the instructions and try it yourself. Do not forget to [track your YouTube subscribers in real time](https://tools.techidaily.com/wondershare/filmora/download/) to make necessary adjustments.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gMS5pm0SQlQ?si=gasOo6p2agrVlIb7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -126,24 +126,16 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-tips.techidaily.com/n-2024-knowledge-hub-leading-educational-youtube-sources/"><u>[New] In 2024, Knowledge Hub Leading Educational YouTube Sources</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/n-2024-rev-up-your-recruiting-strategy-with-hot-tapes/"><u>[New] In 2024, Rev Up Your Recruiting Strategy with Hot Tapes</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/tep-into-editing-excellence-with-youtube-studio-toolset-for-2024/"><u>[New] Step Into Editing Excellence with YouTube Studio Toolset for 2024</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-2024-approved-youtubes-best-gamers-audio-selection-guide/"><u>[Updated] 2024 Approved YouTube's Best Gamers' Audio Selection Guide</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/updated-ascending-the-rankings-iphones-top-selfie-accessories/"><u>[Updated] Ascending the Rankings IPhone's Top Selfie Accessories</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-enhancing-content-discovery-via-thumbnails/"><u>[Updated] Enhancing Content Discovery via Thumbnails</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/updated-enhancing-visibility-key-steps-in-social-media-video-marketing-for-2024/"><u>[Updated] Enhancing Visibility Key Steps in Social Media Video Marketing for 2024</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-in-2024-premium-video-starters-the-best-16-to-skyrocket-view-counts/"><u>[Updated] In 2024, Premium Video Starters The Best 16 to Skyrocket View Counts</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-strategic-monetization-for-game-streams/"><u>[Updated] Strategic Monetization for Game Streams</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-the-ultimate-guide-to-perfecting-your-yt-visual-footprint/"><u>[Updated] The Ultimate Guide to Perfecting Your YT Visual Footprint</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ving-virality-youtube-promotion-no-cost-involved/"><u>Achieving Virality YouTube Promotion No Cost Involved</u></a></li>
-<li><a href="https://techidaily.com/guide-to-executing-pre-windows-11-applications-via-compatibility-mode-in-windows-11/"><u>Guide to Executing Pre-Windows 11 Applications via Compatibility Mode in Windows 11</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/how-to-perform-a-clean-boot-in-windows-11/"><u>How to Perform a Clean Boot in Windows 11</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/how-to-track-infinix-hot-40-location-by-number-drfone-by-drfone-virtual-android/"><u>How to Track Infinix Hot 40 Location by Number | Dr.fone</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/in-2024-filter-flash-explore-the-most-popular-snap-filters/"><u>In 2024, Filter Flash Explore the Most Popular Snap Filters</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/in-2024-spoofing-life360-how-to-do-it-on-infinix-hot-40-pro-drfone-by-drfone-virtual-android/"><u>In 2024, Spoofing Life360 How to Do it on Infinix Hot 40 Pro? | Dr.fone</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/in-2024-ultimate-guide-to-free-pptp-vpn-for-beginners-on-honor-magic-6-lite-drfone-by-drfone-virtual-android/"><u>In 2024, Ultimate Guide to Free PPTP VPN For Beginners On Honor Magic 6 Lite | Dr.fone</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/pro-action-recorder-guide-top-15-camcorder-list-for-2024/"><u>Pro Action Recorder Guide Top 15 Camcorder List for 2024</u></a></li>
-<li><a href="https://games-able.techidaily.com/sonys-subscription-service-assessing-its-monthly-cost/"><u>Sony's Subscription Service: Assessing Its Monthly Cost</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/inding-the-best-sound-editing-software-for-video-makers/"><u>[New] Finding the Best Sound Editing Software for Video Makers</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-the-self-sustained-youtube-moguls-handbook-no-ads-only-gains/"><u>[New] In 2024, The Self-Sustained YouTube Mogul’s Handbook No Ads, Only Gains</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/treamline-your-experience-with-these-top-7-mobile-adblockers/"><u>[New] Streamline Your Experience with These Top 7 Mobile AdBlockers</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/updated-2024-approved-screenmasterrevolution-next-gen-recording-software/"><u>[Updated] 2024 Approved ScreenMasterRevolution Next-Gen Recording Software</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-the-ultimate-hdr-camera-match-up-for-2024/"><u>[Updated] The Ultimate HDR Camera Match-Up for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/approved-unlocking-your-creative-potential-style-and-niche/"><u>2024 Approved Unlocking Your Creative Potential Style & Niche</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/approved-unveiling-your-individual-playlist-paradise-on-youtube/"><u>2024 Approved Unveiling Your Individual Playlist Paradise on YouTube</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-how-can-i-use-a-fake-gps-without-mock-location-on-lava-yuva-3-drfone-by-drfone-virtual-android/"><u>In 2024, How Can I Use a Fake GPS Without Mock Location On Lava Yuva 3? | Dr.fone</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-still-using-pattern-locks-with-realme-v30-tips-tricks-and-helpful-advice-by-drfone-android/"><u>In 2024, Still Using Pattern Locks with Realme V30? Tips, Tricks and Helpful Advice</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-unlock-your-samsung-galaxy-a15-5gs-potential-the-top-20-lock-screen-apps-you-need-to-try-by-drfone-android/"><u>In 2024, Unlock Your Samsung Galaxy A15 5Gs Potential The Top 20 Lock Screen Apps You Need to Try</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/iphone-dominates-securing-top-7-positions-in-worldwide-mobile-phone-market-insights-from-zdnet/"><u>IPhone Dominates: Securing Top 7 Positions in Worldwide Mobile Phone Market - Insights From ZDNet</u></a></li>
 </ul></div>
 

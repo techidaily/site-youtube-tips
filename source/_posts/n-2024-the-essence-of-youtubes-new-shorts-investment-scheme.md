@@ -1,7 +1,7 @@
 ---
 title: "[New] In 2024, The Essence of YouTube's New Shorts Investment Scheme"
-date: 2024-12-02T16:00:27.029Z
-updated: 2024-12-07T16:09:48.379Z
+date: 2024-12-07T16:36:46.594Z
+updated: 2024-12-13T16:57:58.075Z
 tags:
   - ai video
   - ai youtube
@@ -29,19 +29,11 @@ YouTube offers content creators a platform for creating a lucrative career. Of t
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/mK1lEBRm_1w?si=FSaM0OKO0XBCgjtT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **Part 1\. YouTube Shorts Fund: Introduction and Benefits**
 
 YouTube launched YouTube Shorts Funds in 2021 to financially support creators who produce engaging and popular Shorts content. The monetization scheme would distribute $100 million to high-performing creators on the platform. The creators would receive high engagement and views from their Shorts for funding.
 
 ![youtube shorts fund](https://images.wondershare.com/filmora/article-images/2023/everything-you-need-to-know-about-the-youtube-shorts-fund-1.jpeg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/_1g4U13PBk0?si=xJLJtlc4hKBTBH8M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 The main objective of the YouTube Shorts fund is to encourage creativity, diversity, and innovation in Shorts content creation. The fund operated between 2021 and 2022\. It lets creators earn $100 - $10,000 a month for their content.
 
@@ -55,10 +47,6 @@ Participating in YouTube Shorts Funds offer several benefits to the creators:
 
 YouTube incorporated monetization of Shorts in its YouTube Partner Program (YPP). Therefore, YouTube merged the Shorts Fund with the YPP in February 2023\. This led to YouTube Shorts Fund 2023 which now offers creators more opportunities to make money quickly on YouTube.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YZma8PBO0D8?si=9-qQgGVTuChYd27a" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **Part 2\. Making Money with YouTube Shorts: Eligibility and Earnings**
 
 The new YouTube Shorts monetization policy means that content creators on YouTube with access to the YPP can also earn from Shorts. The revenue-sharing model has now taken the place of the YouTube Shorts Fund, which only rewarded creators using YouTube’s money. However, creators don’t have to be members of the YPP to start receiving YouTube Shorts funding. They only need to meet certain requirements, make unique content, and adhere to Community Guidelines.
@@ -68,11 +56,19 @@ The new YouTube Shorts monetization policy means that content creators on YouTub
 * [What the YPP Shorts Fund Entails](#youtube3)
 * [How Much Can You Make with Short](#youtube4)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-yZKNLxj3po?si=-RbF6nCJEVlHWP-M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### **YouTube Shorts Fund Eligibility**
 
 As of 2023, YouTube offers Shorts Funding as a monetization option. Creators can also choose to monetize with YPP combined with Shorts Fundings.
 
 ![youtube shorts fund eligibility](https://images.wondershare.com/filmora/article-images/2023/everything-you-need-to-know-about-the-youtube-shorts-fund-3.jpeg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vPGg53vbOsk?si=CkSEN5HFPS7vDuAa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 The eligibility requirements for Shorts funding include:
 
@@ -85,7 +81,7 @@ To become a member of the YPP and start accessing Shorts funding this way, the m
 * At least 3,000 public watch hours over the last 13 months (You previously needed 4,000)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aG3NRuHrIJg?si=HwzwD0RXmrzIXX1V" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KKFdFHaVIJg?si=x2vLw7ty3FtHX-9T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### **Additional Steps of Actions to Activate YouTube Shorts Funding**
@@ -96,6 +92,10 @@ In addition to the basic eligibility requirements, creators are also required to
 * **Review and Accept the Terms of Shorts Monetization Module:** In the YouTube Studio, head over to the Shorts Fund section and click on the Terms and Conditions link.
 * **Enable Monetization for Individual Shorts:** Edit the monetization settings for each Short to start generating ad revenue.
 * **Comply with YouTube Policies and Guidelines:** Visit the YouTube Creator Academy to learn more about the platform’s policies and guidelines.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/rBnnLFJbvr4?si=LlHYrYlOBp7NLMec" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### **What the YPP Shorts Fund Entails**
 
@@ -109,11 +109,19 @@ The YPP Shorts Fund program includes the following features:
 
 The amount of money you can make on Shorts often varies. It can be hard to make decent money on Shorts sometimes, and other times it brings in a nice chunk of revenue. Unfortunately, the earnings are not as spectacular as the long YouTube videos. Most creators agree that the revenue per thousand views (RPM) for shorts is around $0.05 - $0.07\. This would translate to about $50 - $70 for a million Shorts views. Although the ad revenue is relatively lower, you can generate more revenue with the shopping features. This will depend on how wee you keep your audience active and engaged.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/BR4gsW-J7as?si=9a56UDKZKhREZnwz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Part 3\. How to Use YouTube Shorts Funding: Application and Activation**
 
 The process of applying for and activating YouTube Short Funding is simple. You need to accept the Shorts Monetization Module in your terms and conditions. After activating, monetization starts immediately.
 
 ![youtube shorts fund monetization module](https://images.wondershare.com/filmora/article-images/2023/everything-you-need-to-know-about-the-youtube-shorts-fund-4.jpeg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cDNwgyE0nbY?si=3k_WBhpIw3WudJot" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Head over to the YouTube Studio. Sign in to your account to accept the terms. Be sure to use a web browser because the YouTube app will not allow you to make these changes. Accept the terms and follow these steps to turn on the ads:
 
@@ -133,7 +141,7 @@ The best way to earn from the YouTube Shorts Fund is to create quality content. 
 Filmora can help create visually appealing and engaging videos, ultimately increasing the chances of monetization on YouTube. The following features make editing videos on Filmora quick and easy.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/hXIq2G0nShk?si=5Z4Fwv7ZB6oKWsdd" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LaWcXdTn5SE?si=QbxEkX-4a17J5RVs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 1\. [**Auto Reframe**](https://tools.techidaily.com/wondershare/filmora/download/)
@@ -144,17 +152,9 @@ You may have recorded horizontal videos and want to upload them as Shorts. The A
 
 Texts tell the audience what is happening in the video. It is also a great way to highlight major events in YouTube Shorts. The Add Text to Video feature on Filmora makes it easy to add text or captions to your videos.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/td3ojuzhloY?si=N_maQNiJWrJp7XZl" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 3\. [**Auto Synchronization**](https://tools.techidaily.com/wondershare/filmora/download/)
 
 When editing Shorts, you will likely add many footage in a short video. It is common for the audio to end up being where it is not supposed to. The Auto Synchronization feature is the ultimate audio sync. It effortlessly matches your audio with the video, making sure viewers see what they hear
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LI9nKlbhnw8?si=uUXFVbuEqXtFHHv0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 4\. [**Mask & Blend**](https://tools.techidaily.com/wondershare/filmora/download/)
 
@@ -187,18 +187,24 @@ The YouTube Shorts Fund offers an exceptional for creators to make additional in
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-tips.techidaily.com/n-2024-whats-new-in-youtube-money-regulations/"><u>[New] In 2024, What's New in YouTube Money Regulations</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/humbnail-enhancement-strategies-for-higher-clickthrough-rates-on-youtube-for-2024/"><u>[New] Thumbnail Enhancement Strategies for Higher Clickthrough Rates on YouTube for 2024</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-2024-approved-twice-the-joy-twice-the-fun-televised-repetition-made-easy/"><u>[Updated] 2024 Approved Twice the Joy, Twice the Fun Televised Repetition Made Easy</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/updated-asmr-insights-understanding-its-health-benefits/"><u>[Updated] ASMR Insights Understanding Its Health Benefits</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-get-rid-of-youtube-ads-with-ease-on-chrome-firefox-ios-android/"><u>[Updated] Get Rid of YouTube Ads with Ease on Chrome, Firefox, iOS, Android</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-integrative-design-embedding-youtube-in-slides-for-2024/"><u>[Updated] Integrative Design Embedding YouTube in Slides for 2024</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/approved-navigate-to-8-online-vaults-for-free-green-screen-backdrop-archives/"><u>2024 Approved Navigate to 8 Online Vaults for Free Green Screen Backdrop Archives</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-how-i-transferred-messages-from-nubia-z50s-pro-to-iphone-12xs-max-in-seconds-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How I Transferred Messages from Nubia Z50S Pro to iPhone 12/XS (Max) in Seconds | Dr.fone</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/in-2024-mastering-lock-screen-settings-how-to-enable-and-disable-on-asus-by-drfone-android/"><u>In 2024, Mastering Lock Screen Settings How to Enable and Disable on Asus</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/magic-meets-technology-the-future-of-home-studio-production-for-2024/"><u>Magic Meets Technology The Future of Home Studio Production for 2024</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/navigating-through-8-prime-free-srt-translation-options-for-2024/"><u>Navigating Through 8 Prime Free SRT Translation Options for 2024</u></a></li>
-<li><a href="https://buynow-marvelous.techidaily.com/sabrent-mini-mouse-with-optical-cables-a-compact-choice-for-accurate-control-on-the-go/"><u>Sabrent Mini Mouse with Optical Cables - A Compact Choice for Accurate Control on the Go</u></a></li>
-<li><a href="https://windows11.techidaily.com/turbo-steam-downloads-overcoming-frustrating-speed-halts/"><u>Turbo Steam Downloads: Overcoming Frustrating Speed Halts</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/new-clearing-the-darkness-remedies-for-invisible-gaming-captures-by-obs/"><u>[New] Clearing the Darkness Remedies for Invisible Gaming Captures by OBS</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/iscover-the-ideal-release-windows-on-youtube-for-2024/"><u>[New] Discover the Ideal Release Windows on YouTube for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-mastering-youtube-tv-a-step-by-step-guide/"><u>[New] In 2024, Mastering YouTube TV A Step-by-Step Guide</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-2024-approved-rapid-audience-expansion-without-breaking-the-bank/"><u>[Updated] 2024 Approved Rapid Audience Expansion Without Breaking the Bank</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-in-2024-craft-unforgettable-experiences-for-more-subscribers-with-these-6-tips/"><u>[Updated] In 2024, Craft Unforgettable Experiences for More Subscribers with These 6 Tips</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-in-2024-premium-film-experiences-yts-best-of-lists/"><u>[Updated] In 2024, Premium Film Experiences YT's Best Of Lists</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-masterful-video-analytics-unlocking-potential-with-social-blade-and-youtube/"><u>[Updated] Masterful Video Analytics Unlocking Potential with Social Blade & YouTube</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-the-key-to-success-perfecting-your-online-yt-presence/"><u>[Updated] The Key to Success Perfecting Your Online YT Presence</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-the-path-to-popularity-unveiling-tubebuddy-secrets/"><u>[Updated] The Path to Popularity Unveiling TubeBuddy Secrets</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ving-virality-youtube-promotion-no-cost-involved-for-2024/"><u>Achieving Virality YouTube Promotion No Cost Involved for 2024</u></a></li>
+<li><a href="https://android-frp.techidaily.com/addrom-bypass-an-android-tool-to-unlock-frp-lock-screen-for-your-motorola-edge-40-pro-by-drfone-android/"><u>AddROM Bypass An Android Tool to Unlock FRP Lock Screen For your Motorola Edge 40 Pro</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/discover-the-top-max-right-now-documentaries-airing-this-july-2024/"><u>Discover the Top Max Right Now Documentaries Airing This July 2024!</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/tial-guide-the-top-10-inexpensive-youtube-channels-for-visual-creators/"><u>Essential Guide The Top 10 Inexpensive YouTube Channels for Visual Creators</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/in-2024-samsung-ubd-k8500-2023-edition-analysis/"><u>In 2024, Samsung UBD-K8500 2023 Edition Analysis</u></a></li>
+<li><a href="https://apple-account.techidaily.com/in-2024-your-account-has-been-disabled-in-the-app-store-and-itunes-from-apple-iphone-12-mini-by-drfone-ios/"><u>In 2024, Your Account Has Been Disabled in the App Store and iTunes From Apple iPhone 12 mini?</u></a></li>
+<li><a href="https://solve-lab.techidaily.com/is-it-possible-to-use-xbox-one-with-a-dvd-player-step-by-step-guide/"><u>Is It Possible to Use Xbox One with a DVD Player? Step-by-Step Guide</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/lenslux-framepro-incredible-photos-at-an-extreme-cost/"><u>LensLux FramePro: Incredible Photos at an Extreme Cost</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/tackling-chatgpt-sign-in-failures-solutions-and-steps/"><u>Tackling ChatGPT Sign-In Failures: Solutions and Steps</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/what-is-a-watermark-how-to-watermark-your-facebook-photosvideos-for-2024/"><u>What Is a Watermark? How to Watermark Your Facebook Photos/Videos for 2024</u></a></li>
 </ul></div>
 

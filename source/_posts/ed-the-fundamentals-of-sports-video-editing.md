@@ -1,7 +1,7 @@
 ---
 title: "[Updated] The Fundamentals of Sports Video Editing"
-date: 2024-08-28T09:41:03.499Z
-updated: 2024-08-29T09:41:03.499Z
+date: 2024-12-10T17:02:00.139Z
+updated: 2024-12-13T16:40:02.093Z
 tags:
   - ai video
   - ai youtube
@@ -50,6 +50,10 @@ While making a sports video, you might encounter two different types of content 
 
 On the other hand, a skills video is mostly made to demonstrate the skills of a player and is not focused on the game. In fact, most of the skills videos are made outside of a real game setting. For instance, if you have mastered a skill or would like to demonstrate your game-related actions, then you can make a skills video. Some of these videos are also tutorial game-plays to teach others about a particular skill that they can master.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=lhdUUVYMVQjzHXBh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Use Excellent Video Editor to Make a Sports Highlight Video
 
 If you want to come up with engaging and visually appealing highlight videos, then consider using a versatile video editor like **Filmora**. Equipped with several video editing tools, it will let you create a sports highlight video in no time. Since the tool has so many features, you can save your time in editing and come up with a new sports video in minutes.
@@ -57,8 +61,9 @@ If you want to come up with engaging and visually appealing highlight videos, th
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087484/7443" target="_top" id="2087484"><img src="//a.impactradius-go.com/display-ad/7443-2087484" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087484/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GU08CQVsZz0?si=V-SvPfzRsQysMS0e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 * Filmora is extremely easy to use and runs on all the leading Windows and macOS versions without any issue.
 * Using its inbuilt tools, you can clip out the most important events from a sports video or include them in your highlights.
 * There are also features to change the motion and pace of the video (like fast forward or slow motion).
@@ -72,9 +77,6 @@ If you want to come up with engaging and visually appealing highlight videos, th
 * Tons of features in one place (extremely easy to use)
 * Split-screen support to include multiple events in a highlight video
 
-<!-- affiliate ads begin -->
-<a href="https://sentrypc.7eer.net/c/5597632/398457/3022" target="_top" id="398457"><img src="//a.impactradius-go.com/display-ad/3022-398457" border="0" alt="www.sentrypc.com" width="980" height="120"/></a><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/398457/3022" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## How to Create a Sports Highlight Video with Filmora?
 
 With the help of [Filmora](https://tools.techidaily.com/wondershare/filmora/download/), anyone can create a sports video without even prior editing/designing experience. Firstly, you can install Filmora on your Windows or Mac by visiting its website and have the footage you wish to edit. Now, you can just follow these steps to work on your next sports highlight video.
@@ -87,9 +89,6 @@ To start with, just launch Filmora on your computer and add the video that you w
 
 ![Import Media File](https://images.wondershare.com/filmora/guide/import-media-file-to-filmora-1.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2027209/17108" target="_top" id="2027209"><img src="//a.impactradius-go.com/display-ad/17108-2027209" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2027209/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 #### Step 2: Edit the Sports Video
 
 In order to create a sports highlight video, the first thing that people do is trim any unwanted part. Once the video is loaded, you can view it on the timeline of the interface. Now, go to the timeline and get the trim tool to manually select the part of the video you wish to trim. After selecting the desired fragment, you can trim the clip or just delete it by clicking on their respective icons.
@@ -97,23 +96,24 @@ In order to create a sports highlight video, the first thing that people do is t
 ![Edit Sports Video](https://images.wondershare.com/filmora/article-images/edit-sports-video-1.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://estore.zonealarm.com/order/checkout.php?PRODS=38658749&QTY=1&AFFILIATE=108875&CART=1"><img src="https://sc1.checkpoint.com/sc1/za/images/boxes/pa_500.png" border="0">ZoneAlarm Pro Antivirus + Firewall NextGen</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ME5-sAQJVE4?si=ZfcvJSnhQevWtjI0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 In the same way, you can also split your video and make other changes in it. You can also include multiple videos together and include them in your timeline as well.
 
 If you are including multiple videos, then make sure they have the same dimensions and aspect ratio. For this, you can select the video, right-click on the timeline, and click on the crop icon. Now, select the same aspect ratio for the entire video to keep it uniform.
 
 ![Edit Sports Video](https://images.wondershare.com/filmora/article-images/edit-sports-video-2.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://shop.manycam.com/order/checkout.php?PRODS=17727588&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/mcaffbanner600x500.png" border="0"></a>
-<a href="https://shop.manycam.com/order/checkout.php?PRODS=17727588&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/Affiliates_300x250px_valentinesday.png" border="0"></a>
-<!-- affiliate ads end -->
 Most of the game highlights that we see have different speeds for various sections. That is, some actions would be fast-forwarded while some would be in slow motion. To apply this, simply select the section in the timeline, right-click, and go to the Speed and Duration settings. This will open a dedicated interface from where you can change the speed of the sports video.
 
 Apart from manually setting the speed, you can also take the assistance of the custom speed options that are available in the timeline tools.
 
 ![Edit Sports Video](https://images.wondershare.com/filmora/article-images/edit-sports-video-3.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LT4sdZgUvRQ?si=SvQD5FouEzu4UHpJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 #### Step 3: Make Advanced Edits in your Sports Video
 
@@ -158,22 +158,20 @@ I’m sure that after reading this guide, you would be able to come up with an i
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://cowinaudio.pxf.io/c/5597632/1116855/13794" target="_top" id="1116855"><img src="//a.impactradius-go.com/display-ad/13794-1116855" border="0" alt="" width="767" height="285"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1116855/13794" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/q4-YQ9Wjtfg?si=6afn1fydg_Wb9B8z" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -182,4 +180,20 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-activity-recording.techidaily.com/new-ultimate-recording-guide-for-sims-enthusiasts/"><u>[New] Ultimate Recording Guide for Sims Enthusiasts</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/updated-10-preferred-online-photo-background-swappers/"><u>[Updated] 10 Preferred Online Photo Background Swappers</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-2024-approved-ideal-thumbnails-for-maximum-clicks/"><u>[Updated] 2024 Approved Ideal Thumbnails for Maximum Clicks</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-2024-approved-pioneering-profitability-your-videos-vs-competitors-success-stories/"><u>[Updated] 2024 Approved Pioneering Profitability Your Videos Vs. Competitors' Success Stories</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-2024-approved-spice-up-viewers-innovative-cooking-channel-naming-tips/"><u>[Updated] 2024 Approved Spice Up Viewers Innovative Cooking Channel Naming Tips</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-djis-quadcopters-variants-basic-model-advanced-series-uhd-edition/"><u>[Updated] DJI's Quadcopters Variants Basic Model, Advanced Series, UHD Edition</u></a></li>
+<li><a href="https://article-helps.techidaily.com/updated-maximizing-inner-illumination-with-natures-glow-for-2024/"><u>[Updated] Maximizing Inner Illumination with Nature's Glow for 2024</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-video-creation-in-classroom-video-editing-tips-for-2024/"><u>[Updated] Video Creation in Classroom Video Editing Tips for 2024</u></a></li>
+<li><a href="https://hardware-reviews.techidaily.com/navigating-the-tech-world-tips-and-reviews-from-toms-hardware-specialists/"><u>Navigating the Tech World: Tips & Reviews From Tom's Hardware Specialists</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/pinnacle-5-iphone-apps-for-auditory-escapades-for-2024/"><u>Pinnacle 5 iPhone Apps for Auditory Escapades for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/um-screener-tech-perfect-for-youtube-videos/"><u>Premium Screener Tech Perfect for YouTube Videos</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/respectful-approach-to-enhancing-your-tiktok-presence-for-2024/"><u>Respectful Approach to Enhancing Your TikTok Presence for 2024</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/the-key-to-smooth-segments-crossfade-logic-pro-steps/"><u>The Key to Smooth Segments Crossfade Logic Pro Steps</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] No-Money-Down Mics  The Frugal Filmmaker's List\""
-date: 2024-12-01T16:26:10.147Z
-updated: 2024-12-07T16:09:24.949Z
+date: 2024-12-09T16:59:05.569Z
+updated: 2024-12-13T16:35:09.752Z
 tags:
   - ai video
   - ai youtube
@@ -49,10 +49,6 @@ As for keeping with your financial needs, we aren’t going to be looking at any
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/uV3vm805eX0?si=YSPcsFxBcJmoxLsU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **YouTube Microphones for Under $20**
 
 #### **BOYA BY-M1 - $16.99**
@@ -60,6 +56,10 @@ As for keeping with your financial needs, we aren’t going to be looking at any
 **The[BOYA BY-M1](https://www.amazon.com/BOYA-Microphone-Windscreen-Windshield-Smartphones/dp/B01M2VC8GF/) is a lavalier microphone (a hand-free mic that clips onto your clothing) that connects to smartphones, DSLR, computers, and other audio recorders.**
 
 ![boya-by-m1](https://images.wondershare.com/boya-by-m1.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HMuxjTCMX2E?si=ylRTMJuUstpjLsZc" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 **Pro**: As an omnidirectional condenser microphone, it will be able to pick up audio from 360 degrees, and with 20 feet (6 meters) of cable, you can have a significant range movement even if you are connected to the camera.
 
@@ -95,10 +95,6 @@ The BOYA BY-M1 is a terrific choice for YouTubers on a budget that is frequently
 
 ![samson-go-mic-portable-usb-condenser-microphone](https://images.wondershare.com/samson-go-mic-portable-usb-condenser-microphone.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/PUDdKOsEN74?si=tkZf-KVinjuwmgx9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 **Pro:** This microphone has both a cardioid and an omnidirectional mode. This means that you can choose to have your microphone focused more on the subject speaking by switching to cardio or switch to Omni-directional to capture audio from the entire surrounding.
 
 It is designed to be able to clip onto a flat surface such as your computer screen. This allows you to place the microphone on different levels to record.
@@ -121,10 +117,6 @@ The [TAKSTAR SGC](https://www.amazon.com/TAKSTAR-SGC-598-Interview-Microphone-Ca
 
 ![takstar-sgc-598](https://images.wondershare.com/takstar-sgc-598.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/bXmwwSmYqq4?si=Bb-eJfLnlpeeClyt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 **Pro:** The camera-mounted microphone has a shock-resistant design that reduces noise when the camera is moved. The cardioid microphone will be able to pick up audio in the direction it is pointed in, reducing noise capturing from behind the camera. This is a good microphone for vlogging or interviews.
 
 **Con:** The TAKSTAR SGC requires one AA battery, so you’ll have to remember to carry a backup every time you film.
@@ -132,6 +124,10 @@ The [TAKSTAR SGC](https://www.amazon.com/TAKSTAR-SGC-598-Interview-Microphone-Ca
 Limited to a vocal subject standing 4-5 feet away, any more and the microphone will be hard-pressed to pick up the audio without capturing a lot of surround audio.
 
 The design requires it to be mounted to the camera. If you want to separate it from the camera and still have it recorded, a bit of creativity is required to keep it standing.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GPk8_xpN_rA?si=YbAdgsjAKsCn_UsB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **YouTube Microphones for Under $100**
 
@@ -144,7 +140,7 @@ The [Behringer C-1U](https://www.amazon.com/Behringer-C-1U-BEHRINGER/dp/B001QXCY
 ![behringer-c-1u](https://images.wondershare.com/behringer-c-1u.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/S3Th6oa_isA?si=TTQ013BB9beUM4x6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=M69YSY0Mk_gsdU0Q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 **Pro:** This microphone has a solid metal build and has a good weight. It is quick and easy to set up and is a good microphone for anyone wanting a simple solution for better audio on YouTube.
@@ -171,6 +167,10 @@ The [Marantz Professional MPM-1000U](https://www.amazon.com/Marantz-Professional
 
 **Con**: May pick up extraneous noises if you are recording vocals while there are movements in your surrounding, but otherwise, this is an excellent microphone in its price range.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UCqHbpxQGP4?si=XGkajFHdqyoKNAFM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Final Thoughts**
 
 When looking for microphones under $100, the difference in audio quality is not going to be drastic. What you need to consider is how you are going to be using this piece of equipment.
@@ -190,7 +190,7 @@ If you want to find a video editing solution that empowers your imagination and 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/0Kr7Dpw0HuM?si=05wWDXdPgmC-oBBE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/T-ssCD10v2M?si=WVWGNayUiCAkMZzZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -214,20 +214,15 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-direct.techidaily.com/new-2024-approved-budget-enthusiasts-choices-the-right-gopro-add-ons-for-newbies/"><u>[New] 2024 Approved Budget Enthusiasts Choices The Right GoPro Add-Ons for Newbies</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/new-enhancing-your-youtube-projects-a-compreayer-of-visual-improvement/"><u>[New] Enhancing Your YouTube Projects A Compreayer of Visual Improvement</u></a></li>
-<li><a href="https://discord-videos.techidaily.com/new-in-2024-a-harmonious-link-spotify-with-discord/"><u>[New] In 2024, A Harmonious Link Spotify with Discord</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-2024-approved-charting-your-course-through-youtube-compliance/"><u>[Updated] 2024 Approved Charting Your Course Through YouTube Compliance</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-2024-approved-upgrade-video-experience-activate-av1-on-youtube/"><u>[Updated] 2024 Approved Upgrade Video Experience Activate AV1 on YouTube</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-optimizing-video-content-with-perfect-youtube-titles-for-2024/"><u>[Updated] Optimizing Video Content with Perfect YouTube Titles for 2024</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-the-ultimate-free-guide-to-youtube-ad-videos/"><u>[Updated] The Ultimate Free Guide to YouTube Ad Videos</u></a></li>
-<li><a href="https://games-able.techidaily.com/exclusive-guide-to-superior-xbox-capture-tech/"><u>Exclusive Guide to Superior Xbox Capture Tech</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/how-to-convert-avi-files-to-mp4-using-vlc-the-most-effective-method/"><u>How to Convert AVI Files to MP4 Using VLC: The Most Effective Method</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/in-2024-how-to-track-whatsapp-messages-on-oppo-a1-5g-without-them-knowing-drfone-by-drfone-virtual-android/"><u>In 2024, How to Track WhatsApp Messages on Oppo A1 5G Without Them Knowing? | Dr.fone</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/24-no-budget-maximum-quality-8-prime-editors-for-youtubers/"><u>In 2024, No Budget, Maximum Quality 8 Prime Editors for YouTubers</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/ios-174-update-brings-podcast-transcript-features-latest-emoji-additions-and-major-modifications-to-the-european-apple-app-store-tech-news/"><u>IOS 17.4 Update Brings Podcast Transcript Features, Latest Emoji Additions & Major Modifications to the European Apple App Store | Tech News</u></a></li>
-<li><a href="https://review-topics.techidaily.com/issues-playing-mkv-video-on-edge-40-pro-by-aiseesoft-video-converter-play-mkv-on-android/"><u>Issues playing MKV video on Edge 40 Pro</u></a></li>
-<li><a href="https://hardware-tips.techidaily.com/spectacular-display-and-unbeatable-deal-the-thin-and-light-notebook-you-cant-miss-exclusive-sale-alert-techreviewz/"><u>Spectacular Display & Unbeatable Deal: The Thin-and-Light Notebook You Can't Miss - Exclusive Sale Alert! | TechReviewZ</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ding-your-videos-appeal-youtube-thumbnail-resizing-for-2024/"><u>Upgrading Your Video's Appeal YouTube Thumbnail Resizing for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-2024-approved-boost-your-videos-reach-prime-time-strategy/"><u>[Updated] 2024 Approved Boost Your Video's Reach Prime Time Strategy</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-2024-approved-ensuring-authenticity-as-you-aspire-for-one-million-video-watches/"><u>[Updated] 2024 Approved Ensuring Authenticity as You Aspire for One Million Video Watches</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-from-ideas-to-action-how-to-transform-photos-into-engaging-mobile-videos-for-2024/"><u>[Updated] From Ideas to Action How to Transform Photos Into Engaging Mobile Videos for 2024</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-in-2024-preserve-your-memories-android-and-mac-snap-extraction-tips/"><u>[Updated] In 2024, Preserve Your Memories Android & Mac Snap Extraction Tips</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-ultimate-guide-to-cheap-subtitles-and-downloaders/"><u>[Updated] Ultimate Guide to Cheap Subtitles & Downloaders</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/film-resource-highlights-where-to-start-your-search/"><u>Free Film Resource Highlights Where to Start Your Search</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/l-lens-local-tales-how-to-transform-your-travel-experiences-into-content-for-2024/"><u>Global Lens, Local Tales How to Transform Your Travel Experiences Into Content for 2024</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-how-to-fake-snapchat-location-on-htc-u23-pro-drfone-by-drfone-virtual-android/"><u>In 2024, How to Fake Snapchat Location on HTC U23 Pro | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/list-of-pokemon-go-joysticks-on-oneplus-ace-3-drfone-by-drfone-virtual-android/"><u>List of Pokémon Go Joysticks On OnePlus Ace 3 | Dr.fone</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/stanza-squadron-vs-artificial-intelligence-offline-alpaca-edition/"><u>Stanza Squadron vs Artificial Intelligence - Offline Alpaca Edition</u></a></li>
 </ul></div>
 

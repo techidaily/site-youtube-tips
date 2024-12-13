@@ -1,7 +1,7 @@
 ---
 title: "\"[New] In 2024, Handling Haters  Strategies for Content Creators\""
-date: 2024-08-28T09:39:47.480Z
-updated: 2024-08-29T09:39:47.480Z
+date: 2024-12-06T16:09:02.209Z
+updated: 2024-12-13T16:16:35.128Z
 tags:
   - ai video
   - ai youtube
@@ -25,6 +25,10 @@ thumbnail: https://thmb.techidaily.com/9b1d54d7ae73d83b91bdfdadbf959717f77a8b021
  Mar 27, 2024• Proven solutions
 
  If you have put a lot of work into your YouTube videos then it only makes sense that you have an emotional investment in them. When someone leaves a mean, negative comment on one of your videos it will likely affect you. It may make you angry, hurt your feelings, or just leave you baffled over how someone could come away from your video with out-of-the-blue opinion the hater has posted. ‘Do not feed the trolls’ is a mantra that can be hard to abide by. This article will explain why you should not engage trolls and how to talk to them if you find yourself doing it anyways.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LdVT_-3gESA?si=_HfjpbUEHSRKTXjt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## How to Deal with Negative Comments on YouTube
 
@@ -54,20 +58,21 @@ thumbnail: https://thmb.techidaily.com/9b1d54d7ae73d83b91bdfdadbf959717f77a8b021
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gMS5pm0SQlQ?si=gasOo6p2agrVlIb7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -76,8 +81,23 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-tips.techidaily.com/raming-perfection-a-filmmakers-guide-to-cinematic-youtube-videos/"><u>[New] Framing Perfection A Filmmaker's Guide to Cinematic YouTube Videos</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-in-2024-curating-relevant-skills-list/"><u>[New] In 2024, Curating Relevant Skills List</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-from-buffer-to-broadcast-learn-how-to-convert-your-youtube-viewing-into-a-screenshot-for-free/"><u>[New] In 2024, From Buffer to Broadcast Learn How to Convert Your YouTube Viewing Into a Screenshot for Free</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-in-2024-streamlining-video-production-with-clear-sound-effects/"><u>[New] In 2024, Streamlining Video Production with Clear Sound Effects</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-curating-a-musical-portfolio-in-youtube-for-2024/"><u>[Updated] Curating a Musical Portfolio in Youtube for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-editing-elegance-into-news-summations-for-2024/"><u>[Updated] Editing Elegance Into News Summations for 2024</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/updated-in-2024-decreasing-decibels-a-comprehensive-guide-to-audio-fades-in-adobe-premiere-pro/"><u>[Updated] In 2024, Decreasing Decibels A Comprehensive Guide to Audio Fades in Adobe Premiere Pro</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-in-2024-leveraging-engagement-for-higher-facebook-profile-visibility/"><u>[Updated] In 2024, Leveraging Engagement for Higher Facebook Profile Visibility</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-top-voice-changer-tools-for-youtubers-find-the-best-option-for-your-videos-for-2024/"><u>[Updated] Top Voice Changer Tools for YouTubers Find the Best Option for Your Videos for 2024</u></a></li>
+<li><a href="https://article-helps.techidaily.com/2024-approved-unbox-the-latest-tomtom-bandit-camera/"><u>2024 Approved Unbox the Latest TomTom Bandit Camera</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/constructing-the-ideal-setup-for-advanced-4k-video-production-for-2024/"><u>Constructing the Ideal Setup for Advanced 4K Video Production for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ing-and-practicing-with-creative-commons-licenses-for-2024/"><u>Decoding and Practicing with Creative Commons Licenses for 2024</u></a></li>
+<li><a href="https://location-social.techidaily.com/how-to-leave-a-life360-group-on-apple-iphone-xs-without-anyone-knowing-drfone-by-drfone-virtual-ios/"><u>How To Leave a Life360 Group On Apple iPhone XS Without Anyone Knowing? | Dr.fone</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-how-to-unlock-vivo-s17t-pattern-lock-if-forgotten-6-ways-by-drfone-android/"><u>In 2024, How to Unlock Vivo S17t Pattern Lock if Forgotten? 6 Ways</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/24-the-ultimate-guide-to-youtube-live-thumbnail/"><u>In 2024, The Ultimate Guide to YouTube Live Thumbnail</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/sim-unlock-poco-x6-phones-without-code-2-ways-to-remove-android-sim-lock-by-drfone-android/"><u>Sim Unlock Poco X6 Phones without Code 2 Ways to Remove Android Sim Lock</u></a></li>
+</ul></div>
 
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2095385/26400" target="_top" id="2095385"><img src="//a.impactradius-go.com/display-ad/26400-2095385" border="0" alt="" width="1024" height="1024"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2095385/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
