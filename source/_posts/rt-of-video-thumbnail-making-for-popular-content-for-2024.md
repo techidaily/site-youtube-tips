@@ -1,7 +1,7 @@
 ---
 title: "The Art of Video Thumbnail Making for Popular Content for 2024"
-date: 2024-12-12T16:59:59.223Z
-updated: 2024-12-13T16:43:53.052Z
+date: 2024-12-17T18:34:08.186Z
+updated: 2024-12-22T19:13:54.340Z
 tags:
   - ai video
   - ai youtube
@@ -48,7 +48,7 @@ Here are 5 easy tips for creating thumbnails that get views.
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qObsqoJB9LI?si=ppqxfXzP0UL4J6Tp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/sXLLPY11of0?si=-3YNnpnO0wbc0K_-" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 1\. Have a Consistent Layout
@@ -60,7 +60,7 @@ An example of a standard layout could be you in the middle of the screen wearing
 ![Consistent Layout](https://images.wondershare.com/filmora/article-images/consistent-layout.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/NTQGoOOiJzs?si=zbZwflEfXgBY3qbs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ME5-sAQJVE4?si=ZfcvJSnhQevWtjI0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **2\. Use Your Face**
@@ -76,7 +76,7 @@ Anybody can take a screenshot of themselves in their video and use it as a thumb
 Make sure the images you choose are relevant to the topic of your video.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/KKFdFHaVIJg?si=x2vLw7ty3FtHX-9T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Jng92DT1n_Y?si=EdMRoNAFi0Q6mP7G" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 4\. Make Your Text Huge
@@ -86,7 +86,7 @@ If you use text in your thumbnail (you don’t have to) then it should be to add
 Thumbnails might look large while you’re putting them together in your image editor, but when they’re displayed on YouTube they’re a lot smaller. That goes double if a viewer is watching on their phone. So, make sure that any text you use is large enough that it can be read easily on small screens.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/it8VkxDUdAc?si=ef6VZWR7kW4P9ikh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GPk8_xpN_rA?si=YbAdgsjAKsCn_UsB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 5\. Keep it Clutter-Free
@@ -102,7 +102,7 @@ Use these tips to make video thumbnails for YouTube, and tell us what kind of re
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/xIP8ktrmOdg?si=zRnjbGzM6PDx2jCq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LI9nKlbhnw8?si=uUXFVbuEqXtFHHv0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -126,20 +126,21 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://remote-screen-capture.techidaily.com/new-2024-approved-comprehensive-guide-to-valheim-flora/"><u>[New] 2024 Approved Comprehensive Guide to Valheim Flora</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/024-approved-digital-footprint-and-interactive-iconography-honors/"><u>[New] 2024 Approved Digital Footprint and Interactive Iconography Honors</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ow-many-viewer-thumbs-up-equals-money-youtube-tips-for-2024/"><u>[New] How Many Viewer Thumbs Up Equals Money? YouTube Tips for 2024</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/n-2024-the-newcomers-playbook-for-youtube-success-setup-and-revenue-generation/"><u>[New] In 2024, The Newcomer's Playbook for Youtube Success Setup & Revenue Generation</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-2024-approved-boosting-youtube-interaction-with-emojis/"><u>[Updated] 2024 Approved Boosting YouTube Interaction with Emojis</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-2024-approved-buzzing-beats-leading-music-distortion-apps/"><u>[Updated] 2024 Approved Buzzing Beats Leading Music Distortion Apps</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-assessing-the-best-platform-for-individual-use-tiktok-vs-shorts-for-2024/"><u>[Updated] Assessing the Best Platform for Individual Use TikTok vs Shorts for 2024</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-get-free-youtube-music-anytime-with-these-high-performing-splitters-for-2024/"><u>[Updated] Get Free YouTube Music Anytime With These High-Performing Splitters for 2024</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/updated-seeking-freebies-learn-instagrams-secret-for-additional-filters-for-2024/"><u>[Updated] Seeking Freebies? Learn Instagram’s Secret for Additional Filters for 2024</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-the-filmmakers-guide-to-selecting-excellent-lenses/"><u>[Updated] The Filmmaker's Guide to Selecting Excellent Lenses</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-unlocking-xboxs-video-call-potential-with-zoom/"><u>[Updated] Unlocking Xbox's Video Call Potential with Zoom</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/1725289304651-2024dvd-dvd/"><u>「ダイジェスト版! 2024年最新のDVDコピー手転用テクニック - DVDコピーガード解除完全ガイド」</u></a></li>
-<li><a href="https://facebook.techidaily.com/10-tools-that-simplify-your-content-publishing-cycle/"><u>10 Tools That Simplify Your Content Publishing Cycle</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/in-2024-the-complete-guide-to-adding-video-filter-magic-to-zoom-meetings/"><u>In 2024, The Complete Guide to Adding Video Filter Magic to Zoom Meetings</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/the-ultimate-guide-to-get-the-rare-candy-on-pokemon-go-fire-red-on-honor-x50iplus-drfone-by-drfone-virtual-android/"><u>The Ultimate Guide to Get the Rare Candy on Pokemon Go Fire Red On Honor X50i+ | Dr.fone</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/024-approved-beauty-vlogs-from-basics-to-brilliance-launching-a-youtube-channel/"><u>[New] 2024 Approved Beauty Vlogs From Basics to Brilliance Launching a YouTube Channel</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/024-approved-cost-effective-growth-tactic-for-youtube-fanbases/"><u>[New] 2024 Approved Cost-Effective Growth Tactic for YouTube Fanbases</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/new-2024-approved-immediate-cessation-of-recordings-in-qt-app/"><u>[New] 2024 Approved Immediate Cessation of Recordings in QT App</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/024-approved-score-high-on-youtube-with-these-ranking-factors/"><u>[New] 2024 Approved Score High on YouTube with These Ranking Factors</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/024-approved-step-into-the-world-of-youtube-transcription-a-comprehensive-no-fee-guide/"><u>[New] 2024 Approved Step Into the World of YouTube Transcription A Comprehensive No-Fee Guide</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/024-approved-streamlining-youtube-content-onto-insta-feed/"><u>[New] 2024 Approved Streamlining YouTube Content Onto Insta Feed</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/new-the-8-best-authentic-youtube-growth-tactics/"><u>[New] The 8 Best Authentic Youtube Growth Tactics</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-unraveling-youtubes-monetization-policy-overhaul/"><u>[Updated] 2024 Approved Unraveling YouTube’s Monetization Policy Overhaul</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/approved-discover-these-top-10-thriving-youtube-communities/"><u>2024 Approved Discover These Top 10 Thriving YouTube Communities</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/approved-double-delight-endless-looping-of-youtube-videos-for-tvs/"><u>2024 Approved Double Delight Endless Looping of YouTube Videos for TVs</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/-snippet-analysis-for-beginners/"><u>Brief Snippet Analysis for Beginners</u></a></li>
+<li><a href="https://win-premium.techidaily.com/download-the-latest-hip-hop-tracks-and-playlists-free-mp3flac-conversions/"><u>Download the Latest Hip Hop Tracks & Playlists - Free MP3/FLAC Conversions</u></a></li>
+<li><a href="https://video-content-creator.techidaily.com/new-stop-motion-made-easy-best-apps-for-mobile-animation-for-2024/"><u>New Stop Motion Made Easy Best Apps for Mobile Animation for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/-10-sound-enhancers-pc-mac-mobile-devices/"><u>Prime 10 Sound Enhancers PC, Mac, Mobile Devices</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/top-secure-video-streaming-apps-1-to-8-2023-edition-for-2024/"><u>Top Secure Video Streaming Apps #1 to #8, 2023 Edition for 2024</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/1722969955083-update-to-newest-epson-wf-7710-drivers-compatible-with-windows-os-download-here/"><u>Update to Newest Epson WF-7710 Drivers – Compatible with Windows OS: Download Here!</u></a></li>
 </ul></div>
 

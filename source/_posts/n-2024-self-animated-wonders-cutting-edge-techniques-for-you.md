@@ -1,7 +1,7 @@
 ---
 title: "\"[New] In 2024, Self-Animated Wonders  Cutting Edge Techniques for You\""
-date: 2024-12-11T16:17:08.474Z
-updated: 2024-12-13T16:40:59.010Z
+date: 2024-12-17T19:25:19.520Z
+updated: 2024-12-22T17:11:15.078Z
 tags:
   - ai video
   - ai youtube
@@ -52,7 +52,7 @@ In this post, we’re going to kick things up a bit. Here is a list of places wh
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fqBKCGAKHmA?si=OkoaI17nE5qNqTHj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_SbYznUy_zY?si=ThBkP934r3mizi48" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **[Mt. Mograph](https://www.youtube.com/channel/UCSUSgx9qc%5FNydrOL59xbJIA)**
@@ -60,7 +60,7 @@ In this post, we’re going to kick things up a bit. Here is a list of places wh
 On this YouTube channel, motion graphics specialist Matt offers free animation tutorials using a variety of programs including Adobe After Effects and Cinema 4D. His lessons are for a range of skill levels, from beginner to advanced. If you are just starting out then Mt.Mograph is a great resource.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/xIP8ktrmOdg?si=zRnjbGzM6PDx2jCq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9hsPbiic0O8?si=58mZ2Cu6wicQfsUP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **[Richard Harrington on Lynda](https://www.lynda.com/Rich-Harrington/120-1.html)**
@@ -70,7 +70,7 @@ Lynda isn’t free, but the 10-day free trial period is definitely long enough f
 What’s great about this course is that it assumes you have no animation experience, and it walks you through the main thing a lot of YouTubers want to learn animation for – creating an animated logo.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/nWu29cqFjZA?si=TNZyCbPq68PQ0JIb" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/xtylXDY9YfA?si=VonzSiDFGCpJm2uC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **[Bloop Animation](https://www.bloopanimation.com/)**
@@ -78,7 +78,7 @@ What’s great about this course is that it assumes you have no animation experi
  Most of the video animation courses on this site are paid, but they have a lot of cool free tutorials as well. The focus is more on animating figures/cartoons than video effects, but if you have any interest in animation more generally then this is a great place to start learning. They even have a free ebook you can download which is targeted at beginners.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/FATJWpNYmio?si=72ugPTb3vJXz6cAM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-yZKNLxj3po?si=-RbF6nCJEVlHWP-M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **[Video Copilot](http://www.videocopilot.net/)**
@@ -88,7 +88,7 @@ This site has a huge number of free After Effects tutorials. There are basic int
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qbuund2HKOQ?si=NaGHqIrx8hSL7gWV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1dR4tF3VgyU?si=AJipgqZsNNxsRsBW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -112,19 +112,19 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-helps.techidaily.com/new-2024-approved-tale-constructing-the-basic-blueprint/"><u>[New] 2024 Approved Tale Constructing The Basic Blueprint</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/n-2024-maximizing-profits-the-guide-to-gainful-youtube-endeavors-sans-ads/"><u>[New] In 2024, Maximizing Profits The Guide to Gainful YouTube Endeavors Sans Ads</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/n-2024-transform-your-videos-presence-with-youtube-thumbnail-tailoring/"><u>[New] In 2024, Transform Your Video's Presence with YouTube Thumbnail Tailoring</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-2024-approved-captivate-audiences-with-perfectly-tailored-youtube-descriptions/"><u>[Updated] 2024 Approved Captivate Audiences with Perfectly Tailored Youtube Descriptions</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-2024-approved-stock-savvy-streams-discover-the-top-video-resources/"><u>[Updated] 2024 Approved Stock Savvy Streams Discover the Top Video Resources</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/updated-in-2024-unveiling-the-techniques-behind-capturing-whatsapp-conversations/"><u>[Updated] In 2024, Unveiling the Techniques Behind Capturing WhatsApp Conversations</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/updated-the-future-of-advertising-on-youtube-shorts/"><u>[Updated] The Future of Advertising on YouTube Shorts</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/tial-film-techniques-on-youtube-by-future-visionaries/"><u>Essential Film Techniques on YouTube by Future Visionaries</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/from-hobbyist-to-host-mac-sports-channel-creation/"><u>From Hobbyist to Host Mac Sports Channel Creation</u></a></li>
-<li><a href="https://ios-unlock.techidaily.com/in-2024-complete-guide-for-apple-iphone-xs-lock-screen-by-drfone-ios/"><u>In 2024, Complete Guide For Apple iPhone XS Lock Screen</u></a></li>
-<li><a href="https://sound-issues.techidaily.com/1723016117161-solution-recording-and-playing-games-audio-on-discord-now-possible/"><u>Solution: Recording and Playing Games Audio on Discord, Now Possible!</u></a></li>
-<li><a href="https://data-wizards.techidaily.com/solving-common-issues-with-h265-videos/"><u>Solving Common Issues with H.265 Videos</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/gly-side-of-digital-video-profits-for-2024/"><u>The Ugly Side of Digital Video Profits for 2024</u></a></li>
-<li><a href="https://fake-location.techidaily.com/what-is-geo-blocking-and-how-to-bypass-it-on-honor-magic5-ultimate-drfone-by-drfone-virtual-android/"><u>What is Geo-Blocking and How to Bypass it On Honor Magic5 Ultimate? | Dr.fone</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/024-approved-crafting-visual-wonders-home-made-effects-demystified/"><u>[New] 2024 Approved Crafting Visual Wonders Home-Made Effects Demystified</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/024-approved-elevate-visibility-comprehensive-guide-to-video-marketing-titles/"><u>[New] 2024 Approved Elevate Visibility Comprehensive Guide to Video Marketing Titles</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/024-approved-express-thumbnails-for-epic-battle-royale/"><u>[New] 2024 Approved Express Thumbnails for Epic Battle Royale</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/024-approved-from-raw-footage-to-polished-perfection-an-essential-youtube-video-editing-guide/"><u>[New] 2024 Approved From Raw Footage to Polished Perfection An Essential Youtube Video Editing Guide</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/024-approved-pivoting-with-purpose-rotate-and-rethink-with-youtubes-latest-tools/"><u>[New] 2024 Approved Pivoting with Purpose Rotate and Rethink with YouTube's Latest Tools</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-in-2024-techniques-for-finding-no-cost-image-frame-films/"><u>[New] In 2024, Techniques for Finding No-Cost Image Frame Films</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/updated-clearing-up-audio-in-skype-conferences/"><u>[Updated] Clearing Up Audio in Skype Conferences</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-leveraging-slug-lines-for-content-engagement/"><u>[Updated] Leveraging Slug Lines for Content Engagement</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-read-this-guide-to-find-a-reliable-alternative-to-fake-gps-on-itel-a70-drfone-by-drfone-virtual-android/"><u>In 2024, Read This Guide to Find a Reliable Alternative to Fake GPS On Itel A70 | Dr.fone</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/mastering-the-mystique-of-moonlit-portraits-for-2024/"><u>Mastering the Mystique of Moonlit Portraits for 2024</u></a></li>
+<li><a href="https://video-capture.techidaily.com/premier-short-frame-gatherer-top-lapses-for-2024/"><u>Premier Short Frame Gatherer - Top Lapses for 2024</u></a></li>
+<li><a href="https://win-able.techidaily.com/resolving-stuttering-issues-in-fallout-76-a-comprehensive-guide/"><u>Resolving Stuttering Issues in Fallout 76 - A Comprehensive Guide</u></a></li>
+<li><a href="https://article-posts.techidaily.com/secure-and-speedy-transfer-of-big-video-files-between-ios-and-os-x/"><u>Secure and Speedy Transfer of Big Video Files Between iOS & OS X</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/-dslr-cameras-enhancing-real-time-online-interactions/"><u>Top 7 DSLR Cameras Enhancing Real-Time Online Interactions</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Unlocking Free Content Creation  Blending Text & Video\""
-date: 2024-08-28T09:34:04.453Z
-updated: 2024-08-29T09:34:04.453Z
+date: 2024-12-18T20:12:26.831Z
+updated: 2024-12-22T17:57:13.807Z
 tags:
   - ai video
   - ai youtube
@@ -28,6 +28,10 @@ It may be challenging to capture the attention of your audience if the video ope
 
 Luckily, video editing and presentation software products offer the tools you will need to combine video and text. In this article, we are going to show you how to add a video to text in PowerPoint and Filmora.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/May-pLCUkEA?si=PGlcFZAlsp3S3beI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 1: How to Add Video to Text for Free with PowerPoint?
 
 An effective PowerPoint presentation should contain proportionate amounts of textual and visual elements. Using too many images, videos or animations can make following a presentation difficult, just as too much text can render a presentation too static.
@@ -40,6 +44,10 @@ Head over to the Insert tab, select Rectangle from the Shapes menu, and create a
 
 ![Add video to text - Powerpoint- insert shape](https://images.wondershare.com/filmora/article-images/insert-rectangle-shape.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/h5uImbOWmTg?si=z4kP-R0QbXbBAJTa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 The next step you will have to take is to create the cut-out of the text within the rectangle. Select both the text and shape you placed in the background before clicking on the Format tab that is located near the end of PowerPoint’s ribbon.
 
 Find the Insert Shape option and choose Subtract from the Merge Shapes drop-down menu. The shape of the text in the textbox will be applied to the object in the background, which enables you to add a video to that text.
@@ -50,11 +58,19 @@ Click on the Insert tab, and then choose the Video option from the Media menu. Y
 
 You can then fine-tune the video playback settings from the Playback tab. Preview the results before you move on to the next slide in your presentation, and make necessary adjustments if you don’t like how the video merged with the text.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vEYkX2NJgZw?si=IaHqlqJcYipwUOht" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 2: Adding Video to Text in Filmora
 
 Besides presentation software, you can also use video editing software products to add a video to text. Filmora lets you add a video to text in just a few simple steps. You can first make a text video with animation first, and then use the picture in picture feature to add the video to text. Here are the detailed information about how to add a video to text in Filmora.
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/xtylXDY9YfA?si=VonzSiDFGCpJm2uC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 You should start by creating a new project in Filmora and importing the video you want to add to the text into the project. Click on the Titles tab, and choose the title that matches the visual style of your project.
 
@@ -82,20 +98,21 @@ Merging text with video is equally easy in PowerPoint and Filmora, so you just h
 
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/C3cJe7Wgn6I?si=EckDFML-VJ_2sYz8" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Liza Brown
 
 Liza Brown is a writer and a lover of all things video.
 
 Follow @Liza Brown
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -104,8 +121,26 @@ Follow @Liza Brown
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://program-issues.techidaily.com/fixed-cyberpunk-2077-lag-and-stuttering/"><u>[Fixed] Cyberpunk 2077 Lag and Stuttering</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/024-approved-understanding-the-legality-of-online-video-recordings/"><u>[New] 2024 Approved Understanding the Legality of Online Video Recordings</u></a></li>
+<li><a href="https://extra-information.techidaily.com/new-comprehensive-fs-view-strategies-for-premiere-pro/"><u>[New] Comprehensive FS View Strategies for Premiere Pro</u></a></li>
+<li><a href="https://fox-access.techidaily.com/new-instant-viral-potential-learn-kinemaster-memes-for-2024/"><u>[New] Instant Viral Potential Learn KineMaster Memes for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ourney-through-virtual-realms-on-youtubes-channel/"><u>[New] Journey Through Virtual Realms on YouTube's Channel</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/new-selecting-premium-microphones-for-ultra-hd-videography/"><u>[New] Selecting Premium Microphones for Ultra-HD Videography</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/hield-yourself-online-a-step-by-step-guide-for-smoothing-images-for-2024/"><u>[New] Shield Yourself Online A Step-by-Step Guide for Smoothing Images for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-2024-approved-effortless-sound-transformation-from-youtube-to-wav-format/"><u>[Updated] 2024 Approved Effortless Sound Transformation From YouTube to WAV Format</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-2024-approved-imageslice-cutter/"><u>[Updated] 2024 Approved ImageSlice Cutter</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-in-2024-mastering-adsense-on-youtube-a-beginners-guide/"><u>[Updated] In 2024, Mastering AdSense on YouTube A Beginner's Guide</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-navigate-to-noteworthy-youtube-commentaries/"><u>[Updated] Navigate to Noteworthy YouTube Commentaries</u></a></li>
+<li><a href="https://article-files.techidaily.com/2024-approved-navigating-image-purification-avoiding-obscuring-elements/"><u>2024 Approved Navigating Image Purification Avoiding Obscuring Elements</u></a></li>
+<li><a href="https://discover-comparisons.techidaily.com/demystifying-memory-dump-events-uncover-the-reasons-behind-them-a-guide-by-yl-software-experts/"><u>Demystifying Memory Dump Events: Uncover the Reasons Behind Them - A Guide by YL Software Experts</u></a></li>
+<li><a href="https://win-answers.techidaily.com/effective-solutions-for-the-persistent-black-screen-problem-in-rainbow-six-siege-pc/"><u>Effective Solutions for the Persistent Black Screen Problem in Rainbow Six Siege (PC)</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/24-laws-governing-recording-youtube-live-streams/"><u>In 2024, Laws Governing Recording YouTube Live Streams</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ng-youtubes-harmony-to-imovie-clips-effortlessly-for-2024/"><u>Linking Youtube's Harmony to iMovie Clips Effortlessly for 2024</u></a></li>
+<li><a href="https://discover-cloud.techidaily.com/redonner-vie-a-votre-systeme-windows-restauration-sur-un-nouveau-disque-dur-en-2-etapes/"><u>Redonner Vie À Votre Système Windows : Restauration Sur Un Nouveau Disque Dur en 2 Étapes</u></a></li>
+<li><a href="https://win-answers.techidaily.com/silence-no-more-effective-solutions-for-fallout-4-audio-problems-on-pc/"><u>Silence No More: Effective Solutions for Fallout 4 Audio Problems on PC</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/top-10-telegram-spy-tools-on-vivo-s18e-for-parents-drfone-by-drfone-virtual-android/"><u>Top 10 Telegram Spy Tools On Vivo S18e for Parents | Dr.fone</u></a></li>
+</ul></div>
 
-
-<!-- affiliate ads begin -->
-<a href="https://turbotech.pxf.io/c/5597632/1450763/17212" target="_top" id="1450763"><img src="//a.impactradius-go.com/display-ad/17212-1450763" border="0" alt="" width="2560" height="1440"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1450763/17212" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->

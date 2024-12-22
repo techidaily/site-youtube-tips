@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  How to Use Google Trends to Come up with Video Ideas [Easy Guide]\""
-date: 2024-12-07T16:57:56.393Z
-updated: 2024-12-13T16:08:59.875Z
+date: 2024-12-16T20:21:47.192Z
+updated: 2024-12-22T17:58:16.321Z
 tags:
   - ai video
   - ai youtube
@@ -39,13 +39,13 @@ Google Trends is a completely free tool you can use to determine what’s trendi
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qmQjRcnaq9g?si=jadcGtXemUAlKOTa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Part 1: Seeing The Big Picture
 
 ![Google Trends YouTube Ideas](https://images.wondershare.com/filmora/article-images/how-to-use-google-trends-to-come-up-with-video-seeing-big-picture.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/nlwr9LjJ-ng?si=I6UNAtfBkY2FTceu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 _You’ll need to be signed into your Google account to use Google Trends._
 
@@ -54,10 +54,6 @@ Start off at [trends.google.com](https://trends.google.com/trends/) and you’ll
 Unless you do news or political commentary on your channel these probably aren’t topics you want to cover, but if you like to insert some topical references into your other videos then it’s still good to be aware of these things.
 
 To get information more relevant to your channel you’re going to have to do some filtering.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/uzb-0C0xUYA?si=F4MPhdVqyVgx7_8X" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Part 2: Getting Results That Matter to You
 
@@ -68,6 +64,10 @@ Then click from 'Daily Search Trends' to 'Realtime Search Trends'.
 On top you will see two drop-down menus, one is for the category and one is for location.
 
 ![Google Trends Video Ideas](https://images.wondershare.com/filmora/article-images/google-trends-video-ideas.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kiW7sLvL65k?si=IHSeRFsYCrfqpn2o" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Under **All categories** select the general theme your channel falls under.
 
@@ -84,7 +84,7 @@ For example, if you have a gaming channel and you’re looking for a non-gamepla
 ![Google Trends Category YouTube Video Ideas](https://images.wondershare.com/filmora/article-images/google-trends-categories.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/XS1nQCe95LU?si=A2dhdFkSAI61_nKA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/xIP8ktrmOdg?si=zRnjbGzM6PDx2jCq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 The first two happen to be about gaming. If you, as a gamer, had any strong reaction to either of these topics – whether it’s that you feel like you’re knowledgeable about them, or that you’re excited by something that’s coming up, or that something made you groan – then that would be a sign that you should make a video. Capitalizing on a trend while also covering a topic you have a lot to say about is always a good move.
@@ -102,6 +102,10 @@ A [keyword is a word or short phrase](https://www.filmora.io/community-blog/the-
 Once you have a keyword in mind, type it into the Explore bar at the top of your page in Google Trends.
 
 ![Google Trends Keywords YouTube Video](https://images.wondershare.com/filmora/article-images/explore-topic-in-google-trends.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aRMCbJxLuwE?si=E5sfJvoqkv1qCMWz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 What happens after you click **enter** is pretty much magic. Say I want to make a video on how to use Filmora. The first thing I’ll type into that Explore bar is ‘Filmora’.
 
@@ -125,6 +129,10 @@ Although, when you do a comparison like this you should also go to YouTube and s
 
 ![YouTube search Filmora Keyword](https://images.wondershare.com/filmora/article-images/google-trends-youtube-keyword-search.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0dOfcihxjiw?si=_fkp1S1Uw0N1dp6b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 _If my view of YouTube looks different from yours it’s because I’m using the [VidIQ plugin for Chrome](https://chrome.google.com/webstore/detail/vidiq-vision-for-youtube/pachckjkecffpdphbpmfolblodfkgbhl?hl=en). It’s free and it gives you all kinds of extra info about videos and channels._
 
 The second-highest ranked result is only 2 months old and isn’t from a huge channel. Although there is competition for this keyword, ranking for it is not impossible. It also helps that software reviews are a topic where people will always be looking for the latest information/newest videos.
@@ -141,15 +149,7 @@ As one of the most widely used video editing software among YouTubers, Filmora p
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/lCpzYpVPIZA?si=hNte-mPRIzjvqpRy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fHWdQw1gRyI?si=ve9wZnPupiooLThG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -172,24 +172,21 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-tips.techidaily.com/024-approved-fraudulent-fronts-navigating-the-minefield-of-fake-youtube-viewers/"><u>[New] 2024 Approved Fraudulent Fronts Navigating the Minefield of Fake YouTube Viewers</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/new-2024-approved-how-to-send-large-video-files-from-iphone-to-iphonepcmac/"><u>[New] 2024 Approved How to Send Large Video Files From iPhone to iPhone/PC/Mac</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/024-approved-mastering-the-art-of-using-cc-copyrights-wisely/"><u>[New] 2024 Approved Mastering the Art of Using CC Copyrights Wisely</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/n-2024-minecraft-branding-resources-for-youtubers/"><u>[New] In 2024, Minecraft Branding Resources for YouTubers</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/new-snapquarter-testimony-for-2024/"><u>[New] SnapQuarter Testimony for 2024</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/new-tiny-feature-plot-outline/"><u>[New] Tiny Feature Plot Outline</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-2024-approved-the-best-free-video-editing-software-for-youtube-top-8-reviews/"><u>[Updated] 2024 Approved The Best Free Video Editing Software for YouTube (Top 8 Reviews)</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/updated-in-2024-how-to-transcribe-a-youtube-video-for-free/"><u>[Updated] In 2024, How to Transcribe a YouTube Video for FREE</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ed-mastering-the-market-essential-youtube-finance-channels/"><u>[Updated] Mastering the Market Essential YouTube Finance Channels</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/approved-daily-digital-dynasty-ranking-the-top-10-youtube-videos/"><u>2024 Approved Daily Digital Dynasty Ranking the Top 10 YouTube Videos</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/2024-approved-tweeting-with-videos-a-quick-tutorial/"><u>2024 Approved Tweeting with Videos A Quick Tutorial</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/-brief-subscribe-boost-your-content-viewing/"><u>Can a Brief Subscribe Boost Your Content Viewing?</u></a></li>
-<li><a href="https://android-location.techidaily.com/getting-the-pokemon-go-gps-signal-not-found-11-error-in-oppo-a38-drfone-by-drfone-virtual/"><u>Getting the Pokemon Go GPS Signal Not Found 11 Error in Oppo A38 | Dr.fone</u></a></li>
-<li><a href="https://data-safeguard.techidaily.com/guide-recovery-of-deletion-damaged-data-from-ios-devices-using-stellar/"><u>Guide: Recovery of Deletion-Damaged Data From iOS Devices Using Stellar</u></a></li>
-<li><a href="https://win-able.techidaily.com/how-to-address-the-notorious-error-4201-on-genshin-impact-detailed-fixes/"><u>How To Address the Notorious Error 4201 on Genshin Impact – Detailed Fixes!</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/24-epic-battle-royale-thumbnails-done-fast/"><u>In 2024, Epic Battle Royale Thumbnails, Done Fast!</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/24-global-giga-viewers-worlds-favorite-youtube-stars/"><u>In 2024, Global Giga-Viewers World's Favorite YouTube Stars</u></a></li>
-<li><a href="https://review-topics.techidaily.com/in-2024-how-to-fake-gps-on-poco-x5-for-mobile-legends-drfone-by-drfone-virtual-android/"><u>In 2024, How To Fake GPS On Poco X5 For Mobile Legends? | Dr.fone</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ating-the-net-top-tags-for-eye-catching-gamer-content-for-2024/"><u>Navigating the Net Top Tags for Eye-Catching Gamer Content for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-how-to-edit-youtube-videos-in-sony-vegas/"><u>[New] 2024 Approved How to Edit YouTube Videos in Sony Vegas</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/024-approved-the-ultimate-guide-to-beauty-on-youtube-gear-makeup-tutorials-and-more/"><u>[New] 2024 Approved The Ultimate Guide to Beauty on YouTube - Gear, Makeup Tutorials, and More</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/new-graphical-glimpse-radeons-resurgence/"><u>[New] Graphical Glimpse Radeon's Resurgence</u></a></li>
+<li><a href="https://solve-latest.techidaily.com/64-bit-computer-registries-insights-from-yl-computing/"><u>64-Bit Computer Registries: Insights From YL Computing</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/24-channeling-success-the-essential-elements-for-profitable-video-trailers/"><u>In 2024, Channeling Success The Essential Elements for Profitable Video Trailers</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/24-composing-news-wrap-up-scripts/"><u>In 2024, Composing News Wrap-Up Scripts</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/24-constructing-captivating-conclusions/"><u>In 2024, Constructing Captivating Conclusions</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/24-countermoves-in-media-how-to-reverse-videos/"><u>In 2024, Countermoves in Media How to Reverse Videos</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/24-crafting-captivating-thumbnails-a-comprehensive-guide-for-youtube-creators/"><u>In 2024, Crafting Captivating Thumbnails A Comprehensive Guide for YouTube Creators</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/24-dancing-to-the-tune-youtubes-hottest-music-video-responses-23/"><u>In 2024, Dancing to the Tune YouTube's Hottest Music Video Responses, '23</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-how-to-detect-and-remove-spyware-on-samsung-galaxy-a05s-drfone-by-drfone-virtual-android/"><u>In 2024, How to Detect and Remove Spyware on Samsung Galaxy A05s? | Dr.fone</u></a></li>
+<li><a href="https://ai-vdieo-software.techidaily.com/new-create-stunning-time-lapses-with-final-cut-pro-a-beginners-guide/"><u>New Create Stunning Time Lapses with Final Cut Pro A Beginners Guide</u></a></li>
+<li><a href="https://games-able.techidaily.com/nvidias-ai-driven-leap-forward-with-new-realistic-gaming-features-dlss-35/"><u>Nvidia's AI-Driven Leap Forward with New Realistic Gaming Features – DLSS 3.5</u></a></li>
+<li><a href="https://extra-information.techidaily.com/one-minute-mastery-of-fades/"><u>One-Minute Mastery of Fades</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/restore-missing-app-icon-on-itel-s23-step-by-step-solutions-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Restore Missing App Icon on Itel S23 Step-by-Step Solutions | Dr.fone</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/why-cant-my-a6400-show-movies/"><u>Why Can't My A6400 Show Movies?</u></a></li>
 </ul></div>
 
