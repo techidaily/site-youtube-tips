@@ -1,7 +1,7 @@
 ---
 title: "The Complete Manual to Perfect Proportions in YouTube Videos/Shorts/Ads for 2024"
-date: 2024-12-10T16:37:05.798Z
-updated: 2024-12-13T16:11:29.507Z
+date: 2024-12-21T06:54:24.690Z
+updated: 2024-12-28T03:10:43.699Z
 tags:
   - ai video
   - ai youtube
@@ -39,6 +39,10 @@ Aspect ratio is simply the width to the height ratio for the screen. But it hold
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/OZQJUTr44rA?si=ADA0nD1VnXjR_sH0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 1 Aspect Ratio for YouTube Videos
 
 YouTube is the platform that demands perfection, not in terms of the content of the video only, but there are some other aspects that one needs to consider. So, what could be the right approach while dealing with YouTube Video or Photo size? Thinking what could that be? Well, friends, it is the YouTube Video Ratio or, in simple terms, YouTube Aspect Ratio that tells a lot about the visual representation of the video. If YouTube Video dimension size is not as per the required parameter or according to the device screen, it is so. Then YouTube itself makes adjustments to the rest of the video corners filled with either white or grey bar, which is not the right approach for an appropriate user experience. For that, you must be aware of the required width and height of YouTube Video, that is, YouTube Video Aspect Ratio. Below are covered prime devices with their YouTube Aspect Ratio and related information. Go through them to get the basic idea:
@@ -64,14 +68,10 @@ Let’s take the example of Vertical Video display in YouTube Screen:
 ![vertical video example](https://images.wondershare.com/filmora/article-images/2021/vertical-video-example.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/5FWCFI3f_cs?si=Kt2Onr_E4c616tbH" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/U6lCtLUeROA?si=se6OFuis9JpcTGJf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Also, by selecting the Expand option, the video will adjust itself to fill the entire screen.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/0dOfcihxjiw?si=_fkp1S1Uw0N1dp6b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Part 2 YouTube Shorts Aspect Ratio
 
@@ -90,7 +90,7 @@ Here also comes the concept of YouTube Shorts Ratio as YouTube Videos primarily 
 Other possible YouTube Shorts ratios are 4:5, 2:3, 1:2.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/GBWcw6rXIdg?si=Tlue44bW-bPA4tH9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_SbYznUy_zY?si=ThBkP934r3mizi48" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 3 Aspect Ratios for YouTube Ads
@@ -108,6 +108,10 @@ Aspect Ratio for Desktop Ads: 16:9
 Sponsor Card Ads Ratio: 1:1
 
 True View Discovery Ads Ratio: 16:9 or 4:3
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/L603QXgjb3I?si=sMYHfMGy2kNPSHPt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 4 Think More about YouTube Aspect Ratio
 
@@ -137,14 +141,10 @@ There is another option also, after launching the software, upload your project 
 
 ![filmora project settings](https://images.wondershare.com/filmora/article-images/2021/filmora-project-settings.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/FATJWpNYmio?si=72ugPTb3vJXz6cAM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Simple isn't it. Yes, the process is quite simple. You can easily change YouTube Video size dimensions without any hassle using Wondershare Filmora editor and that quickly. So, get up and record some interesting YouTube videos or Shorts, mix them up with colors, spicy talk, and change the aspect ratio with ease. You are ready to rock the world of YouTube videos with these simple steps, the right approach that most YouTube Videomakers follow worldwide.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/1KKovVi9epE?si=EF7KA7b4KsEpWA-M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/r_wWybMqZEM?si=0nPjCQDLS2MCaQbG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Conclusion
@@ -168,24 +168,16 @@ Aspect ratio is simply the width to the height ratio for the screen. But it hold
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://twitter-videos.techidaily.com/new-strategic-use-of-twitters-wayback-machine-features/"><u>[New] Strategic Use of Twitter's Wayback Machine Features</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/new-transform-your-images-into-nfts-the-best-generators-listed/"><u>[New] Transform Your Images Into NFTs - The Best Generators Listed</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-capture-the-action-crafting-best-in-class-sports-films-for-2024/"><u>[Updated] Capture the Action Crafting Best-in-Class Sports Films for 2024</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/updated-elevating-engagement-a-comprehensive-guide-to-insta-vids-for-2024/"><u>[Updated] Elevating Engagement A Comprehensive Guide to Insta Vids for 2024</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-in-2024-aspect-ratios-unveiled-your-guide-to-stellar-yt-images/"><u>[Updated] In 2024, Aspect Ratios Unveiled Your Guide to Stellar YT Images</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-revolutionize-advertising-try-all-50-available-free-youtube-banners/"><u>[Updated] Revolutionize Advertising – Try All 50 Available FREE YouTube Banners</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-the-child-prodigy-who-conquered-currency-with-content/"><u>[Updated] The Child Prodigy Who Conquered Currency with Content</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/updated-the-ultimate-farming-revamp-7-14-mod-comparison-guide/"><u>[Updated] The Ultimate Farming Revamp #7-14 Mod Comparison Guide</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-youtube-tv-everything-you-need-to-know/"><u>[Updated] YouTube TV - Everything You Need to Know</u></a></li>
-<li><a href="https://fox-sys.techidaily.com/1-restore-your-images-from-icloud-with-these-easy-techniques/"><u>1. Restore Your Images From iCloud with These Easy Techniques</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/o-perfection-a-detailed-guide-on-youtube-short-video-making/"><u>Cut to Perfection A Detailed Guide on YouTube Short Video Making</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/how-to-upload-gif-to-instagram-in-4-steps-for-2024/"><u>How To Upload GIF to Instagram in 4 Steps for 2024</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/24-top-5-youtube-promo-tactics-for-max-impact/"><u>In 2024, Top 5 YouTube Promo Tactics for Max Impact</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/aging-seo-in-youtube-a-title-and-tags-guidebook/"><u>Leveraging SEO in Youtube A Title & Tags Guidebook</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/maximum-performance-meets-affordability-comprehensive-review-of-the-acer-predator-orion-5000-gaming-system/"><u>Maximum Performance Meets Affordability: Comprehensive Review of the Acer Predator Orion 5000 Gaming System</u></a></li>
-<li><a href="https://solve-info.techidaily.com/missing-page-alert-content-doesnt-exist-here/"><u>Missing Page Alert: Content Doesn't Exist Here</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/resolving-d3dx933dll-file-not-found-a-step-by-step-guide/"><u>Resolving d3dx9_33.dll File Not Found: A Step-by-Step Guide</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/cost-movie-previews-download-youtube-cover-arts-easy-for-2024/"><u>Zero-Cost Movie Previews Download YouTube Cover Arts Easy for 2024</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/flaccab/"><u>オンラインでフリーなFLAC形式へのCAB変換 - ムーヴァビ</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/new-a-closer-look-at-the-vivavideo-interface/"><u>[New] A Closer Look at the VivaVideo Interface</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-amplifying-video-reach-the-ultimate-guide-for-youtube-enthusiasts/"><u>[New] In 2024, Amplifying Video Reach The Ultimate Guide for YouTube Enthusiasts</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/astering-the-craft-of-youtubers-music-reaction-videos-essentials-for-2024/"><u>[New] Mastering the Craft of Youtubers Music Reaction Videos Essentials for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/outube-vision-navigating-video-degrees-with-ease/"><u>[New] YouTube Vision Navigating Video Degrees with Ease</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-in-2024-standard-youtube-licenses-versus-cc/"><u>[Updated] In 2024, Standard Youtube Licenses Versus CC</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/2024-approved-step-by-step-audio-transformation-tips-for-enhanced-competitive-play-in-free-fire/"><u>2024 Approved Step-by-Step Audio Transformation Tips for Enhanced Competitive Play in Free Fire</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-rootjunky-apk-to-bypass-google-frp-lock-for-xiaomi-redmi-note-12-proplus-5g-by-drfone-android/"><u>In 2024, Rootjunky APK To Bypass Google FRP Lock For Xiaomi Redmi Note 12 Pro+ 5G</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-top-7-skype-hacker-to-hack-any-skype-account-on-your-nokia-c300-drfone-by-drfone-virtual-android/"><u>In 2024, Top 7 Skype Hacker to Hack Any Skype Account On your Nokia C300 | Dr.fone</u></a></li>
+<li><a href="https://fake-location.techidaily.com/ispoofer-is-not-working-on-realme-c51-fixed-drfone-by-drfone-virtual-android/"><u>iSpoofer is not working On Realme C51? Fixed | Dr.fone</u></a></li>
+<li><a href="https://win-answers.techidaily.com/r-type-final-2-stability-improvement-eliminate-pc-game-crash-problems-here/"><u>R-Type Final 2 Stability Improvement - Eliminate PC Game Crash Problems Here</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/erpro-suite-for-2024/"><u>SnipperPro Suite for 2024</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "\"[New] In 2024, Filmmaker's Choice  Selecting Perfect Lenses for YouTube Creation\""
-date: 2024-12-11T16:04:06.690Z
-updated: 2024-12-13T16:26:49.578Z
+date: 2024-12-22T00:24:43.288Z
+updated: 2024-12-28T01:22:16.194Z
 tags:
   - ai video
   - ai youtube
@@ -46,7 +46,7 @@ In this article, I’m going to help you figure that out.
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/3koT_-kvbks?si=sQV7FzPiz6GYITrE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/7JBG_O3Vnh4?si=lUO0fta6YPJ50qjg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Three Focal Length Groups: Wide, Standard, Telephoto
@@ -64,10 +64,6 @@ With standard lenses or normal lenses, you won’t get the stretched out objects
 #### Telephoto Lens
 
 Out of all the other ranges in focal lengths, telephoto lenses will appear the most zoomed in. This can be beneficial for the shooter who wants to get a closer shot of a scene without having to physically be in close proximity to the scene. Objects that are further away in the background also appear larger and closer than they would appear on wide-angle or standard lenses.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/-0Ww1YIIUe4?si=cQ-Gkh9UCJABuPZU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Vlogging With Each Focal Length Group
 
@@ -114,21 +110,21 @@ This table shows you the focal lengths needed to achieve the same shot between c
 | Telephoto                   | 100mm      | 63mm  | 50mm      |
 | Telephoto                   | 200mm      | 125mm | 100mm     |
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/DxUX4R6Cf7c?si=prHevNQJivSkIfUt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### Aperture
 
  ![Camera lenses Aperture](https://images.wondershare.com/filmora/article-images/camera-lenses-aperture.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/iLlpdv0cz_k?si=HwTdnMmeVJXm4GPV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/xtylXDY9YfA?si=VonzSiDFGCpJm2uC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  The next thing to consider when you’re looking for a lens is the aperture, the hole (often adjustable) within the lens that lets light in. Aperture for camera lenses is measured in f-stops (f/1.4, f/1.8, f/2.0) - the smaller the f-stop number, the larger the aperture (bigger hole letting even more light in).
 
  ![Camera lenses Aperture Range](https://images.wondershare.com/filmora/article-images/camera-lenses-aperture-range.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/slm2NjVPNtk?si=9ow6g1ucmf0TnT4T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Because larger aperture lenses let more light in, they need a shorter time for cameras to compose an image. This is why larger aperture lenses are also called “fast” lenses.
 
@@ -151,7 +147,7 @@ But do you even need a fast lens?
 * Better continuous autofocus performance needed when shooting moving subjects with a large aperture
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/-Bov2KfWQ_Y?si=MnVczisgeJ-sGW2r" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Zgwn5kVI5V4?si=1j6j4OuSSndFieXU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Optical Image Stabilization
@@ -167,6 +163,10 @@ If, however, you are shooting most of your vlogs on a tripod, you won’t need a
  Looking for ways to set up your talking-head shot for YouTube with any of these lenses? Check out our post on [4 Ways To Set Up Your Talking-Head Shots For YouTube](https://tools.techidaily.com/wondershare/filmora/download/).
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/15TKQ-BOENI?si=Ri4B2AuxAdi0Bglz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -189,19 +189,20 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-tips.techidaily.com/n-2024-cutting-the-cord-on-costs-select-best-free-yt-title-makers/"><u>[New] In 2024, Cutting the Cord on Costs - Select Best-Free YT Title Makers</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/n-2024-online-tutorial-adding-youtube-playlists-to-your-site/"><u>[New] In 2024, Online Tutorial Adding YouTube Playlists to Your Site</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/n-2024-premium-talker-alteration-tech-for-bloggers-and-streamers/"><u>[New] In 2024, Premium Talker Alteration Tech for Bloggers and Streamers</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/updated-big-sur-os-essential-system-and-hardware-specifications/"><u>[Updated] Big Sur OS Essential System & Hardware Specifications</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-create-edges-of-images-with-rotational-softness-blend-psx-for-2024/"><u>[Updated] Create Edges of Images with Rotational Softness Blend PSX for 2024</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/updated-efficient-techniques-to-record-and-store-facebook-calls/"><u>[Updated] Efficient Techniques to Record and Store Facebook Calls</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-in-2024-10plus-must-use-free-youtube-intro-maker-sites/"><u>[Updated] In 2024, 10+ Must-Use Free YouTube Intro Maker Sites</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-in-2024-elevate-create-and-earn-a-startup-guide-for-youtube-channels/"><u>[Updated] In 2024, Elevate, Create & Earn A Startup Guide for YouTube Channels</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/updated-premier-tools-best-mac-devices-for-capturing-videos-for-2024/"><u>[Updated] Premier Tools Best Mac Devices for Capturing Videos for 2024</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-video-conversion-made-simple-the-best-flv-tools-for-youtube/"><u>[Updated] Video Conversion Made Simple The Best Flv Tools for YouTube</u></a></li>
-<li><a href="https://discover-data.techidaily.com/dealing-with-system-lock-ups-expert-guidance-from-yl-software/"><u>Dealing with System Lock-Ups: Expert Guidance From YL Software</u></a></li>
-<li><a href="https://video-capture.techidaily.com/gamers-eden-record-without-paying-in-24-for-2024/"><u>Gamers' Eden Record Without Paying in '24 for 2024</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/in-2024-taking-your-aerial-game-to-new-heights-with-dji-spark-reviewed/"><u>In 2024, Taking Your Aerial Game to New Heights with DJI Spark Reviewed</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/lenovos-latest-powerhouse-the-thinkpad-z13-gen-2-with-advanced-amd-chipset-unveiled/"><u>Lenovo's Latest Powerhouse: The ThinkPad Z13 Gen 2 with Advanced AMD Chipset Unveiled!</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-trailblazers-designing-marvels-digital-playground/"><u>[New] In 2024, Trailblazers Designing Marvel's Digital Playground</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-2024-approved-game-changers-gear-essentials-every-business-needs-to-stay-ahead-of-the-curve/"><u>[Updated] 2024 Approved Game Changers Gear Essentials Every Business Needs to Stay Ahead of the Curve</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-2024-approved-the-8-most-critical-blunders-to-elude-as-a-rookie-youtuber/"><u>[Updated] 2024 Approved The 8 Most Critical Blunders to Elude as a Rookie YouTuber</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-in-2024-direct-hit-the-techno-friendly-way-to-upload-your-short-clips/"><u>[Updated] In 2024, Direct Hit The Techno-Friendly Way to Upload Your Short Clips</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-in-2024-rapid-fortnite-tile-making-hacks/"><u>[Updated] In 2024, Rapid Fortnite Tile-Making Hacks</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-legal-boundaries-of-online-video-capturing-tools-for-2024/"><u>[Updated] Legal Boundaries of Online Video Capturing Tools for 2024</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-top-20-youtube-friendly-facebook-video-editors-for-2024/"><u>[Updated] Top 20 YouTube-Friendly Facebook Video Editors for 2024</u></a></li>
+<li><a href="https://extra-information.techidaily.com/accessing-c-span-archives-at-zero-cost-steps-included-for-2024/"><u>Accessing C-Span Archives at Zero Cost - Steps Included for 2024</u></a></li>
+<li><a href="https://android-frp.techidaily.com/best-meizu-frp-bypass-guide-by-drfone-android/"><u>Best Meizu FRP Bypass Guide</u></a></li>
+<li><a href="https://article-files.techidaily.com/film-makers-guide-to-selecting-between-hero-and-cube-videos/"><u>Film Maker's Guide to Selecting Between Hero and Cube Videos</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/o-live-streaming-360-video-to-youtube-for-2024/"><u>How to Live Streaming 360 Video to Youtube for 2024</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/how-to-proficiently-use-a-switch-pro-controller-on-steam/"><u>How to Proficiently Use a Switch Pro Controller on Steam</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/how-to-transfer-text-messages-from-tecno-pop-8-to-new-phone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Text Messages from Tecno Pop 8 to New Phone | Dr.fone</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/24-elevate-your-content-with-top-ranked-youtube-channels/"><u>In 2024, Elevate Your Content with Top-Ranked YouTube Channels</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/24-ultimate-buyers-guide-top-gpus-for-youtube-streamers/"><u>In 2024, Ultimate Buyer's Guide Top GPUs for YouTube Streamers</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "\"[New] YouTube Copyright Demystified  Key Principles and Practices\""
-date: 2024-08-28T09:27:37.201Z
-updated: 2024-08-29T09:27:37.201Z
+date: 2024-12-22T21:32:02.968Z
+updated: 2024-12-28T09:13:29.769Z
 tags:
   - ai video
   - ai youtube
@@ -38,6 +38,10 @@ Remember that everything discussed in this article is only best practices and sh
 
 Now that we are set, let’s dive in:
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LeKJBWb6Jhk?si=AnViizAPiIT1YCRA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 1: What is Fair Use?
 
 When we talk about YouTube copyright, we have to talk about fair use.
@@ -71,8 +75,9 @@ There couldn’t be two more different movies than Toy Story and Fight Club, but
 In this example from The Hillywood Show, we see a parody of both BBC’s Sherlock Holmes and Macklemore & Ryan Lewis’s Thrift Shop. The nuisance of the show and song recreated are there, but nobody who enjoys the originals will sit down and appreciate it in the same way. A parody is in no way trying to replace the original, but rather using the subject, structure, and style of the original as a vessel to another creative work.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37100474&QTY=1&AFFILIATE=108875&CART=1"><img src="https://awario.com/images/pages/index/img-platform-ui-1280@1x.avif" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=M69YSY0Mk_gsdU0Q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Part 4: What To Do When You Get a YouTube Copyright Strike
 
 If you are reading this, you may have already gotten a YouTube copyright strike.
@@ -99,12 +104,6 @@ So what should you do? Here are the steps to take after you receive a copyright 
 
 ![Dispute YouTube Copyright Claims](https://images.wondershare.com/filmora/article-images/dispute-youtube-copyright-claim.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4621764&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.x-mirage.com/x-mirage/img/page-home.jpg" border="0"></a>
-<!-- affiliate ads end -->
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4615471&QTY=1&AFFILIATE=108875&CART=1"><img src="https://images.wondershare.com/affiliate-image/affiliate_banners_en/max_782x90.png" border="0"></a>
-<!-- affiliate ads end -->
 ## Part 5: 5 Ways to Avoid Copyright Strike
 
 It’s not always clear what YouTube deems fair use, but there are a few things you can do to improve your chances of meeting the qualification.
@@ -126,8 +125,9 @@ In this example from Screen Prism, we see scenes from Wes Anderson movies all th
 **5\. Keep it short.** There is no precise number of seconds or ratio of copyrighted to original footage you should have in your video to qualify as fair use. But generally, if the copyrighted clip is short and/or broken up, then it stands a better chance at being approved by YouTube.
 
 <!-- affiliate ads begin -->
-<a href="https://zonlipartnershipprogram.pxf.io/c/5597632/1596691/17882" target="_top" id="1596691"><img src="//a.impactradius-go.com/display-ad/17882-1596691" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1596691/17882" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9hsPbiic0O8?si=58mZ2Cu6wicQfsUP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Part 6: What to Do When Other YouTubers Are Copying Your Content
 
 As a new YouTuber, it’s a little freaky to think that someone is taking your content and republishing it or using your creations in their video without your permission.
@@ -142,11 +142,16 @@ If you ever notice that your content is being copied without your approval — i
 ![report copyright infringement](https://images.wondershare.com/filmora/article-images/report-copyright-infringement-youtube.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082526/7443" target="_top" id="2082526"><img src="//a.impactradius-go.com/display-ad/7443-2082526" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082526/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kTHQrw8e1gk?si=gTPIa7KjhSZ0Vz97" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 1. Select “Infringes my rights” in the pop up window and click “infringes my copyright” in the dropdown options.
 
 ![report copyright infringement](https://images.wondershare.com/filmora/article-images/infringe-my-copyright-report.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oP8grXxuy2o?si=uIRNhTYbecTcaC7J" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 1. Supply additional information to the report form, including the URL of the video infringing your copyrighted content and the URL of your own video.
 2. Submit report and wait for an email confirmation that the infringing content has been removed.
@@ -181,23 +186,17 @@ Got any questions on YouTube copyright? Leave a comment below and we’ll help y
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://shop.incomedia.eu/order/checkout.php?PRODS=12730965&QTY=1&AFFILIATE=108875&CART=1"><img src="https://incomedia.eu/files/images/affiliates/w5/03_WBSX5_728x90_red_CTA.jpg" border="0"></a>
-<!-- affiliate ads end -->
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -206,4 +205,26 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-tips.techidaily.com/onquering-the-fan-base-youtubes-pathway-to-more-followers/"><u>[New] Conquering the Fan Base YouTube's Pathway to More Followers</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-in-2024-crafting-a-memorable-look-back-experience-on-fb/"><u>[New] In 2024, Crafting a Memorable Look Back Experience on FB</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-the-insiders-blueprint-for-finding-hidden-youtube-files/"><u>[New] In 2024, The Insider's Blueprint for Finding Hidden YouTube Files</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-2024-approved-reveal-the-best-7-video-streaming-apps-to-go-live-on-youtube-iphoneandroid/"><u>[Updated] 2024 Approved Reveal the Best 7 Video Streaming Apps to Go Live on YouTube (iPhone/Android)</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-in-2024-mastering-in-stream-fb-ad-configurations-and-impact-assessment/"><u>[Updated] In 2024, Mastering In-Stream FB Ad Configurations & Impact Assessment</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-launching-a-sports-vlog-on-apple-computers/"><u>[Updated] Launching a Sports Vlog on Apple Computers</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-mastering-the-art-of-embedding-youtube-playlist-content-for-2024/"><u>[Updated] Mastering the Art of Embedding YouTube Playlist Content for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-strategic-trailer-planning-for-increased-channels-profitability-for-2024/"><u>[Updated] Strategic Trailer Planning for Increased Channels' Profitability for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-unveiling-what-makes-youtube-tv-different-from-others-for-2024/"><u>[Updated] Unveiling What Makes YouTube TV Different From Others for 2024</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/2024-approved-harnessing-the-power-of-movie-maker-in-windows-8/"><u>2024 Approved Harnessing the Power of Movie Maker in Windows 8</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/can-i-bypass-a-forgotten-phone-password-of-realme-gt-neo-5-by-drfone-android/"><u>Can I Bypass a Forgotten Phone Password Of Realme GT Neo 5?</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/how-to-fix-icloud-lock-from-your-iphone-11-and-ipad-by-drfone-ios/"><u>How to fix iCloud lock from your iPhone 11 and iPad</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/in-2024-top-10-free-iphone-composition-tools-for-stunning-images/"><u>In 2024, Top 10 Free iPhone Composition Tools for Stunning Images</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/24-youtube-legality-taking-content-offline/"><u>In 2024, YouTube Legality Taking Content Offline</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ring-youtube-videos-integrating-into-ppt-4-techniques/"><u>Mastering YouTube Videos Integrating Into PPT (4 Techniques)</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/perfect-upside-down-and-sideways-iphone-images/"><u>Perfect Upside-Down & Sideways iPhone Images</u></a></li>
+<li><a href="https://common-error.techidaily.com/troubleshooting-fixes-resolving-copy-and-paste-issues-in-windows-11/"><u>Troubleshooting Fixes: Resolving Copy & Paste Issues in Windows 11</u></a></li>
+<li><a href="https://win-marvelous.techidaily.com/troubleshooting-steps-when-your-pc-ignores-its-graphics-card-tips-by-yl-computing/"><u>Troubleshooting Steps When Your PC Ignores Its Graphics Card - Tips by YL Computing</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/win1011-wont-react-keyboardmouse-remedies-needed/"><u>Win10/11 Won't React? Keyboard/Mouse Remedies Needed</u></a></li>
+</ul></div>
 

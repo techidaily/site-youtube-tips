@@ -1,7 +1,7 @@
 ---
 title: "The Art of Analytic Assessment in the YouTube Sphere for 2024"
-date: 2024-12-12T16:08:51.476Z
-updated: 2024-12-13T16:09:01.568Z
+date: 2024-12-25T22:59:54.602Z
+updated: 2024-12-28T08:42:00.501Z
 tags:
   - ai video
   - ai youtube
@@ -32,7 +32,7 @@ thumbnail: https://thmb.techidaily.com/3c3e9aebd6b49c0af91473b8783124a08a04e227f
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/1KKovVi9epE?si=EF7KA7b4KsEpWA-M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Lp78eFEGwVU?si=-4orJBLvJJrggCJ2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How to analyze your own YouTube channel/video?
@@ -49,25 +49,21 @@ thumbnail: https://thmb.techidaily.com/3c3e9aebd6b49c0af91473b8783124a08a04e227f
 
 ![](https://images.wondershare.com/filmora/article-images/youtube-analytics-views.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1dR4tF3VgyU?si=AJipgqZsNNxsRsBW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 #### 2\.  Playback Location
 
  As 'Playback locations' of YouTube videos can reveal where does all the traffic come from, it would help your channel figure out for which location the video has fared well. It will guide you to reach the backlinks locations/sites. Knowing the popular locations for your YouTube video being played, you can know whether YouTube is the search engine or they have been diverted from somewhere else. Depending on the video playing locations, the views will be segregated in to embedded video, YouTube watch page, mobile devices, and YouTube channel page. Understanding location specific views would help you decide where should you focus to enhance the performance of your video.
 
 ![](https://images.wondershare.com/filmora/article-images/youtube-analytics-playback-location.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/58KlTPHv8dU?si=7ICagyNgrao7OkVO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 #### 3\.  Demographics
 
  The demographics page helps you get YouTube insights, using them you can know the audience in a gender and location specific manner. For local businesses targeting a certain region, YouTube analytics would prove to be a boon. You can also know the geography and device used by the viewers with this feature. Understanding the gender and location of people will help you create dedicated product videos that would be helpful to them.
 
 ![](https://images.wondershare.com/filmora/article-images/youtube-analytics-demographic.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9Sj2QNA-JXI?si=V-_h73iE3VlE214k" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 #### 4\.  Traffic sources
 
@@ -99,10 +95,6 @@ thumbnail: https://thmb.techidaily.com/3c3e9aebd6b49c0af91473b8783124a08a04e227f
 
 ![](https://images.wondershare.com/filmora/article-images/youtube-analytics-subscribers.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Hpne0zPsZwU?si=yN5QDsG_WLb_Y3u-" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  The subscription stream enables your audience to get suggestions for new videos from your channel and offer better exposure to the service and products you offer.
 
 **You May Also Like** : [How to Get More Subscribers](https://tools.techidaily.com/wondershare/filmora/download/)
@@ -119,21 +111,25 @@ thumbnail: https://thmb.techidaily.com/3c3e9aebd6b49c0af91473b8783124a08a04e227f
 
 ![](https://images.wondershare.com/filmora/article-images/youtube-analytics-comments.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/5OmJZ4Z8jgk?si=YIoEaPI8geoiFSYE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 #### 11\.  Cards
 
  Cards is a new feature in YouTube analytics and aimed at replacing annotations. This will improve user interactivity of any video and accelerate the engagement. They will act as call to action for informing visitors regarding playlists, videos, merchandising, fan funding, and associated website etc.
 
 ![](https://images.wondershare.com/filmora/article-images/youtube-analytics-cards.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UCqHbpxQGP4?si=XGkajFHdqyoKNAFM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 #### 12\.  Sharing
 
  This aspect sums up the amount of shares of the YouTube video across different social networks along with the share date. Google ranking is influenced with the share numbers, as higher the number more the chances of unique backlinks for your videos.
 
 ![](https://images.wondershare.com/filmora/article-images/youtube-analytics-sharing.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/XS1nQCe95LU?si=A2dhdFkSAI61_nKA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 #### 13\.  Videos in playlists
 
@@ -142,7 +138,7 @@ thumbnail: https://thmb.techidaily.com/3c3e9aebd6b49c0af91473b8783124a08a04e227f
 ![](https://images.wondershare.com/filmora/article-images/youtube-analytics-playlists.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/K4lRBnNnd9k?si=5e0MbdOz-fF6Ry_k" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/TJCye_oCTTw?si=6bVyBphcSgSFdyuq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How to analyze your competitors
@@ -171,6 +167,10 @@ thumbnail: https://thmb.techidaily.com/3c3e9aebd6b49c0af91473b8783124a08a04e227f
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/OFDHJnZLwTA?si=WThcb2h76AnZDzcQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
@@ -192,22 +192,22 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://video-capture.techidaily.com/new-a-comprehensive-guide-to-high-quality-laptop-recordings/"><u>[New] A Comprehensive Guide to High-Quality Laptop Recordings</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/n-2024-luminous-techniques-for-engaging-vlogs/"><u>[New] In 2024, Luminous Techniques for Engaging Vlogs</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/park-interest-the-art-of-youtube-intros-in-imovie-for-2024/"><u>[New] Spark Interest The Art of YouTube Intros in iMovie for 2024</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-avoid-piracy-safe-youtube-to-mp4-conversion-tips-for-2024/"><u>[Updated] Avoid Piracy Safe YouTube to MP4 Conversion Tips for 2024</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ed-in-2024-carminatis-gig-economy-ajays-youtube-wealth-stream/"><u>[Updated] In 2024, Carminati's Gig Economy AJay's YouTube Wealth Stream</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-professional-guide-to-moving-videos-from-youtube-to-dailymotion-for-2024/"><u>[Updated] Professional Guide to Moving Videos From YouTube to Dailymotion for 2024</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-seo-booster-essentials-for-top-online-videos-for-2024/"><u>[Updated] SEO Booster Essentials for Top Online Videos for 2024</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/2024-approved-discover-free-software-for-saving-your-desktop-display/"><u>2024 Approved Discover Free Software for Saving Your Desktop Display</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/2024-approved-top-10-no-cost-image-servers-always-preserve-your-pics/"><u>2024 Approved Top 10 No-Cost Image Servers, Always Preserve Your Pics</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/approved-unlocking-your-potential-multiplatform-studio-use-for-profit/"><u>2024 Approved Unlocking Your Potential Multiplatform Studio Use for Profit</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/fy-your-content-two-approaches-to-skyrocket-traffic-for-2024/"><u>Amplify Your Content Two Approaches to Skyrocket Traffic for 2024</u></a></li>
-<li><a href="https://fox-ssl.techidaily.com/hddos/"><u>HDDの完全バックアップを簡単に実現するトップレベル転送ソフトウェア：OSシステムとデータ同時移動</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/how-to-use-phone-clone-to-migrate-your-honor-magic-5-data-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Use Phone Clone to Migrate Your Honor Magic 5 Data? | Dr.fone</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/24-decoding-the-science-of-hash-optimization-for-game-streaming/"><u>In 2024, Decoding the Science of Hash Optimization for Game Streaming</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/by-step-using-premiere-for-video-upload/"><u>Step-by-Step Using Premiere for Video Upload</u></a></li>
-<li><a href="https://win-comparisons.techidaily.com/troubleshooting-unrecognizable-drives-in-windows-a-guide-by-yl-computing/"><u>Troubleshooting Unrecognizable Drives in Windows: A Guide by YL Computing</u></a></li>
-<li><a href="https://common-error.techidaily.com/ultimate-troubleshooting-guide-for-windows-network-error-0x800704cf/"><u>Ultimate Troubleshooting Guide for Windows Network Error 0X800704CF</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/igital-wealth-creation-through-video-networking-for-2024/"><u>[New] Digital Wealth Creation Through Video Networking for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/armonizing-youtube-content-with-audio-files/"><u>[New] Harmonizing YouTube Content with Audio Files</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-youtube-venture-made-easy-the-most-accessible-biz-channel-ideas-ranked/"><u>[New] In 2024, YouTube Venture Made Easy The Most Accessible Biz Channel Ideas Ranked</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/new-the-ultimate-guide-to-xboxs-video-conferencing-feature/"><u>[New] The Ultimate Guide to Xbox's Video Conferencing Feature</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/new-top-10-innovations-for-text-visualization/"><u>[New] Top 10 Innovations for Text Visualization</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-2024-approved-demystifying-the-process-of-writing-youtube-video-content/"><u>[Updated] 2024 Approved Demystifying the Process of Writing YouTube Video Content</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-climate-change-mitigation-through-urban-design-innovations-for-2024/"><u>[Updated] Climate Change Mitigation Through Urban Design Innovations for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-in-2024-directly-uploading-youtube-vids-to-multiple-social-sites-focusing-on-fb/"><u>[Updated] In 2024, Directly Uploading YouTube Vids to Multiple Social Sites, Focusing on FB</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-mastering-insta-video-sharing-from-youtube-for-2024/"><u>[Updated] Mastering Insta-Video Sharing From YouTube for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-start-your-affordable-webinar-journey-with-youtube/"><u>[Updated] Start Your Affordable Webinar Journey with YouTube</u></a></li>
+<li><a href="https://win-latest.techidaily.com/best-free-m2ts-media-players-uncomplicated-watching-and-editing-options-for-your-m2ts-videos/"><u>Best Free M2TS Media Players: Uncomplicated Watching and Editing Options for Your .M2Ts Videos</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-transfer-contacts-from-realme-12plus-5g-to-iphone-xs11-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Contacts from Realme 12+ 5G to iPhone XS/11 | Dr.fone</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/in-2024-a-comprehensive-guide-to-earnings-from-youtube-short-videos/"><u>In 2024, A Comprehensive Guide to Earnings From YouTube Short Videos</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-forgot-pattern-lock-heres-how-you-can-unlock-lenovo-pattern-lock-screen-by-drfone-android/"><u>In 2024, Forgot Pattern Lock? Heres How You Can Unlock Lenovo Pattern Lock Screen</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/24-secure-methods-for-youtube-to-mp4-conversion/"><u>In 2024, Secure Methods for Youtube-to-MP4 Conversion</u></a></li>
+<li><a href="https://discover-exclusive.techidaily.com/scopri-come-trasformare-i-tuoi-video-mp4-in-canzoni-mp3-su-windows-nella-comodita-del-tuo-computer-soluzione-priva-di-costi/"><u>Scopri Come Trasformare I Tuoi Video MP4 in Canzoni MP3 Su Windows Nella Comodità Del Tuo Computer: Soluzione Priva Di Costi!</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/ultimate-ups-selection-top-performers-in-power-backup/"><u>Ultimate UPS Selection: Top Performers in Power Backup</u></a></li>
 </ul></div>
 

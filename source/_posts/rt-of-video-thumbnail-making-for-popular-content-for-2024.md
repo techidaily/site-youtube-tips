@@ -1,7 +1,7 @@
 ---
 title: "The Art of Video Thumbnail Making for Popular Content for 2024"
-date: 2024-12-17T18:34:08.186Z
-updated: 2024-12-22T19:13:54.340Z
+date: 2024-12-24T20:29:00.130Z
+updated: 2024-12-28T00:35:15.030Z
 tags:
   - ai video
   - ai youtube
@@ -48,7 +48,11 @@ Here are 5 easy tips for creating thumbnails that get views.
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/sXLLPY11of0?si=-3YNnpnO0wbc0K_-" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/iPCr_bxZjMQ?si=ubOsoq5umPEXL9xL" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HMuxjTCMX2E?si=ylRTMJuUstpjLsZc" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 1\. Have a Consistent Layout
@@ -59,15 +63,15 @@ An example of a standard layout could be you in the middle of the screen wearing
 
 ![Consistent Layout](https://images.wondershare.com/filmora/article-images/consistent-layout.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/ME5-sAQJVE4?si=ZfcvJSnhQevWtjI0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **2\. Use Your Face**
 
 People feel automatically connected and drawn into images that make eye contact. This makes thumbnails which feature faces more click-able than thumbnails which don’t, in most genres (i.e. if you make food videos then this may not apply – featuring the food might be more important than featuring your face). [Check out more tips like this here](https://tools.techidaily.com/wondershare/filmora/download/).
 
 Also, if somebody recognizes you in your thumbnail from a previous video of yours, that will go a long way towards making them click.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qv4Qm7kpeMs?si=9fv5SOS5a2DvixTK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 3\. Use Graphics/Emojis that are On Topic
 
@@ -76,7 +80,7 @@ Anybody can take a screenshot of themselves in their video and use it as a thumb
 Make sure the images you choose are relevant to the topic of your video.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Jng92DT1n_Y?si=EdMRoNAFi0Q6mP7G" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3hS27nZVi9Y?si=_Zqj_l4a4XkPqT2S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 4\. Make Your Text Huge
@@ -84,10 +88,6 @@ Make sure the images you choose are relevant to the topic of your video.
 If you use text in your thumbnail (you don’t have to) then it should be to add context. For example, if the main image is just you smiling then you might need some text to let viewers know the video is a makeup tutorial.
 
 Thumbnails might look large while you’re putting them together in your image editor, but when they’re displayed on YouTube they’re a lot smaller. That goes double if a viewer is watching on their phone. So, make sure that any text you use is large enough that it can be read easily on small screens.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/GPk8_xpN_rA?si=YbAdgsjAKsCn_UsB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## 5\. Keep it Clutter-Free
 
@@ -102,7 +102,7 @@ Use these tips to make video thumbnails for YouTube, and tell us what kind of re
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LI9nKlbhnw8?si=uUXFVbuEqXtFHHv0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PNw3Lb26wFA?si=5NR1XRVSp41EQYMy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -126,21 +126,20 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-tips.techidaily.com/024-approved-beauty-vlogs-from-basics-to-brilliance-launching-a-youtube-channel/"><u>[New] 2024 Approved Beauty Vlogs From Basics to Brilliance Launching a YouTube Channel</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/024-approved-cost-effective-growth-tactic-for-youtube-fanbases/"><u>[New] 2024 Approved Cost-Effective Growth Tactic for YouTube Fanbases</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/new-2024-approved-immediate-cessation-of-recordings-in-qt-app/"><u>[New] 2024 Approved Immediate Cessation of Recordings in QT App</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/024-approved-score-high-on-youtube-with-these-ranking-factors/"><u>[New] 2024 Approved Score High on YouTube with These Ranking Factors</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/024-approved-step-into-the-world-of-youtube-transcription-a-comprehensive-no-fee-guide/"><u>[New] 2024 Approved Step Into the World of YouTube Transcription A Comprehensive No-Fee Guide</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/024-approved-streamlining-youtube-content-onto-insta-feed/"><u>[New] 2024 Approved Streamlining YouTube Content Onto Insta Feed</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/new-the-8-best-authentic-youtube-growth-tactics/"><u>[New] The 8 Best Authentic Youtube Growth Tactics</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-unraveling-youtubes-monetization-policy-overhaul/"><u>[Updated] 2024 Approved Unraveling YouTube’s Monetization Policy Overhaul</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/approved-discover-these-top-10-thriving-youtube-communities/"><u>2024 Approved Discover These Top 10 Thriving YouTube Communities</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/approved-double-delight-endless-looping-of-youtube-videos-for-tvs/"><u>2024 Approved Double Delight Endless Looping of YouTube Videos for TVs</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/-snippet-analysis-for-beginners/"><u>Brief Snippet Analysis for Beginners</u></a></li>
-<li><a href="https://win-premium.techidaily.com/download-the-latest-hip-hop-tracks-and-playlists-free-mp3flac-conversions/"><u>Download the Latest Hip Hop Tracks & Playlists - Free MP3/FLAC Conversions</u></a></li>
-<li><a href="https://video-content-creator.techidaily.com/new-stop-motion-made-easy-best-apps-for-mobile-animation-for-2024/"><u>New Stop Motion Made Easy Best Apps for Mobile Animation for 2024</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/-10-sound-enhancers-pc-mac-mobile-devices/"><u>Prime 10 Sound Enhancers PC, Mac, Mobile Devices</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/top-secure-video-streaming-apps-1-to-8-2023-edition-for-2024/"><u>Top Secure Video Streaming Apps #1 to #8, 2023 Edition for 2024</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/1722969955083-update-to-newest-epson-wf-7710-drivers-compatible-with-windows-os-download-here/"><u>Update to Newest Epson WF-7710 Drivers – Compatible with Windows OS: Download Here!</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-in-2024-a-guide-to-seamless-inshot-video-segments/"><u>[New] In 2024, A Guide to Seamless Inshot Video Segments</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-in-2024-comprerancial-free-imagery-tips-and-tricks/"><u>[New] In 2024, Comprerancial Free Imagery Tips and Tricks</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-your-complete-breakdown-of-youtube-short-content/"><u>[New] In 2024, Your Complete Breakdown of YouTube Short Content</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-in-2024-textual-enhancements-in-visual-media/"><u>[Updated] In 2024, Textual Enhancements in Visual Media</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-investing-successfully-with-a-makeup-channel/"><u>[Updated] Investing Successfully with a Makeup Channel</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-mastering-youtube-streams-with-simple-obs-guide/"><u>[Updated] Mastering YouTube Streams with Simple OBS Guide</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/updated-professional-gamcapture-tools-and-tactics-for-quality-content-for-2024/"><u>[Updated] Professional GamCapture Tools and Tactics for Quality Content for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-rise-in-the-rankings-essential-seo-for-video-creators/"><u>[Updated] Rise in the Rankings Essential SEO for Video Creators</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-the-new-era-of-youtube-naming-unique-ideas-for-modern-blogging-and-filming-maximum-length-156-characters-for-2024/"><u>[Updated] The New Era of Youtube Naming Unique Ideas For Modern Blogging & Filming (Maximum Length 156 Characters) for 2024</u></a></li>
+<li><a href="https://fake-location.techidaily.com/how-to-use-life360-on-windows-pc-for-motorola-moto-g34-5g-drfone-by-drfone-virtual-android/"><u>How to Use Life360 on Windows PC For Motorola Moto G34 5G? | Dr.fone</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/in-2024-heaviest-inflight-lifters-unveiled-top-10-list/"><u>In 2024, Heaviest Inflight Lifters Unveiled - Top 10 List</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-why-does-the-pokemon-go-battle-league-not-available-on-vivo-y17s-drfone-by-drfone-virtual-android/"><u>In 2024, Why does the pokemon go battle league not available On Vivo Y17s | Dr.fone</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ntly-professional-masterful-thumbnails-created-fast/"><u>Instantly Professional Masterful Thumbnails Created Fast</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/gining-blockbuster-films-ranked-7-1/"><u>Reimagining Blockbuster Films, Ranked #7-1</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/triple-threat-tweaks-for-personalized-win11-preferences/"><u>Triple-Threat Tweaks for Personalized Win11 Preferences</u></a></li>
 </ul></div>
 
