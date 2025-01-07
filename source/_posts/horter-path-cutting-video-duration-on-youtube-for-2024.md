@@ -1,7 +1,7 @@
 ---
 title: "\"The Shorter Path  Cutting Video Duration on YouTube for 2024\""
-date: 2024-08-15T23:04:24.259Z
-updated: 2024-08-16T23:04:24.259Z
+date: 2025-01-04T18:22:13.601Z
+updated: 2025-01-06T20:13:37.237Z
 tags:
   - ai video
   - ai youtube
@@ -36,6 +36,10 @@ For instance, the application is offering non-linear ripple video editing. This 
 
 ---
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qfCSLAhd4FY?si=CUBztmilaeAwl1lw" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## How to Edit YouTube Video Length Using the built-in Video Editor
 
 The YouTube video editor is easy to use, and you can easily learn how to do all sorts of changes to your video. Let's see the things that you need to go through in order to edit the length.
@@ -46,6 +50,10 @@ The YouTube video editor is easy to use, and you can easily learn how to do all 
 
 ![Locate YouTube Video Editor](https://images.wondershare.com/filmora/article-images/add-music-to-youtube-video-6.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/TJCye_oCTTw?si=6bVyBphcSgSFdyuq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 In order to do so, you would have to go ahead and login into your account. Then, go to the “My Channel” panel and select the video that you want to cut. Once you've done this, click on the “Video manager” option and click on the “create” tab which should be located on the right side for the page. There, you will be able to find the “Video Editor”. Of course, you can also add “/editor” to YouTube's URL, and you would be good to go.
 
 #### Step 2 Import Your Video
@@ -54,11 +62,19 @@ Once you've done all of the above, you would have to drag your video in order to
 
 ![drag video to YouTube timeline](https://images.wondershare.com/filmora/article-images/drag-video-to-youtube-timeline.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/xtylXDY9YfA?si=VonzSiDFGCpJm2uC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 #### Step 3 Edit the Length
 
 This is the part where you actually get to edit the length of your video. In order to do so effectively, you have to drag the bar at either end of your clip towards the other end in order to shorten the clip conveniently.
 
 ![edit video length in youtube](https://images.wondershare.com/filmora/article-images/edit-video-length-in-youtube.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GFHH14XlFCk?si=2HcjQbDx5eG0ZQAt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 What is more, if you want to increase the length, you have to drag the bar to the opposite end – outwards. There is going to be an indicator which is going to appear at the bottom of the clip, and it's going to show you the overall duration of the file, and it's going to adjust itself as you slide the bars accordingly.
 
@@ -68,20 +84,21 @@ Of course, you would have to save the clip in order for the changes to reflect. 
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/pGHmqD53gc8?si=ymgHIB6Aa7_MoUUf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -90,8 +107,16 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-tips.techidaily.com/ccess-10-free-thumbnail-downloader-apps/"><u>[New] Access 10 Free Thumbnail Downloader Apps</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-2024-approved-charting-your-financial-course-the-3-step-methodology-for-estimating-youtube-income/"><u>[Updated] 2024 Approved Charting Your Financial Course The 3-Step Methodology for Estimating YouTube Income</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/updated-2024-approved-conquer-business-the-top-12-tycoon-games-for-leaders-in-training/"><u>[Updated] 2024 Approved Conquer Business The Top 12 Tycoon Games for Leaders-in-Training</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-2024-approved-guide-to-incorited-visuals-in-text-without-cost/"><u>[Updated] 2024 Approved Guide to Incorited Visuals in Text Without Cost</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-in-2024-from-capture-to-air-expert-tips-for-streaming-upside-down-videos-on-youtube/"><u>[Updated] In 2024, From Capture to Air Expert Tips for Streaming Upside-Down Videos on Youtube</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/2024-approved-nine-leading-iphone-image-watermarking-tools-analysis/"><u>2024 Approved Nine Leading iPhone Image Watermarking Tools Analysis</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ting-youtube-prominence-with-expert-use-of-the-hub/"><u>Elevating Youtube Prominence with Expert Use of the Hub</u></a></li>
+<li><a href="https://audio-shaping.techidaily.com/multimedia-educational-show-key-insights-demystified/"><u>Multimedia Educational Show Key Insights Demystified</u></a></li>
+<li><a href="https://blog-min.techidaily.com/understanding-ust-stablecoin-reasons-behind-the-sudden-drop-in-pricing/"><u>Understanding UST Stablecoin – Reasons Behind the Sudden Drop in Pricing.</u></a></li>
+</ul></div>
 
-
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=194977&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.blumentals.net/scrfactory/images/screensaver-software.png" border="0">Screensaver Factory, Create stunning professional screensavers within minutes. Create screensavers for yourself, for marketing or unlimited royalty-free commercial distribution. Make screensavers from images, video and swf flash, add background music and smooth sprite and transition effects. Screensaver Factory is very easy to use, and it enables you to make self-installing screensaver files and CDs for easy setup and distribution. Screensaver Factory is the most advanced software of its kind.</a>
-<!-- affiliate ads end -->

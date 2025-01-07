@@ -1,7 +1,7 @@
 ---
 title: "[Updated] In 2024, Novel Talk Points for Daily Videos"
-date: 2024-12-23T03:18:59.862Z
-updated: 2024-12-28T00:07:39.743Z
+date: 2025-01-03T19:36:27.475Z
+updated: 2025-01-06T16:18:05.001Z
 tags:
   - ai video
   - ai youtube
@@ -37,6 +37,10 @@ Before starting your daily vlogging, you have to figure out one important thing 
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qmQjRcnaq9g?si=jadcGtXemUAlKOTa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Do you have a niche?
 
   You should have a niche. In a genre as broad as vlogging it is important to have some kind of hook that sets you apart from other vloggers. This can be an interest that you have, an industry you work in, or even a field of study you’re involved in at school. If you’re into technology, for example, you’ll always have a wealth of subjects to vlog about because all you’ll have to do is look at the day’s tech news and make a video reporting and commenting on it.
@@ -56,10 +60,6 @@ Here are 4 things to talk about in your daily vlog:
 
 By commenting on what you’re watching/reading you have a better chance of capitalizing on a trending topic people are searching for. You could also find yourself an audience by becoming involved in fan communities.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/zmXpl6irBYk?si=BXjGpQr6PXFcqhCI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Snapshots of Your Day
 
  Casey Neistat is the master of this. He is always ready with a camera on hand so that, when something interesting happens, he can capture it and build his daily vlog around it.
@@ -67,7 +67,7 @@ By commenting on what you’re watching/reading you have a better chance of capi
 Carrying a camera around like Casey may or may not suit your lifestyle, but you can still pick out one story from your day to tell. It doesn’t have to be a major event, and you shouldn’t worry that it won’t be interesting to other people. It’s your personality they’re tuning in for, so even if you’re just talking about a funny thing your cat did it will keep your audience interested because a) it’s you talking about it and b) it gives them a bit of insight into your life.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Hpne0zPsZwU?si=yN5QDsG_WLb_Y3u-" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/8Y-k_3N-0OI?si=1J-aFBXLJl5b3x4h" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Whatever You Need to Get Out
@@ -79,10 +79,6 @@ _Flula is frequently puzzled by English expressions, like 'Party Pooper', and ne
 It does not matter what it is that is making you have this strong reaction (unless, again, it’s an actual person who might see your video and cause problems for you). If you’re mad about a real injustice in the world then that’s a great thing to talk about – you might even raise some awareness for the issue – but you can also rant about your favorite flavor of yogurt being cut and that’ll be engaging to viewers too.
 
 Alternatively: you could do a vlog about how happy you are to have gotten engaged or a vlog about how happy you are that it was sunny today, and your enthusiasm will carry your audience through either video with you.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/XIUatTFH0Zw?si=ZCtoBtIy18y2F5Vc" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## What did you learn today?
 
@@ -100,12 +96,16 @@ The puya chilensis is a plant that ‘eats’ sheep (sheep get stuck to it, star
 
 Sea monkeys can survive in space.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/zmXpl6irBYk?si=BXjGpQr6PXFcqhCI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## EVERYTHING
 
 You could also just flick the camera on and tell the full story of your day like you’d do in a traditional daily blog. What did you have for breakfast, how was school/work, did you talk to any friends, how was the weather – anything and everything. Generally, these videos can run a bit long and don’t have a lot of snappy editing. They’re faster to make, which is good if you’re doing them every day, but the unpolished nature of them won’t appeal to everyone. It will be exactly what appeals to some people, though.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/nlwr9LjJ-ng?si=I6UNAtfBkY2FTceu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/w7c5EHp-GDw?si=UTw7lZR0wTmRjp8W" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Customize Your Vlog Stories with Powerful Video Editor
@@ -119,7 +119,7 @@ It’s got strategies that have worked for other YouTubers, boiled down to simpl
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/5OmJZ4Z8jgk?si=YIoEaPI8geoiFSYE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PNw3Lb26wFA?si=5NR1XRVSp41EQYMy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -143,19 +143,19 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-recording.techidaily.com/new-2024-approved-accelerated-video-capture-device-and-voice-commentary-feature/"><u>[New] 2024 Approved Accelerated Video Capture Device & Voice Commentary Feature</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/new-capturing-radiance-advanced-techniques-in-ps-hdr/"><u>[New] Capturing Radiance Advanced Techniques in PS HDR</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/n-2024-tap-into-endless-visual-archives-from-top-4-video-platforms/"><u>[New] In 2024, Tap Into Endless Visual Archives From Top 4 Video Platforms</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-hasty-instruction-saving-your-photos-as-youtube-channel-thumbnails-for-2024/"><u>[Updated] Hasty Instruction Saving Your Photos as YouTube Channel Thumbnails for 2024</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-the-ultimate-vision-companion-ranking-of-best-11-bridge-cams-for-2024/"><u>[Updated] The Ultimate Vision Companion Ranking of Best 11 Bridge Cams for 2024</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-trick-automated-audiences-into-authentic-engagement-for-2024/"><u>[Updated] Trick Automated Audiences Into Authentic Engagement for 2024</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/2024-approved-bridging-the-gap-between-standard-and-superior-video-quality-techniques/"><u>2024 Approved Bridging the Gap Between Standard and Superior Video Quality Techniques</u></a></li>
-<li><a href="https://android-frp.techidaily.com/how-to-bypass-oneplus-nord-ce-3-lite-5g-frp-in-3-different-ways-by-drfone-android/"><u>How To Bypass OnePlus Nord CE 3 Lite 5G FRP In 3 Different Ways</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/24-youtubers-ultimate-guide-10-keys-to-unique-short-form-videos/"><u>In 2024, Youtubers' Ultimate Guide 10 Keys to Unique Short-Form Videos</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/must-watch-lgbtqplus-tv-programs-available-on-netflix-this-month-july-2024/"><u>Must-Watch LGBTQ+ TV Programs Available on Netflix This Month (July 2024)</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/quick-diy-cinematic-techniques-every-hobbyist-should-know-for-2024/"><u>Quick DIY Cinematic Techniques Every Hobbyist Should Know for 2024</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/reduce-audio-noise-in-video-recording-free-and-paid-for-2024/"><u>Reduce Audio Noise in Video Recording [Free and Paid] for 2024</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ltimate-guide-to-filming-for-virality-on-youtube/"><u>The Ultimate Guide to Filming for Virality on YouTube</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/king-income-insights-googles-simplified-three-step-strategy-for-monetizing-youtube-for-2024/"><u>Unlocking Income Insights Google's Simplified Three-Step Strategy for Monetizing YouTube for 2024</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-2024-approved-the-secret-sauce-of-profitable-fb-ads-with-dynamic-animation/"><u>[New] 2024 Approved The Secret Sauce of Profitable FB Ads with Dynamic Animation</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/new-every-gopro-feature-explained-side-by-side/"><u>[New] Every Gopro Feature, Explained Side by Side</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-tailored-techniques-to-cut-off-unwanted-youtube-content-on-devices/"><u>[New] In 2024, Tailored Techniques to Cut Off Unwanted YouTube Content on Devices</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-the-right-tools-for-your-youtube-journey-camera-lenses-explained/"><u>[New] In 2024, The Right Tools For Your YouTube Journey - Camera Lenses Explained</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-2024-approved-enhancing-designs-adding-unique-fonts-to-ae-projects/"><u>[Updated] 2024 Approved Enhancing Designs Adding Unique Fonts to AE Projects</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-how-to-mix-text-and-video-on-a-shoestring-budget-for-2024/"><u>[Updated] How to Mix Text & Video on a Shoestring Budget for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-in-2024-transforming-youtube-footage-for-ultimate-quality/"><u>[Updated] In 2024, Transforming YouTube Footage for Ultimate Quality</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-unleash-creativity-on-screen-discover-the-best-reactions-for-2024/"><u>[Updated] Unleash Creativity on Screen Discover the Best Reactions for 2024</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-how-to-activate-and-use-life360-ghost-mode-on-infinix-hot-30-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How To Activate and Use Life360 Ghost Mode On Infinix Hot 30 5G | Dr.fone</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-the-best-8-vpn-hardware-devices-reviewed-on-vivo-s18e-drfone-by-drfone-virtual-android/"><u>In 2024, The Best 8 VPN Hardware Devices Reviewed On Vivo S18e | Dr.fone</u></a></li>
+<li><a href="https://audio-shaping.techidaily.com/new-exploring-acoustic-illusions-in-motion-techniques-to-illustrate-sound-tracks-via-animated-waveforms-within-premiere-pro-workflow-for-2024/"><u>New Exploring Acoustic Illusions in Motion Techniques to Illustrate Sound Tracks via Animated Waveforms Within Premiere Pro Workflow for 2024</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/the-complete-guide-to-fixing-missing-physxloaderdll-errors-on-your-pc/"><u>The Complete Guide to Fixing Missing PhysXLoader.dll Errors on Your PC</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/form-your-videography-youtubes-secret-to-stunning-greenscreens/"><u>Transform Your Videography YouTube's Secret to Stunning Greenscreens</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/viral-visions-top-ig-story-filters/"><u>Viral Visions Top IG Story Filters</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "How to Add Video to Text for Free"
-date: 2024-08-23T05:30:22.703Z
-updated: 2024-08-24T05:30:22.703Z
+date: 2025-01-05T19:24:49.009Z
+updated: 2025-01-06T22:16:25.752Z
 tags:
   - ai video
   - ai youtube
@@ -28,6 +28,10 @@ It may be challenging to capture the attention of your audience if the video ope
 
 Luckily, video editing and presentation software products offer the tools you will need to combine video and text. In this article, we are going to show you how to add a video to text in PowerPoint and Filmora.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/f3PFn06LijE?si=zHrmlTOzrKxXe-k4" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 1: How to Add Video to Text for Free with PowerPoint?
 
 An effective PowerPoint presentation should contain proportionate amounts of textual and visual elements. Using too many images, videos or animations can make following a presentation difficult, just as too much text can render a presentation too static.
@@ -46,6 +50,10 @@ Find the Insert Shape option and choose Subtract from the Merge Shapes drop-down
 
 ![Add video to text - Powerpoint- substract](https://images.wondershare.com/filmora/article-images/subtract-from-merge-shapes.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/c17xsnbinCQ?si=xHKslFgC3QbxY4qW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Click on the Insert tab, and then choose the Video option from the Media menu. You can [insert a video](https://tools.techidaily.com/wondershare/filmora/download/) that is stored on a local hard drive or the Internet to PowerPoint. The video will cover the entire slide, so you must right-click on it and select the Send to Back option.
 
 You can then fine-tune the video playback settings from the Playback tab. Preview the results before you move on to the next slide in your presentation, and make necessary adjustments if you don’t like how the video merged with the text.
@@ -56,9 +64,17 @@ Besides presentation software, you can also use video editing software products 
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fvAC8jgs62o?si=xqEXZ7dpAXZ4sZ7A" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 You should start by creating a new project in Filmora and importing the video you want to add to the text into the project. Click on the Titles tab, and choose the title that matches the visual style of your project.
 
 ![Add video to text - Filmora9](https://images.wondershare.com/filmora/article-images/add-title-effects.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/NC0rdKEQ98o?si=HYgqC8CxF_WTO5if" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Set the preferred duration of the title by dragging one of its ends to the left or right after you place it on the timeline, and then double-click on it to customize it. Click on the Advanced button once the Text tab opens and insert the text into the Input Text box.
 
@@ -69,6 +85,10 @@ Proceed to select a font and adjust the text size before deciding if you want to
 Now it’s time to add the text video and the background video to the project media library, and then place the two videos one above the other. Since we’re adding video to text, the text video should be placed above the background video.
 
 ![Add video to text - Filmora9 Compositing](https://images.wondershare.com/filmora/article-images/compositing-video-9.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/OZQJUTr44rA?si=ADA0nD1VnXjR_sH0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Click on the video that contains text to gain access to the Video tab of the Editor panel and then expand the Compositing menu. Change the Blending Mode to Multiply, and the text in the overlaying video should be filled with the parts of the footage from the video below it.
 
@@ -88,14 +108,11 @@ Liza Brown is a writer and a lover of all things video.
 
 Follow @Liza Brown
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -104,8 +121,23 @@ Follow @Liza Brown
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-upgrade-your-channels-visual-appeal/"><u>[New] In 2024, Upgrade Your Channel's Visual Appeal</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-2024-approved-streamlining-youtube-videos-adding-subtitles-and-cc-proficiently/"><u>[Updated] 2024 Approved Streamlining YouTube Videos Adding Subtitles & CC Proficiently</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/updated-cease-automatic-footage-collection-qt/"><u>[Updated] Cease Automatic Footage Collection QT</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-in-2024-easy-integration-merging-igtv-and-instagram-stories/"><u>[Updated] In 2024, Easy Integration Merging IGTV & Instagram Stories</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-in-2024-ideal-7-cameras-to-improve-your-youtube-vlogging-experience/"><u>[Updated] In 2024, Ideal 7 Cameras To Improve Your YouTube Vlogging Experience</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-in-2024-smart-sharing-the-leading-shortened-url-services-for-youtubers/"><u>[Updated] In 2024, Smart Sharing The Leading Shortened URL Services for Youtubers</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-the-ultimate-checklist-for-constructing-your-youtube-musical-assortment/"><u>[Updated] The Ultimate Checklist for Constructing Your YouTube Musical Assortment</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-unleashing-potential-crafting-a-youtube-channel-brand-for-success-for-2024/"><u>[Updated] Unleashing Potential Crafting a YouTube Channel Brand for Success for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-what-is-youtube-tag-and-how-to-find-great-tags-for-your-videos-for-2024/"><u>[Updated] What Is YouTube Tag and How to Find Great Tags For Your Videos for 2024</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/2024-approved-perfecting-your-youtube-music-order/"><u>2024 Approved Perfecting Your YouTube Music Order</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/carlsberg-partners-with-abbyy-to-speed-up-global-launch-of-premium-brews/"><u>Carlsberg Partners with ABBYY to Speed Up Global Launch of Premium Brews</u></a></li>
+<li><a href="https://win-extraordinary.techidaily.com/easy-steps-for-retrieving-accidentally-deleted-files-in-windows-10-trash-can/"><u>Easy Steps for Retrieving Accidentally Deleted Files in Windows 10 Trash Can</u></a></li>
+<li><a href="https://win-tutorials.techidaily.com/how-can-you-personalize-your-start-menu-on-windows-10-expert-tips-by-yl-computing/"><u>How Can You Personalize Your Start Menu on Windows 10? - Expert Tips by YL Computing</u></a></li>
+<li><a href="https://apple-account.techidaily.com/how-to-unlink-apple-id-from-apple-iphone-12-by-drfone-ios/"><u>How To Unlink Apple ID From Apple iPhone 12</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/24-the-animators-odyssey-crafting-your-own-fx-realm/"><u>In 2024, The Animator's Odyssey Crafting Your Own FX Realm</u></a></li>
+<li><a href="https://review-topics.techidaily.com/issues-playing-h-265-hevc-video-on-xiaomi-redmi-13c-by-aiseesoft-video-converter-play-hevc-video-on-android/"><u>Issues playing H.265 HEVC video on Xiaomi Redmi 13C</u></a></li>
+</ul></div>
 
-
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620778&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/300__250banner.jpg" border="0"></a>
-<!-- affiliate ads end -->

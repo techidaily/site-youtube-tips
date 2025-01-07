@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Affordable Strategies for Engaging YouTube Opening & End Titles\""
-date: 2024-08-23T05:30:57.533Z
-updated: 2024-08-24T05:30:57.533Z
+date: 2025-01-03T21:12:10.334Z
+updated: 2025-01-06T21:31:07.364Z
 tags:
   - ai video
   - ai youtube
@@ -40,6 +40,10 @@ thumbnail: https://thmb.techidaily.com/0be1e99c17baad20df818e64c74b29c212a06e76b
 
 [How To Make an End Card](#how-to)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MmTJlcwgyrQ?si=x3hba82M0tT57fj7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part1: Intros
 
 #### Elements of an Intro
@@ -68,6 +72,10 @@ You can create a simple intro card in **Filmora**.
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Rxyki8-Y630?si=dHLkIxG59zdlZeN0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 1. Choose your background. You may want to use a short clip as your intro, or you may just want a colored background.
 2. Drag your clip or background into the video track of your timeline and trim it down to five seconds.
 3. If you have a logo, import it into Filmora and drag it into your picture-in-picture track.
@@ -76,6 +84,10 @@ You can create a simple intro card in **Filmora**.
 6. Go to the Text/Titles menu and choose an animated title that suits your channel. Drag it into your text track and edit it to include your name.
 7. The last piece of your intro is sound. You can choose a song from Filmora’s library and cut it down to five seconds, or import your sound effect.
 8. Export your video and save it for use in all of your other videos.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1rCjQ09iG7s?si=Si1fUBric8MH1VHI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 2: End Cards
 
@@ -112,20 +124,21 @@ Some creators will leave their end cards at that and play music overtop, but it 
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/VxFUhesNCKo?si=Ti0ui6DXYP12sjSs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Shanoon Cox
 
 Shanoon Cox is a writer and a lover of all things video.
 
 Follow @Shanoon Cox
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -134,8 +147,16 @@ Follow @Shanoon Cox
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-docs.techidaily.com/aint-a-picture-of-perfection-chromatic-mastery-for-beauty-for-2024/"><u>[New] Paint a Picture of Perfection Chromatic Mastery for Beauty for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/evitalizing-urban-areas-with-environmental-vision-and-purpose/"><u>[New] Revitalizing Urban Areas with Environmental Vision and Purpose</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/he-benefits-of-tubebuddy-manage-your-youtube-channel-for-2024/"><u>[New] The Benefits of TubeBuddy | Manage Your YouTube Channel for 2024</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/updated-2024-approved-industry-standard-guide-implementing-stopwatches-in-video-streaming-software/"><u>[Updated] 2024 Approved Industry Standard Guide Implementing Stopwatches in Video Streaming Software</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-step-up-your-content-quality-with-these-8-mirrorless-cams-for-2024/"><u>[Updated] Step Up Your Content Quality with These 8 Mirrorless Cams for 2024</u></a></li>
+<li><a href="https://win-dash.techidaily.com/easy-update-tutorial-for-intel-hd-graphics-5500-chip-drivers/"><u>Easy Update Tutorial for Intel HD Graphics 5500 Chip Drivers</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/how-to-unbrick-a-dead-motorola-defy-2-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How To Unbrick a Dead Motorola Defy 2 | Dr.fone</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/24-no-cost-sound-transformation-ultimate-10-youtube-tools/"><u>In 2024, No-Cost Sound Transformation Ultimate 10 YouTube Tools</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/24-soundscapes-perfected-selecting-microphones-that-resonate-with-youtubers/"><u>In 2024, Soundscapes Perfected Selecting Microphones That Resonate With YouTubers</u></a></li>
+</ul></div>
 
-
-<!-- affiliate ads begin -->
-<a href="https://godlikehost.sjv.io/c/5597632/1920054/21774" target="_top" id="1920054"><img src="//a.impactradius-go.com/display-ad/21774-1920054" border="0" alt="" width="320" height="100"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1920054/21774" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->

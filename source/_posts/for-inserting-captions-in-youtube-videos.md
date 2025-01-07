@@ -1,7 +1,7 @@
 ---
 title: "Tips for Inserting Captions in YouTube Videos"
-date: 2024-08-15T23:03:10.983Z
-updated: 2024-08-16T23:03:10.983Z
+date: 2025-01-05T23:12:33.794Z
+updated: 2025-01-06T21:20:15.298Z
 tags:
   - ai video
   - ai youtube
@@ -40,6 +40,10 @@ There are plenty of Text effects built in Filmora, you can apply motions and ani
 
 ![ Add Text to Video ](https://images.wondershare.com/filmora/article-images/filmora-advanced-text-edit-interface.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DCARjc5g5VI?si=9OfovbKBrpoJeXTY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 * Open up Filmora and drag a clip into your timeline. Then, go to   **Text/Credit.**
 * Find a style that you like and drag it into your timeline where you want your text to appear. Make sure your text is selected in your timeline and click the   **Advanced Text Editing** icon, which looks like a pen and paper.
 * Insert your own words and drag your text to where you want it on the screen. Adjust the size by dragging the blue squares which surround your text.
@@ -48,6 +52,10 @@ There are plenty of Text effects built in Filmora, you can apply motions and ani
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/y3VlwHTQQMs?si=BXYwD1pKiaTuev4y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 [Check the detailed steps of how to add text to video in Filmora.](https://tools.techidaily.com/wondershare/filmora/download/)
 
 #### 2\.  Use Windows Movie Maker
@@ -55,6 +63,10 @@ There are plenty of Text effects built in Filmora, you can apply motions and ani
 As a simple video editing software, Windows Movie Maker also allows you to add text to videos. It provides 3 different options for you to add Title, Caption and Credits to the YouTube videos. You can follow the steps below to add text to the video in WMM.
 
 ![ add text in WMM ](https://images.wondershare.com/filmora/article-images/add-text-in-wmm.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Zgwn5kVI5V4?si=1j6j4OuSSndFieXU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 * To start, launch the Windows Movie Maker.
 * After, select import video to insert the video that you want to add text with.
@@ -68,6 +80,10 @@ For the step by step tutorial of adding text to YouTube video, check [How to Add
 [Adding text to YouTube videos in Sony Vegas](https://tools.techidaily.com/wondershare/filmora/download/) is not so complicated if you are new to this software. You can adjust the color, size, font and duration of the text effect and add fade in and fade out effects. Follow the steps below to add texts to video in Vegas:
 
 ![ Add Text to Video ](https://images.wondershare.com/filmora/article-images/add-text-in-vegas-pro-2.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9ECz3oZ8NrQ?si=86vkwkDJo9HQXpzt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 * Launch Sony Vegas Movie Studio.
 * Click the View Menu then select Media Generators.
@@ -86,9 +102,6 @@ For professionals who are looking for a professional way to adding text to video
 * You can also edit your text using the commands that are provided in the Title Menu.
 * Save the text that you have made by clicking the file menu then choose Save As.
 
-<!-- affiliate ads begin -->
-<a href="https://mindmanager.sjv.io/c/5597632/1787667/20231" target="_top" id="1787667"><img src="//a.impactradius-go.com/display-ad/20231-1787667" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1787667/20231" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### How to Add Text to video in YouTube after uploading
 
 Sometimes, we have uploaded a video to YouTube and then want to add subtitles/cc to the video later. The good news is that YouTube is not only a site for videos but is also the place where you can edit your videos in an instant. As you have read, adding text and captions to the uploaded YouTube videos is just a breeze.
@@ -100,19 +113,12 @@ Of course, you can only add and edit texts and captions to the video under your 
 * Add Captions/Subtitles
 
 ![ Add Text to Video ](https://images.wondershare.com/filmora/article-images/add-text-youtube-video-editor.jpg)
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=38729081&QTY=1&AFFILIATE=108875&CART=1"><img src="https://website-prod.cache.wpscdn.com/img/wps-writer-free-word-processor-1x.3d9c80d.png" border="0">
-WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
-<!-- affiliate ads end -->
 
 While YouTube may have already created the subtitles automatically for your video with its speech recognition technology. If it does, you will see something like Published: English (Automatic) to the right of your video. If the automatically generated subtitles is not correct, you can edit it to improve the accuracy. Select the line that needs modification to make the edits.
 
 If there is no auto-subtitles, you can choose from 3 ways to add subtitles and closed captions to the video: Upload a file, Transcribe and auto-sync and create new subtitles or CC.
 
 ![ Add Text to Video ](https://images.wondershare.com/filmora/article-images/3-ways-to-add-youtube-subtitles.jpg)
-<!-- affiliate ads begin -->
-<a href="https://caperobbin.sjv.io/c/5597632/2006123/18460" target="_top" id="2006123"><img src="//a.impactradius-go.com/display-ad/18460-2006123" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2006123/18460" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 **Upload a file:** upload a text transcript or timed subtitles file.
 
@@ -130,9 +136,6 @@ When you make use of this editor, you cannot shorten the clips for music. Moreov
 
 From 20th September 2017 users will no longer be able to use the complementary editing suite. Check the best [YouTube video editor alternatives](https://tools.techidaily.com/wondershare/filmora/download/) from this complete guide to find out more YouTube video editor alternatives if you want to add text to video with more features and customization.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BGeneral%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/general-970x90.gif" border="0"></a>
-<!-- affiliate ads end -->
 ### Top 3 Tips for Adding Text to YouTube Videos
 
 #### 1\. Leave Room
@@ -154,14 +157,12 @@ Text is a great tool for making something stand out. However, if you try to use 
 Try to use text to emphasize only the most important things you say.
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
+
 <!-- affiliate ads begin -->
-<a href="https://store.revouninstaller.com/order/checkout.php?PRODS=28010250&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4282ec8de8c9be897e7aff4aa231b1a4/336__280a.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/zmXpl6irBYk?si=BXjGpQr6PXFcqhCI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2084399/18498" target="_top" id="2084399"><img src="//a.impactradius-go.com/display-ad/18498-2084399" border="0" alt="" width="1125" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2084399/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -169,14 +170,11 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -185,4 +183,18 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-tips.techidaily.com/rom-raw-to-refined-youtube-thumbnail-creation-for-mobile-users/"><u>[New] From Raw to Refined YouTube Thumbnail Creation for Mobile Users</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-the-yearly-revelation-of-cost-effective-editing-apps/"><u>[New] In 2024, The Yearly Revelation of Cost-Effective Editing Apps</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ecure-free-footage-streaming-through-key-youtube-channels/"><u>[New] Secure Free Footage Streaming Through Key YouTube Channels</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-decoding-dangerous-subscriber-scams-online/"><u>[Updated] 2024 Approved Decoding Dangerous Subscriber Scams Online</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-best-practices-choosing-youtubes-most-popular-video-formats/"><u>[Updated] Best Practices Choosing YouTube's Most Popular Video Formats</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-boost-your-videos-popularity-on-youtube-for-2024/"><u>[Updated] Boost Your Video's Popularity on YouTube for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-youtube-growth-secrets-masterful-narration-techniques/"><u>[Updated] YouTube Growth Secrets Masterful Narration Techniques</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/2024-approved-superior-online-multimedia-collaboration-tools/"><u>2024 Approved Superior Online Multimedia Collaboration Tools</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/3-ways-to-check-for-open-tcpip-ports-on-windows/"><u>3 Ways to Check for Open TCP/IP Ports on Windows</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/appreciative-adjacencies-templates-for-any-spend-plan-for-2024/"><u>Appreciative Adjacencies Templates for Any Spend Plan for 2024</u></a></li>
+<li><a href="https://win-remarkable.techidaily.com/restore-disappeared-user-profile-desktop-folders-trustworthy-methods-for-a-smooth-recovery/"><u>Restore Disappeared User Profile Desktop Folders: Trustworthy Methods for a Smooth Recovery</u></a></li>
+</ul></div>
 

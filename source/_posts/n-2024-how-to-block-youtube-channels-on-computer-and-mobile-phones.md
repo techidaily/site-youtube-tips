@@ -1,7 +1,7 @@
 ---
 title: "[New] In 2024, How to Block YouTube Channels on Computer and Mobile Phones"
-date: 2024-12-25T17:14:36.728Z
-updated: 2024-12-27T22:29:16.684Z
+date: 2025-01-05T17:34:06.648Z
+updated: 2025-01-06T20:04:28.865Z
 tags:
   - ai video
   - ai youtube
@@ -50,10 +50,6 @@ thumbnail: https://thmb.techidaily.com/5962b87511edddba346cb57d7aca143b8c59fba6d
 
 ![find about option](https://images.wondershare.com/filmora/article-images/find-about-option.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/2En1CHbiYwA?si=jZKzTr9EIT2ShjGK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 * 3\. On the right-hand side right under the **Stats**, you will find a **flag** icon. Press the icon and it will show a drop-down menu, select **Block user**.
 
 ![block user](https://images.wondershare.com/filmora/article-images/block-user2.jpg)
@@ -63,7 +59,7 @@ thumbnail: https://thmb.techidaily.com/5962b87511edddba346cb57d7aca143b8c59fba6d
 ![submit and confirm](https://images.wondershare.com/filmora/article-images/submit2.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/jvwX82j3ci0?si=gAWoovjXgs3m1d7S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/OFDHJnZLwTA?si=WThcb2h76AnZDzcQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Part 2: How to block YouTube channels on Mobile Phones (Android & iPhone)**
@@ -77,7 +73,7 @@ thumbnail: https://thmb.techidaily.com/5962b87511edddba346cb57d7aca143b8c59fba6d
 ![find users](https://images.wondershare.com/filmora/article-images/find-users.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/_7AYCS7zBU0?si=7R9oIpE4hyEbtk3x" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DBMTAJBx-X4?si=sje5pFJXiHzJJGbP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 * 4\. When you’re on the account page, open the menu at the top-right corner of the screen and tap Block user.
@@ -95,12 +91,16 @@ thumbnail: https://thmb.techidaily.com/5962b87511edddba346cb57d7aca143b8c59fba6d
 ![confirm parent](https://images.wondershare.com/filmora/article-images/a-parent3.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/PKZUYice-ws?si=L8iMa9T3h7TMSWdQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Nyp7-xVwqHA?si=XCuZbpKLFIdrGQQh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 * 2\. Sign in with your preferred Google account.
 
 ![parent account](https://images.wondershare.com/filmora/article-images/parent-account4.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aknYnDfODro?si=zONIVzA9FFq0rLOD" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 * 3\. Here you’ll see a button **Send Parental Consent Emai**l, press it.
 * 4\. You’ll get an activation code on your email address.
@@ -115,7 +115,7 @@ thumbnail: https://thmb.techidaily.com/5962b87511edddba346cb57d7aca143b8c59fba6d
 ![home screen](https://images.wondershare.com/filmora/article-images/home-screen5.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/zmXpl6irBYk?si=BXjGpQr6PXFcqhCI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GyfJUhsz_AY?si=x2HjoLX1B89oEPgZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 * 2\. In the menu list, you will see **Block this video**, tap it.
@@ -124,11 +124,7 @@ thumbnail: https://thmb.techidaily.com/5962b87511edddba346cb57d7aca143b8c59fba6d
 ![get passcode](https://images.wondershare.com/filmora/article-images/pass-code6.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/_O8m9KphYzs?si=jITthzeyX_Kmt9X2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/sn2STvYRVb8?si=Z-XhJJ1Mc-Em5Kqy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aqeO4ed766s?si=AWtKHxP4hvQRd_lk" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### **II. Block from Watch Page**
@@ -153,6 +149,10 @@ thumbnail: https://thmb.techidaily.com/5962b87511edddba346cb57d7aca143b8c59fba6d
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FATJWpNYmio?si=72ugPTb3vJXz6cAM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
@@ -174,15 +174,24 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-helps.techidaily.com/new-eizos-ultra-hd-display-a-detailed-look-at-cg318-4k-for-2024/"><u>[New] EIZO's Ultra HD Display A Detailed Look at CG318-4K for 2024</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/new-free-chromebook-screen-recording-tools-ranked-for-2024/"><u>[New] FREE Chromebook Screen Recording Tools Ranked for 2024</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-anatomy-of-an-anti-viewer-cutting-edge-strategies-for-reversed-youtube-videos/"><u>[Updated] Anatomy of an Anti-Viewer Cutting Edge Strategies for Reversed YouTube Videos</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-best-free-subtitle-grabbers-from-youtube-archive-for-2024/"><u>[Updated] Best Free Subtitle Grabbers From YouTube Archive for 2024</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/free-introduction-software-for-youtubers/"><u>Best Free Introduction Software for Youtubers</u></a></li>
-<li><a href="https://discover-best.techidaily.com/experience-smooth-screen-recording-with-these-15-elite-no-cost-solutions/"><u>Experience Smooth Screen Recording with These 15 Elite, No-Cost Solutions!</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/in-2024-a-complete-guide-to-oem-unlocking-on-nokia-c02-by-drfone-android/"><u>In 2024, A Complete Guide To OEM Unlocking on Nokia C02</u></a></li>
-<li><a href="https://ai-vdieo-software.techidaily.com/in-2024-best-apps-to-animate-text-in-video-on-phone/"><u>In 2024, Best Apps To Animate Text In Video On Phone</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-use-allshare-cast-to-turn-on-screen-mirroring-on-zte-nubia-flip-5g-drfone-by-drfone-android/"><u>In 2024, How To Use Allshare Cast To Turn On Screen Mirroring On ZTE Nubia Flip 5G | Dr.fone</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ator-of-cinematic-soundscapes-and-imagery-for-2024/"><u>Innovator of Cinematic Soundscapes & Imagery for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-2024-approved-chorus-companion-selecting-scores-for-clips/"><u>[New] 2024 Approved Chorus Companion Selecting Scores for Clips</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/new-in-2024-comparative-study-black-hero-4-versus-x1000v-in-action-filming/"><u>[New] In 2024, Comparative Study Black Hero 4 Versus X1000V in Action Filming</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-the-elite-club-of-youtubes-favorite-shorter-videos/"><u>[New] In 2024, The Elite Club of YouTube's Favorite Shorter Videos</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ailoring-transitional-terminations-for-2024/"><u>[New] Tailoring Transitional Terminations for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-10-tricks-for-turning-youtube-watchlists-around/"><u>[Updated] 2024 Approved 10 Tricks for Turning YouTube Watchlists Around</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-2024-approved-crafting-curls-and-contours-creating-a-personalized-beauty-channel/"><u>[Updated] 2024 Approved Crafting Curls and Contours Creating a Personalized Beauty Channel</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-2024-approved-investing-successfully-with-a-makeup-channel/"><u>[Updated] 2024 Approved Investing Successfully with a Makeup Channel</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-curving-images-without-complication-a-guide-for-2024/"><u>[Updated] Curving Images without Complication A Guide for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-in-2024-from-hidden-channels-to-the-throne-of-1k-subscribers/"><u>[Updated] In 2024, From Hidden Channels to the Throne of 1K Subscribers</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/updated-in-2024-mastering-webinar-recording-techniques/"><u>[Updated] In 2024, Mastering Webinar Recording Techniques</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-the-playlist-wizard-youtube-music-edition-for-2024/"><u>[Updated] The Playlist Wizard YouTube Music Edition for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-your-journey-to-stylish-vlogging-a-beginners-guide-mac-edition-for-2024/"><u>[Updated] Your Journey to Stylish Vlogging A Beginner's Guide, Mac Edition for 2024</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/in-2024-in-depth-look-ultraedit-pro-for-video-cutting-2023/"><u>In 2024, In-Depth Look UltraEdit Pro for Video Cutting 2023</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-prevent-cross-site-tracking-on-vivo-v27-and-browser-drfone-by-drfone-virtual-android/"><u>In 2024, Prevent Cross-Site Tracking on Vivo V27 and Browser | Dr.fone</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/24-the-evolution-of-streaming-youtube-tv-in-focus/"><u>In 2024, The Evolution of Streaming YouTube TV In Focus</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/htful-steps-to-identify-your-viewers/"><u>Insightful Steps to Identify Your Viewers</u></a></li>
+<li><a href="https://some-tips.techidaily.com/introducing-the-ultimate-iot-companion-free-and-opensource-beyond-alexahomekit/"><u>Introducing the Ultimate IoT Companion: Free & Opensource - Beyond Alexa/HomeKit</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/reliable-and-economical-our-in-depth-review-on-the-apeman-c450-dashcam-model/"><u>Reliable and Economical: Our In-Depth Review on the Apeman C450 Dashcam Model</u></a></li>
+<li><a href="https://techidaily.com/unlock-android-phone-if-you-dont-have-vivo-y78plus-fingerprint-by-drfone-android-unlock-android-unlock/"><u>Unlock android phone if you don't have Vivo Y78+ fingerprint</u></a></li>
 </ul></div>
 

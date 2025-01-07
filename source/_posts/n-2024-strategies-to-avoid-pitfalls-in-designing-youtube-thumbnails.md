@@ -1,7 +1,7 @@
 ---
 title: "[New] In 2024, Strategies to Avoid Pitfalls in Designing YouTube Thumbnails"
-date: 2024-08-23T05:32:20.193Z
-updated: 2024-08-24T05:32:20.193Z
+date: 2025-01-05T20:57:36.497Z
+updated: 2025-01-06T21:13:21.084Z
 tags:
   - ai video
   - ai youtube
@@ -53,6 +53,10 @@ Using patterns for the background of your channel banner can help your channel l
 
 ![ YouTube Channel Banner Background](https://images.wondershare.com/filmora/article-images/youtube-channel-banner-background.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_O8m9KphYzs?si=jITthzeyX_Kmt9X2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 2: Should I Use My Face?
 
 Whether you should use your face on your channel banner depends on what your channel is about. If you have a channel focused on beauty, fashion, fitness, or family vlogs then it’s a good idea to include your face. It comes off personable and helps viewers relate to you. If you have a channel that is about something like gaming, tech reviews, or book reviews then it isn’t necessary to include your face because the focus of your content isn’t you as a personality.
@@ -70,11 +74,16 @@ That doesn’t mean you have to hire a photographer to take pictures for your ch
 It is always best to use a current photo of yourself. Many times viewers will go and follow you on social media as well. If they see that you have current photos on your social media but not on your channel, they are become confused and perhaps lose interest.
 
 <!-- affiliate ads begin -->
-<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=1300375&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-15_%281%29.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JAkb8Bv3AU4?si=2rHwnZYTzTLieKgY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Part 3: What Should I Write on My Banner?
 
 ![ YouTube Channel Banner writing](https://images.wondershare.com/filmora/article-images/youtube-channel-banner-write.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_7AYCS7zBU0?si=7R9oIpE4hyEbtk3x" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 #### _Do: Include Your Channel Name_
 
@@ -97,8 +106,9 @@ Including social media icons in your channel art lets people know where they can
 ![ YouTube Channel Banner Safe Area](https://images.wondershare.com/filmora/article-images/youtube-channel-banner-safe-area.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BGeneral%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/general-970x90.gif" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/O7ChChlyX2o?si=7pMKdN1NZig1kYek" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 _Make sure everything important fits in the safe area!_
 
 #### _Do: Include Brief Channel Description or Tag Line_
@@ -112,8 +122,9 @@ YouTubers that use tag lines are using their channel as a platform to carry out 
 Whether you decide to use descriptive words or a tag line, they will help your channel tremendously by setting expectations for your viewers.
 
 <!-- affiliate ads begin -->
-<a href="https://homestyler.sjv.io/c/5597632/2044747/22993" target="_top" id="2044747"><img src="//a.impactradius-go.com/display-ad/22993-2044747" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2044747/22993" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1KKovVi9epE?si=EF7KA7b4KsEpWA-M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Part 4: How Can I Make My Channel Art Look Good?
 
 #### _Do: Create Consistent Branding_
@@ -134,37 +145,25 @@ _Joshelle is a YouTuber from Atlanta, GA. She has a YouTube channel called [Elle
 
 Now that you know how to make a good YouTube banner, what will you do next?
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4576829&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/9e740b84bb48a64dde25061566299467/products/copy_1_jp_box_big.png" border="0">Jet Profiler for MySQL, Enterprise Version： Jet Profiler for MySQL is real-time query performance and diagnostics tool for the MySQL database server. Its detailed query information, graphical interface and ease of use makes this a great tool for finding performance bottlenecks in your MySQL databases. </a>
-<!-- affiliate ads end -->
 ## Touch Up YouTube Videos with Filmora
 
 [Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/)features lots of utilities for both video and audio editing. You can change the video speed or change the aspect ratio easily. Besides, there are plentiful filters, elements, effects and overlays built, so you can use them without costing any extra fee.
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<a href="https://martinic.evyy.net/c/5597632/1422856/4482" target="_top" id="1422856"><img src="//a.impactradius-go.com/display-ad/4482-1422856" border="0" alt="" width="580" height="309"/></a>
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://modlily.sjv.io/c/5597632/1997817/17059" target="_top" id="1997817"><img src="//a.impactradius-go.com/display-ad/17059-1997817" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1997817/17059" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -173,4 +172,20 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-tips.techidaily.com/mp-up-your-media-get-free-soundtracks/"><u>[New] Amp Up Your Media Get Free Soundtracks!</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-cut-to-impact-in-depth-youtube-video-editing-mastery/"><u>[New] In 2024, Cut to Impact In-Depth Youtube Video Editing Mastery</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-the-essentials-of-making-professional-level-facebook-reels-for-2024/"><u>[New] The Essentials of Making Professional-Level Facebook Reels for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-carryminatis-income-blueprint-journey-through-2023-for-2024/"><u>[Updated] CarryMinati's Income Blueprint Journey Through 2023 for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-from-good-to-great-videos-the-20-essential-shortcuts-for-success/"><u>[Updated] From Good to Great Videos The 20 Essential Shortcuts for Success</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-surprisingly-good-underrated-movie-hits/"><u>[Updated] Surprisingly Good Underrated Movie Hits</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/approved-seo-booster-essentials-for-top-online-videos/"><u>2024 Approved SEO Booster Essentials for Top Online Videos</u></a></li>
+<li><a href="https://blog-min.techidaily.com/4-ways-to-transfer-music-from-realme-narzo-60-5g-to-iphone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>4 Ways to Transfer Music from Realme Narzo 60 5G to iPhone | Dr.fone</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-life360-learn-how-everything-works-on-tecno-pova-5-pro-drfone-by-drfone-virtual-android/"><u>In 2024, Life360 Learn How Everything Works On Tecno Pova 5 Pro | Dr.fone</u></a></li>
+<li><a href="https://audio-shaping.techidaily.com/new-in-2024-enhancing-your-soundscapes-dynamic-volume-changes-made-simple-with-adobe-after-effects/"><u>New In 2024, Enhancing Your Soundscapes Dynamic Volume Changes Made Simple with Adobe After Effects</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/resolving-the-issue-of-unpredictable-wireless-mouse-disconnections-on-windows-operating-systems/"><u>Resolving the Issue of Unpredictable Wireless Mouse Disconnections on Windows Operating Systems</u></a></li>
+<li><a href="https://win-alternatives.techidaily.com/transforming-your-camera-images-into-an-engaging-flipslider-showcase-using-flipbuilder/"><u>Transforming Your Camera Images Into an Engaging FlipSlider Showcase Using FlipBuilder</u></a></li>
+<li><a href="https://some-tips.techidaily.com/unconventional-charm-of-apple-vision-pros-new-199-case-reveal-insights-from-zdnet/"><u>Unconventional Charm of Apple Vision Pro's New $199 Case Reveal - Insights From ZDNET</u></a></li>
+</ul></div>
 

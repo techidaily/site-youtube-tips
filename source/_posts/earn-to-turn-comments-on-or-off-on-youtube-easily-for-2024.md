@@ -1,7 +1,7 @@
 ---
 title: "[New] Learn to Turn Comments On or Off on YouTube Easily for 2024"
-date: 2024-08-23T05:32:06.129Z
-updated: 2024-08-24T05:32:06.129Z
+date: 2025-01-04T19:55:31.181Z
+updated: 2025-01-06T16:32:22.780Z
 tags:
   - ai video
   - ai youtube
@@ -30,6 +30,10 @@ As a brand, it is imperative to thoroughly read all the comments that your YouTu
 
 Keeping all these points in mind, the following sections explain **how to enable comments on YouTube** and **how to turn off comments on YouTube**. Here you will also get to know what other types of security and privacy options are there that you can use to filter the comments posted by the disturbing elements.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UcplMvRBulA?si=iBonbwDS1v7RAlHK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 1: How to Turn on or Turn off Comments for YouTube Channel
 
 If you don’t want any comments on any of the videos that you publish, you must learn **how to disable comments on the YouTube** channel. The process of doing so is explained below:
@@ -46,6 +50,10 @@ From the bottom of the left pane, click the **Settings** icon, click **Channel**
 
 ![  YouTube Channel Advanced Settings](https://images.wondershare.com/filmora/article-images/youtube-channel-advanced-settings.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/djPqRkskaBo?si=O6FEI-KVW0HwN417" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 #### Step 3: Turn Off Comments
 
 From the **Audience** section in the right pane itself, click to select the **Yes, set this channel as made for kids. I always upload content that’s made for kids** radio button. Click **SAVE** from the bottom-right corner to save the changes in order to turn off comments on all the videos on your YouTube channel.
@@ -58,11 +66,19 @@ Use the method explained above to get to the channel’s **Advanced settings** b
 
 ![  Turn on YouTube Channel Comments](https://images.wondershare.com/filmora/article-images/turn-on-channel-comments-advanced-settings.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UoBCgLTmznE?si=MXXiGsd2qpd_DrzE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 #### 2\. Define Acceptable Comment Types
 
 Click the **Settings** icon from the bottom of the left pane one more time. On the **Settings** box, go to the **Upload defaults** category from the left pane, and go to **Advanced settings** from the right. From the **Comment visibility** drop-down list under the **Comments** section in the right, choose your preferred comment allowance type, and click **SAVE** to allow the comments on the videos the channel has.
 
 ![ Set up YouTube video  Comments visibility](https://images.wondershare.com/filmora/article-images/set-up-youtube-comments-visibilities.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GyfJUhsz_AY?si=x2HjoLX1B89oEPgZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 #### 3\. Set Comment Allowance for Videos
 
@@ -112,10 +128,6 @@ From under the **Audience** section in the right window of the **Video details**
 
 **Note:** To learn **how to disable comments on YouTube** for specific video, you can repeat the above steps, and choose the **Yes, it’s made for kids** radio button from the **Audience** section when you are on the **Video details** page.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=30901410&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/copy_1_copy_vMixCallScreenshot1-large.jpg" border="0"> vMix Pro - Software based live production. vMix Pro includes everything in vMix 4K plus 8 channels of Replay and 8 vMix Call 
-This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
-<!-- affiliate ads end -->
 ## FAQs About YouTube Comments
 
 #### 1\. Why can’t I comment on the YouTube video?
@@ -133,8 +145,9 @@ You can go to **YouTube Studio** \> **Settings** \> **Community**, and on the **
 ![ Block YouTube   commnets ](https://images.wondershare.com/filmora/article-images/block-users-youtube-comment.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://printrendy.pxf.io/c/5597632/1453721/17020" target="_top" id="1453721"><img src="//a.impactradius-go.com/display-ad/17020-1453721" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1453721/17020" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/May-pLCUkEA?si=PGlcFZAlsp3S3beI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 #### 4\. If I turn comments off and back on again, will the old comments come back?
 
 Yes. When you turn off the comments, the existing comments disappear. When you turn them back on, all the previous comments reappear, and become visible to the audience.
@@ -149,23 +162,17 @@ It is easy to understand **how to turn on comments on YouTube**. The best thing 
 
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://arkmc.pxf.io/c/5597632/427477/5172" target="_top" id="427477"><img src="//a.impactradius-go.com/display-ad/5172-427477" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://arkmc.pxf.io/i/5597632/427477/5172" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Liza Brown
 
 Liza Brown is a writer and a lover of all things video.
 
 Follow @Liza Brown
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -174,4 +181,21 @@ Follow @Liza Brown
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-clips.techidaily.com/new-harness-the-power-of-storytelling-making-captivating-reels-on-facebook-for-2024/"><u>[New] Harness the Power of Storytelling Making Captivating Reels on Facebook for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-2024-approved-exploring-biggest-fifa-footage-trends-in-graphics/"><u>[Updated] 2024 Approved Exploring Biggest FIFA Footage Trends in Graphics</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-2024-approved-thriving-in-the-youtube-ecosystem-backlink-building-essentials/"><u>[Updated] 2024 Approved Thriving in the YouTube Ecosystem Backlink Building Essentials</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/updated-breathing-life-into-your-phone-the-complete-guide-to-android-audio-customization/"><u>[Updated] Breathing Life Into Your Phone The Complete Guide to Android Audio Customization</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-optimizing-channel-branding-to-skyrocket-subscriber-numbers-for-2024/"><u>[Updated] Optimizing Channel Branding to Skyrocket Subscriber Numbers for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-streaming-wars-recap-fb-live-yt-live-and-twitter-spaces/"><u>[Updated] Streaming Wars Recap FB LIVE, YT Live & Twitter Spaces</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/approved-a-taste-of-film-home-cooks-visual-journey/"><u>2024 Approved A Taste of Film Home Cook's Visual Journey</u></a></li>
+<li><a href="https://change-location.techidaily.com/4-solution-to-get-rid-of-pokemon-fail-to-detect-location-on-vivo-s17-drfone-by-drfone-virtual-android/"><u>4 solution to get rid of pokemon fail to detect location On Vivo S17 | Dr.fone</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/in-2024-how-to-master-every-feature-of-periscope/"><u>In 2024, How to Master Every Feature of Periscope</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/izing-engagement-the-power-of-tailored-cards-and-ends-on-yt-for-2024/"><u>Maximizing Engagement The Power of Tailored Cards & Ends on YT for 2024</u></a></li>
+<li><a href="https://fox-pages.techidaily.com/navigating-and-fixing-control-panel-errors-with-professional-tips-by-yl-software-experts/"><u>Navigating and Fixing Control Panel Errors with Professional Tips by YL Software Experts</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210284654-9781735740102-self-empower-using-self-coaching-neuroadaptability-and-ayurveda/"><u>Self Empower: Using Self Coaching, Neuroadaptability, and Ayurveda | Free Book</u></a></li>
+<li><a href="https://ai-driven-video-production.techidaily.com/the-battle-for-video-supremacy-adobe-premiere-vs-after-effects/"><u>The Battle for Video Supremacy Adobe Premiere vs After Effects</u></a></li>
+<li><a href="https://some-skills.techidaily.com/twitch-revival-tactics-for-forgotten-sessions-for-2024/"><u>Twitch Revival Tactics for Forgotten Sessions for 2024</u></a></li>
+</ul></div>
 

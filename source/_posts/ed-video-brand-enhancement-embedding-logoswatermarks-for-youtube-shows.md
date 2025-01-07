@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Video Brand Enhancement  Embedding Logos/Watermarks for YouTube Shows\""
-date: 2024-08-15T23:04:25.332Z
-updated: 2024-08-16T23:04:25.332Z
+date: 2024-12-30T21:57:08.568Z
+updated: 2025-01-06T20:32:22.697Z
 tags:
   - ai video
   - ai youtube
@@ -43,8 +43,9 @@ A [watermark](https://en.wikipedia.org/wiki/Watermark) is a still image that is 
 * [**Part 2: Add logos or watermarks to your videos before uploading**](#part2)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=33729450&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/7f687767ccf20fcea1c9dc4a5adc2326/Digisigner_banner_728_x_90_color_version.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/e4Nt2xXXtmE?si=CtKwFry4b0AJXnaN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Part 1: How to add logo or watermark to in existing YouTube videos
 
 To add a watermark to your previously uploaded videos you will need to have created and saved your watermark outside of your video editing program.
@@ -56,6 +57,10 @@ To add a watermark to your previously uploaded videos you will need to have crea
 * This will lead you to setting center. Click on "view additional features"
 
 ![youtube watermark view additional features](https://images.wondershare.com/filmora/article-images/view-additional-features.JPG)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/xg3PHS_Ee80?si=fE_iGIqHjKvWFIN3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 * To the left of the window, Click the third option of "branding"
 * Click on "add watermark". Then you can choose an image from your computer. After your image is uploaded, click save.
@@ -89,8 +94,9 @@ The following steps have to be taken to add a watermark:
 * Save the video
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
+
 <!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/863039/11832" target="_top" id="863039"><img src="//a.impactradius-go.com/display-ad/11832-863039" border="0" alt="" width="300" height="250"/></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Nyp7-xVwqHA?si=XCuZbpKLFIdrGQQh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 #### 2\. [Windows movie maker](https://windows-movie-maker.en.softonic.com/)
@@ -127,22 +133,25 @@ The image should be in .PNG or .GIF format.
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<a href="https://electronicx.pxf.io/c/5597632/1872496/14483" target="_top" id="1872496"><img src="//a.impactradius-go.com/display-ad/14483-1872496" border="0" alt="" width="750" height="625"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1872496/14483" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/7JBG_O3Vnh4?si=lUO0fta6YPJ50qjg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Part 3: How to Create a Transparent logo for Youtube Channel
 
 Do you want to make a transparent image as logo for your YouTube? If you want to brand your YouTube channel, we believe it is a must to add transparent logo for YouTube branding. Actually, you can do this in Filmora just with a green screen image. Check the steps below to know the secret.
 
 <!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BEducational%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/educational-970x90.gif" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/E3yY7lZ-FKA?si=g8VEuExP8GH59B69" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### Step 1: Import video and image to Filmora
 
 Open Filmora. Choose **Create New Project**. Click import media files here in Media library. Select your video and a green screen image. In fact, a green screen video is also accessable, but usually brand logo is image. Now drag them onto timeline.
 
 ![import video and image](https://images.wondershare.com/filmora/article-images/import-video-9.jpg)
+
 <!-- affiliate ads begin -->
-<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BSysTools%2BPDF%2BUnlocker"><img src="https://www.systoolsgroup.com/box/pdf-unlocker.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fvAC8jgs62o?si=xqEXZ7dpAXZ4sZ7A" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Step 2: Import video and image to Filmora
@@ -150,23 +159,14 @@ Open Filmora. Choose **Create New Project**. Click import media files here in Me
 Right click on the image clip in the timeline. Choose **Green Screen**. You will see the image is transparent in the preview window. Now, you need to adjust some details. You can adjust edge thickness and edge feather to better edge. If the green screen background is not totally removed, drag tolerance to adjust it.
 
 ![youtube logo transparent image](https://images.wondershare.com/filmora/article-images/change-green-screen-effect.jpg)
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068425/7443" target="_top" id="2068425"><img src="//a.impactradius-go.com/display-ad/7443-2068425" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068425/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Step 3: Scale the logo
 
 You can clip the image clip first and go to preview window to scale it down or up by dragging the green dot. You can put the YouTube logo at corner.
 
 ![transparent youtube logo for branding](https://images.wondershare.com/filmora/article-images/transparent-logo-for-youtube.jpg)
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4699091&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/bccefcc1b1eee9eca3ae4f5c1a281482/products/1_jutoh-logo-1200x1600.jpg" border="0">Jutoh Plus -  Jutoh is an ebook creator for Epub, Kindle and more. It's fast, runs on Windows, Mac, and Linux, comes with a cover design editor, and allows book variations to be created with alternate text, style sheets and cover designs. Jutoh Plus adds scripting so you can automate ebook import and creation operations. It also allows customisation of ebook HTML via templates and source code documents; and you can create Windows CHM and wxWidgets HTB help files. </a>
-<!-- affiliate ads end -->
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4715391&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/7f687767ccf20fcea1c9dc4a5adc2326/Digisigner_banner_728_x_90_color_version.png" border="0"></a>
-<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -174,14 +174,11 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -190,4 +187,19 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://vimeo-videos.techidaily.com/new-2024-approved-how-to-download-vimeo-videos-withwithout-software-100-useful/"><u>[New] 2024 Approved How to Download Vimeo Videos With/Without Software [100% Useful]</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-deletion-methods-for-youtubes-backlogged-video-collection/"><u>[Updated] Deletion Methods for YouTube's Backlogged Video Collection</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-in-2024-how-to-rotate-youtube-videos-by-any-angle/"><u>[Updated] In 2024, How to Rotate YouTube Videos by Any Angle</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-mastering-the-art-of-valorant-thumbnail-design-for-youtube-content-for-2024/"><u>[Updated] Mastering the Art of Valorant Thumbnail Design for YouTube Content for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-mastering-youtube-channel-lockdowns-device-specific-tips-for-2024/"><u>[Updated] Mastering YouTube Channel Lockdowns Device-Specific Tips for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-unveiling-the-8-leading-no-monetary-cost-video-tools-for-editors-for-2024/"><u>[Updated] Unveiling the 8 Leading No-Monetary-Cost Video Tools for Editors for 2024</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/cutting-edge-android-time-lapse-methods-2024-edition/"><u>Cutting-Edge Android Time-Lapse Methods 2024 Edition</u></a></li>
+<li><a href="https://fox-place.techidaily.com/decouvrez-9-astuces-rapides-pour-resoudre-les-problemes-de-lexplorateur-de-fichiers-sous-windows-11/"><u>Découvrez 9 Astuces Rapides Pour Résoudre Les Problèmes De L'Explorateur De Fichiers Sous Windows 11</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/effective-solutions-for-msconfigexe-is-not-found-errors/"><u>Effective Solutions for 'msconfig.exe Is Not Found' Errors</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/in-2024-how-to-use-luts-in-photoshop-cc/"><u>In 2024, How to Use LUTs in PhotoShop CC</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/24-quick-turn-artistry-professionally-crafted-valorant-game-imagery/"><u>In 2024, Quick-Turn Artistry Professionally Crafted Valorant Game Imagery</u></a></li>
+<li><a href="https://smart-video-editing.techidaily.com/updated-in-2024-mac-video-editor-software-edit-videos-on-mac/"><u>Updated In 2024, Mac Video Editor Software Edit Videos on Mac</u></a></li>
+</ul></div>
 

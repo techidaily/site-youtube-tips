@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] In 2024, The Art of Patience  Slowing Down Videos on YouTube (51 Chars)\""
-date: 2024-08-23T05:32:35.855Z
-updated: 2024-08-24T05:32:35.855Z
+date: 2025-01-04T16:42:37.025Z
+updated: 2025-01-06T20:14:20.799Z
 tags:
   - ai video
   - ai youtube
@@ -30,6 +30,10 @@ Have you ever wanted to learn something from a YouTube video, but found that the
 * [Part 2: Add Slow Motion with Wondershare Filmora (originally Wondershare Video Editor)](#part2)
 * [Part 3: Add Slow Motion with YouTube Video Editor](#part1)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Nyp7-xVwqHA?si=XCuZbpKLFIdrGQQh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 1: YouTube Slow Down: How to Play YouTube Videos in Slow Motion
 
 While, you can now change the speed of any YouTube videos easily and watch YouTube videos in slow motion in a few steps. Below is how to slow down YouTube Videos:
@@ -38,6 +42,10 @@ While, you can now change the speed of any YouTube videos easily and watch YouTu
 * Click the **Settings icon** on the bottom right and then you will see Autoplay, Annotations, Speed, Subtitles, and Quality options. By default, the speed is set to Normal. Click **Speed** and open the speed change options. The speed options are in multiples.
 
 ![ change youtube speed ](https://images.wondershare.com/filmora/article-images/youtube-speed-change.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/wNhKhWc0wLc?si=1XLYV0sXV52Xc0lu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 * Choose the target video speed from 0.25x, 0.5x, 0.75x to slow down the play back speed of the YouTube video. You can also select 1.25x, 1.5x, 1.75x or 2x to fast forward this YouTube video depending on how fast or slow you want the playback of the YouTube video to be.
 * That’s it how to make a YouTube video slow down by changing the playback speed. If you selected 0.5X, you will see the playback speed is half of the original speed. You can now see the YouTube video is played back in a slower speed.
@@ -60,6 +68,10 @@ After downloading YouTube videos on hard disk, you can now import it to this You
 
 ![YouTube Slow Motion](https://images.wondershare.com/filmora/article-images/video-editor-main-interface-1.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aIx71tPaWKg?si=lG5OiUe-M6eBJf5b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 #### Step 2. One click to add slow motion to YouTube video
 
 On the Timeline, click on the added YouTube video and select   **Speed and Duration** to open up the video custom speed window. You will see the Speed option, Duration, Reverse Speed and Ripple Edit options. and the speed number indicates fast or slow motion. To slow down the YouTube video, drag the speed slider to left and you get a slow down version of the YouTube video. You can slow down the YouTube video in 0.01x. Click the OK button to save the slow motion settings and then click the Play button in the preview windows to have a look at the new YouTube slow down video. You can also change the duration of the YouTube video to change the YouTube video speed. For example, if you want to slow down a 30-second YouTube video to half speed, you can just enter the duration to 60 seconds to get a slow down motion effect.
@@ -76,13 +88,14 @@ You could continue editing YouTube videos. When all done, click "Export" to save
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LaWcXdTn5SE?si=QbxEkX-4a17J5RVs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 See, with Filmora video editor you can slow down YouTube videos with ease, what’s more, you can also apply reverse effects to play Youtube videos backwards. Download and try this YouTube Slow motion effect and you will master how to slow down YouTube videos.
 
 **Related:**[How to Make Slow/Fast Motion Videos](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<a href="https://store.movavi.com/affiliate.php?ACCOUNT=MOVAVI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.movavi.com%3FAFFILIATE%3D108875%26RESOURCE%3DMovavi%2BVideo%2BConverter%2BBox"><img src="https://mcusercontent.com/0885a03ded3d480dca9287f12/images/8020c1dc-518e-3bdf-6e7b-e6d1bdf1597b.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ## Part 3: Slow down YouTube videos with Slow Motion in YouTube Video Editor
 
 **Updated:** From 20th September 2017 users will no longer be able to use the complimentary editing suite. Check the best [YouTube video editor alternatives](https://tools.techidaily.com/wondershare/filmora/download/) from this complete guide.
@@ -95,18 +108,6 @@ If you've ever been annoyed by the speed of your user-generated videos on YouTub
 
 ![slow motion youtube video](https://images.wondershare.com/images/multimedia/video-editor/youtube-slow-motion.png)
 
-<!-- affiliate ads begin -->
-<span id="1993652">
-					<video width="720" height="300" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993652.jpeg"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993652">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993652.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:720px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993652%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993652/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 If you just want to slow down parts of the video, go back to the main editing tab, clip it from the original video using the slicing tool and add the slow-motion effect to that clip only. You can then arrange the different clips you have in the editor to create your final video.
 
 **Step 3:** Tick the option "Preview effects side-by-side" with original video and then you can see how the original video plays compared to the one you've slowed down. If you're happy with the result, hit "Done" to save the settings.
@@ -118,27 +119,22 @@ Above are the 3 ways that you can watch a YouTube video in slow motion, and slow
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<a href="https://twopages.pxf.io/c/5597632/1873313/18544" target="_top" id="1873313"><img src="//a.impactradius-go.com/display-ad/18544-1873313" border="0" alt="" width="1080" height="1263"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1873313/18544" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jvwX82j3ci0?si=gAWoovjXgs3m1d7S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://shop.manycam.com/order/checkout.php?PRODS=17728032&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/mcaffbanner920x120.png" border="0"></a>
-<!-- affiliate ads end -->
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -147,4 +143,24 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-tips.techidaily.com/rom-streaming-video-how-to-get-youtube-thumbnail-files-onlineos-wise-for-2024/"><u>[New] From Streaming Video How to Get YouTube Thumbnail Files Online/OS-Wise for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-perfect-your-video-pacing-with-these-snapchat-tips-for-2024/"><u>[New] Perfect Your Video Pacing with These Snapchat Tips for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/nveiling-t-series-profit-generation-methods-on-youtube-for-2024/"><u>[New] Unveiling T-Series' Profit Generation Methods on YouTube for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-delving-into-how-t-series-earnings-work-on-youtube-for-2024/"><u>[Updated] Delving Into How T-Series Earnings Work on Youtube for 2024</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/updated-in-2024-cultivate-connections-top-10-agrigames-for-farm-tastic-fun/"><u>[Updated] In 2024, Cultivate Connections Top 10 AgriGames for Farm-Tastic Fun</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-in-2024-decrypting-youtubes-view-count-calculation-system/"><u>[Updated] In 2024, Decrypting YouTube’s View-Count Calculation System</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-the-ultimate-guide-to-free-multimedia-content-creation/"><u>[Updated] The Ultimate Guide to Free Multimedia Content Creation</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/2024-approved-framelock-the-future-of-screen-capturing/"><u>2024 Approved 'Framelock' – The Future of Screen Capturing?</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/approved-tag-wisdom-enhance-your-youtube-content/"><u>2024 Approved Tag Wisdom Enhance Your YouTube Content</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/comprehensive-analysis-microsoft-surface-pro-8-the-ultimate-device-for-enterprises-techinsight/"><u>Comprehensive Analysis: Microsoft Surface Pro 8 - The Ultimate Device for Enterprises | TechInsight</u></a></li>
+<li><a href="https://win-forum.techidaily.com/expert-advice-strengthen-windows-defenses-with-these-5-techniques/"><u>Expert Advice: Strengthen Window's Defenses with These 5 Techniques</u></a></li>
+<li><a href="https://fake-location.techidaily.com/in-2024-best-10-mock-location-apps-worth-trying-on-oneplus-ace-3-drfone-by-drfone-virtual-android/"><u>In 2024, Best 10 Mock Location Apps Worth Trying On OnePlus Ace 3 | Dr.fone</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-does-life360-notify-when-you-log-out-on-realme-12-proplus-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Does Life360 Notify When You Log Out On Realme 12 Pro+ 5G? | Dr.fone</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ary-spectrum-a-glimpse-into-mr-beasts-world/"><u>Monetary Spectrum A Glimpse Into Mr. Beast’s World</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138570631-9780595897759-the-battle-between-faith-and-fear/"><u>The Battle Between Faith and Fear | Free Book</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/attle-between-youtubes-copyright-clause-and-cc-license/"><u>The Battle Between YouTube’s Copyright Clause & CC License</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/be-comment-management-turn-it-on-or-off-for-2024/"><u>YouTube Comment Management Turn It On or Off for 2024</u></a></li>
+</ul></div>
 

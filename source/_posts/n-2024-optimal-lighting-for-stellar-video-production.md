@@ -1,7 +1,7 @@
 ---
 title: "[New] In 2024, Optimal Lighting for Stellar Video Production"
-date: 2024-12-26T23:33:50.547Z
-updated: 2024-12-27T20:09:55.796Z
+date: 2024-12-30T17:50:53.321Z
+updated: 2025-01-06T17:16:13.351Z
 tags:
   - ai video
   - ai youtube
@@ -33,13 +33,13 @@ Going outside and using natural light is the cheapest way to get a lot of light 
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/n-66V-LRK3Y?si=fNeB2pXCePeQli6E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Video Lighting Basics: Three Point Lighting
 
 ![ Lighting for YouTube Video](https://images.wondershare.com/filmora/article-images/three-point-lighting.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jf0JvOqiAXc?si=kHEHQGC_PhBv4xij" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 The most common technique of lighting a scene is called **three-point lighting**. It involves three different sources of light in the shot and is used by portrait photographers, which is also a great method for lighting your vlog.
 
@@ -54,10 +54,14 @@ The **fill light** is less bright than the primary source of light and it is pla
 The final step to creating three point lighting is to set up another light behind you. This is your 'Backlight', and it will help you stand out from your background. **Backlight or Hair light** is always placed behind and above the subject to create separation between the subject in the shot and the background. This basic lighting technique can be applied in almost every scene you shoot, which is why it is important to keep an open mind and to continue experimenting with possible light setups.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YfEPmG_O6F8?si=93ZTVtH_zjFRz5eh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/OdlXe5RELW0?si=Iz1H1QnLQVw-Eu3e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Watch Video! Top Lighting Tips for Vlogging
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RhLjZsruC9M?si=-861oUSfrUde2Ykt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Lightning Tips for Aspiring YouTube Videographers
 
@@ -86,7 +90,7 @@ Sets of reflectors are often under $50, so they are fairly affordable. However, 
 ![lighting tips](https://images.wondershare.com/filmora/article-images/lighting-tips01.JPG)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/NC0rdKEQ98o?si=HYgqC8CxF_WTO5if" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/P6Wfzj6YNDM?si=WRZQD9zCdQ1_tW1b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 If your strong main light is too hard on your eyes then you can use a translucent 'reflector' to soften it. Set your translucent reflector, or other screen, up in front of your main light to diffuse it.
@@ -96,7 +100,7 @@ If you are hosting a **beauty vlog** then you might consider a slightly differen
 ![lighting tips](https://images.wondershare.com/filmora/article-images/lighting-tips02.JPG)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/SgRVYjqB70s?si=My_2cDvJVdincQRu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/eu4vwlZcMvM?si=4vEczfVU4BUUFP-t" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 If you are using all of the lighting options available to you and your video still looks too dark then you can try brightening it by **opening up the aperture of your camera** lens/setting a lower f-stop. Letting more light into your camera can help your footage look brighter, although you also run the risk of making things look overexposed/ washed out if you are not careful.
@@ -104,10 +108,6 @@ If you are using all of the lighting options available to you and your video sti
 If you are stuck shooting in **low light conditions** it is best to use a lens with a wider aperture/lower f-stop. This will make the best of the light you do have.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/UUPt2zKtJ5k?si=LLHdsFDLzVByJsKj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -130,18 +130,20 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-blue.techidaily.com/new-2024-approved-ultimate-web-compendium-alarm-rhythms-guidebook/"><u>[New] 2024 Approved Ultimate Web Compendium Alarm Rhythms Guidebook</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/harting-the-course-for-youtube-keyword-mastery/"><u>[New] Charting the Course for YouTube Keyword Mastery</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/trike-gold-on-youtube-peak-hours-guide-for-2024/"><u>[New] Strike Gold on YouTube Peak Hours Guide for 2024</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/updated-beauty-brilliance-masterclasses-and-product-explorations-for-2024/"><u>[Updated] Beauty Brilliance Masterclasses and Product Explorations for 2024</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-professional-video-production-pick-your-favorite-sounds-for-2024/"><u>[Updated] Professional Video Production - Pick Your Favorite Sounds for 2024</u></a></li>
-<li><a href="https://ios-unlock.techidaily.com/apple-iphone-15-pro-max-asking-for-passcode-after-ios-1714-update-what-to-do-by-drfone-ios/"><u>Apple iPhone 15 Pro Max Asking for Passcode after iOS 17/14 Update, What to Do?</u></a></li>
-<li><a href="https://program-issues.techidaily.com/expert-tips-on-getting-your-lost-ark-running-smoothly-again-2024-edition/"><u>Expert Tips on Getting Your Lost Ark Running Smoothly Again, 2024 Edition</u></a></li>
-<li><a href="https://fake-location.techidaily.com/how-to-simulate-gps-movement-with-location-spoofer-on-vivo-y27-4g-drfone-by-drfone-virtual-android/"><u>How To Simulate GPS Movement With Location Spoofer On Vivo Y27 4G? | Dr.fone</u></a></li>
-<li><a href="https://techidaily.com/how-to-update-apple-iphone-15-without-data-loss-drfone-by-drfone-ios-system-repair-ios-system-repair/"><u>How to Update Apple iPhone 15 without Data Loss? | Dr.fone</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/24-investigating-the-economics-of-t-series-on-youtube/"><u>In 2024, Investigating the Economics of T-Series on YouTube</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/24-investors-intuition-selecting-stock-channel-wisely/"><u>In 2024, Investor's Intuition Selecting Stock Channel Wisely</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/1726227583001-movavi-video-editor/"><u>Movavi Video Editor: 高效下载与使用指南</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/why-havent-we-seen-new-chatgpt-jailbreaks-unveiling-the-seven-barriers-to-their-success/"><u>Why Haven't We Seen New ChatGPT Jailbreaks? Unveiling the Seven Barriers to Their Success</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/new-boost-channels-to-partner-status-in-under-90-days-start-now/"><u>[New] Boost Channels to Partner Status in Under 90 Days, Start Now!</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/levate-your-content-pc-video-editing-for-effective-youtube-presentations/"><u>[New] Elevate Your Content PC Video Editing for Effective YouTube Presentations</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-redefining-the-art-of-editing-a-deep-dive-into-youtube-studios-capabilities/"><u>[New] In 2024, Redefining the Art of Editing A Deep Dive Into YouTube Studio's Capabilities</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/aving-youtube-videos-a-legal-overview/"><u>[New] Saving YouTube Videos A Legal Overview</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-2024-approved-energy-savings-calculations-while-not-directly-impacting-installation-cost-understanding-potential-energy-savings-is-crucial-for-long-/"><u>[Updated] 2024 Approved __Energy Savings Calculations__ While Not Directly Impacting Installation Cost, Understanding Potential Energy Savings Is Crucial for Long-Term ROI Analysis.</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/1725289066383-dvd/"><u>「パソコンで問題なく動かせる DVDのフリーダウンロード手順」</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/approved-behind-the-scenes-insider-knowledge-for-youtube-video-production/"><u>2024 Approved Behind the Scenes Insider Knowledge for YouTube Video Production</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/2024-approved-precise-process-installing-snapchat-on-a-mac-os/"><u>2024 Approved Precise Process Installing Snapchat on a Mac OS</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/chart-analyst-master-video-popularity-for-2024/"><u>Apex Chart Analyst Master Video Popularity for 2024</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/brand-storytelling-through-imagery-a-podcast-designers-guide-for-2024/"><u>Brand Storytelling Through Imagery A Podcast Designer's Guide for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ic-discussions-for-regular-streaming/"><u>Dynamic Discussions for Regular Streaming</u></a></li>
+<li><a href="https://win-luxury.techidaily.com/gunstigere-moglichkeiten-eine-festplatte-unter-windows-1011-ohne-kosten-zu-loschen/"><u>Günstigere Möglichkeiten, Eine Festplatte Unter Windows 10/11 Ohne Kosten Zu Löschen</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95808938-9781616405830-looking-for-orthon/"><u>Looking for Orthon | Free Book</u></a></li>
+<li><a href="https://fake-location.techidaily.com/prevent-cross-site-tracking-on-nubia-red-magic-8s-proplus-and-browser-drfone-by-drfone-virtual-android/"><u>Prevent Cross-Site Tracking on Nubia Red Magic 8S Pro+ and Browser | Dr.fone</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95775814-9781946764010-the-nest-in-the-stream/"><u>The Nest in the Stream | Free Book</u></a></li>
 </ul></div>
 

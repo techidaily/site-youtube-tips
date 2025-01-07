@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  4 Ways To Set Up Your Talking-Head Shots For YouTube\""
-date: 2024-12-22T08:08:04.327Z
-updated: 2024-12-28T09:07:10.209Z
+date: 2025-01-05T20:58:48.788Z
+updated: 2025-01-06T22:41:08.077Z
 tags:
   - ai video
   - ai youtube
@@ -36,10 +36,6 @@ A big part of being a YouTuber involves talking to the camera. How you set up yo
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qmQjRcnaq9g?si=jadcGtXemUAlKOTa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## How to Set Up Your Talking Heads Shots for YouTube Video \[Infographic\]
 
 We’ve summarized the key points about setting up talking head style video shots with the Infographic below. It is welcomed to share on social media.
@@ -47,14 +43,14 @@ We’ve summarized the key points about setting up talking head style video shot
 ![ Setting up Talking Heads Video Shots for YouTube](https://images.wondershare.com/filmora/article-images/talking-heads-youtube-video-shots-set-up.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fHWdQw1gRyI?si=ve9wZnPupiooLThG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2ipTu54inBo?si=gRegjvtVq5gm_PHo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aYH0B2HqcIM?si=3fkoG85L6hAeB4ok" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How to Set Up Your Talking-Head Shots for YouTube \[4 Ways\]
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/FLO5dwmJAVs?si=1OYH8rv8aPaMsCiU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 1.  Close Quarters Wide-Angle Vlog Set-Up
 
@@ -69,10 +65,6 @@ In the video above, Sean Cannell demonstrates this set-up. As you can see from t
 Objects and people that just make it into the sides of the frame will appear more stretched out as the wide-angle causes distortion and enhances perspectives.
 
 If you look closely into Sean’s eyes, you can also see a specular highlight in the shape of a circle. Many people like the way eyes look against a ring light.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/K7fATC_lI7o?si=UFotPJqflDRZr-mv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 2.  Medium Vlog Set-Up
 
@@ -96,10 +88,6 @@ If you look back at the 39-second mark of deadmau5’s Masterclass trailer, you 
 
 With two people, though, you’ll want to set up your mic slightly differently. Rather than using a directional shotgun mic with a narrow area of sensitivity, you’ll want to use a directional mic with a wider area of sensitivity.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qNrOsjUdRz0?si=xGzhmNmtgxNTsRxN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 4.  Long Teleprompter Vlog Set-Up
 
 If you want to read over a script but still make it appear like you’re looking straight into the camera, you’ll need to use a long teleprompter vlog set-up.
@@ -116,13 +104,25 @@ It is difficult to know whether the movement in his eyes is caused by not being 
 
 Looking to find the right lights for your video recording set? Check out our [Top 17 Video Lighting Equipment For YouTubers](https://www.filmora.io/community-blog/top-17-video-lighting-equipment-for-youtubers-440.html).
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XoC2TGp1PLY?si=iH9xs76NhWn4pP-E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Tips for Making a Talking Head Video Better
 
 To make a talking-head video more interesting, you can add some background music to the video, apply some interesting texts or elements. [Filmora](https://tools.techidaily.com/wondershare/filmora/download/) has built-in royalty-free music tracks and sound effects as well as [text templates](https://tools.techidaily.com/wondershare/filmora/download/), filters and motivating elements. Download the free trial version below and release your creativity.
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/d-COuhPT5mk?si=wLZU6jkkAdJuAn6h" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/c1yHj02oP3w?si=mwi3FyP0p68gkBqV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -145,17 +145,19 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-tips.techidaily.com/hannel-control-center-creator-studio-essentials-for-2024/"><u>[New] Channel Control Center Creator Studio Essentials for 2024</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/n-2024-top-essentials-for-launching-a-youtube-success-story/"><u>[New] In 2024, Top Essentials for Launching a YouTube Success Story</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-2024-approved-thumbnail-scaling-techniques-for-youtube/"><u>[Updated] 2024 Approved Thumbnail Scaling Techniques for YouTube</u></a></li>
-<li><a href="https://fox-info.techidaily.com/updated-the-ultimate-hdr-tutorial-for-exceptional-portraits/"><u>[Updated] The Ultimate HDR Tutorial for Exceptional Portraits</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/approved-building-interest-with-budget-friendly-youtube-video-intros/"><u>2024 Approved Building Interest with Budget-Friendly YouTube Video Intros</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/approved-how-to-stand-out-yt-thumbnail-size-and-engagement-strategies/"><u>2024 Approved How to Stand Out YT Thumbnail Size and Engagement Strategies</u></a></li>
-<li><a href="https://article-files.techidaily.com/a-comprehensive-review-of-the-hp-envy-27s-4k-tech/"><u>A Comprehensive Review of the HP Envy 27'S 4K Tech</u></a></li>
-<li><a href="https://location-social.techidaily.com/how-to-change-location-on-facebook-dating-for-your-infinix-smart-7-hd-drfone-by-drfone-virtual-android/"><u>How to Change Location On Facebook Dating for your Infinix Smart 7 HD | Dr.fone</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/in-2024-eluding-digital-footprints-while-enjoying-instagram-stories-online/"><u>In 2024, Eluding Digital Footprints While Enjoying Instagram Stories Online</u></a></li>
-<li><a href="https://apple-account.techidaily.com/in-2024-how-to-remove-an-airtag-from-your-apple-id-account-from-iphone-15-pro-max-by-drfone-ios/"><u>In 2024, How to Remove an AirTag from Your Apple ID Account From iPhone 15 Pro Max?</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/pokemon-go-error-12-failed-to-detect-location-on-xiaomi-redmi-12-5g-drfone-by-drfone-virtual-android/"><u>Pokemon Go Error 12 Failed to Detect Location On Xiaomi Redmi 12 5G? | Dr.fone</u></a></li>
-<li><a href="https://bypass-frp.techidaily.com/ultimate-guide-from-google-pixel-fold-frp-bypass-by-drfone-android/"><u>Ultimate Guide from Google Pixel Fold FRP Bypass</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/new-how-to-create-vintage-videos-a-comprehensive-tutorial/"><u>[New] How to Create Vintage Videos A Comprehensive Tutorial</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-stream-video-smoothly-save-pcmac-screens-to-youtube/"><u>[New] In 2024, Stream Video Smoothly Save PC/Mac Screens to YouTube</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-youtubes-erased-memories-how-to-revisit-them-online/"><u>[New] In 2024, Youtube's Erased Memories How to Revisit Them Online</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-2024-approved-gifts-that-speak-volumes-a-compendium-of-custom-box-shops-online/"><u>[Updated] 2024 Approved Gifts That Speak Volumes A Compendium of Custom Box Shops Online</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-2024-approved-mp3-upload-process-stream-convert-and-share-on-youtube-quickly/"><u>[Updated] 2024 Approved MP3 Upload Process Stream, Convert & Share on YouTube Quickly</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-step-into-stardom-with-these-10-essential-channel-banner-makers-for-2024/"><u>[Updated] Step Into Stardom with These 10 Essential Channel Banner Makers for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/approved-the-best-3d-software-perfect-for-youtube-openers/"><u>2024 Approved The Best 3D Software Perfect for YouTube Openers</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-how-to-use-ispoofer-on-xiaomi-redmi-k70-drfone-by-drfone-virtual-android/"><u>In 2024, How to use iSpoofer on Xiaomi Redmi K70? | Dr.fone</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-rootjunky-apk-to-bypass-google-frp-lock-for-tecno-spark-20c-by-drfone-android/"><u>In 2024, Rootjunky APK To Bypass Google FRP Lock For Tecno Spark 20C</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/mastering-file-saving-on-windows-11-a-compendium-of-six-techniques/"><u>Mastering File Saving on Windows 11 A Compendium of Six Techniques</u></a></li>
+<li><a href="https://win-forum.techidaily.com/the-ultimate-guide-to-navigating-leading-social-media-sites-facebook-twitter-instagram-youtube/"><u>The Ultimate Guide to Navigating Leading Social Media Sites: Facebook, Twitter, Instagram, YouTube</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/undersea-creations-the-innovative-3d-printer-running-in-a-water-tank/"><u>Undersea Creations: The Innovative 3D Printer Running in a Water Tank</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/unexpected-d3dx-library-issues-heres-how-to-fix-d3dx926dll-not-found-problem/"><u>Unexpected D3DX Library Issues? Here's How to Fix d3dx9_26.dll Not Found Problem</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/windows-media-playerdvdmp3/"><u>Windows Media PlayerでDVD音声をMP3に直す入門ガイド</u></a></li>
 </ul></div>
 

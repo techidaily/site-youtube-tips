@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Daily Vlogging Ideas  What to Talk About While Vlogging?\""
-date: 2024-08-15T23:04:31.938Z
-updated: 2024-08-16T23:04:31.938Z
+date: 2025-01-05T18:39:14.225Z
+updated: 2025-01-06T20:57:52.445Z
 tags:
   - ai video
   - ai youtube
@@ -32,6 +32,10 @@ How do you know [what you should talk about in your vlog](https://tools.techidai
 
 Before starting your daily vlogging, you have to figure out one important thing ahead of time.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Iz2LYWd8EqI?si=G_3CqFRAmeVPczjj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Do you have a niche?
 
   You should have a niche. In a genre as broad as vlogging it is important to have some kind of hook that sets you apart from other vloggers. This can be an interest that you have, an industry you work in, or even a field of study you’re involved in at school. If you’re into technology, for example, you’ll always have a wealth of subjects to vlog about because all you’ll have to do is look at the day’s tech news and make a video reporting and commenting on it.
@@ -52,8 +56,9 @@ Here are 4 things to talk about in your daily vlog:
 By commenting on what you’re watching/reading you have a better chance of capitalizing on a trending topic people are searching for. You could also find yourself an audience by becoming involved in fan communities.
 
 <!-- affiliate ads begin -->
-<a href="https://store.revouninstaller.com/order/checkout.php?PRODS=28010250&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4282ec8de8c9be897e7aff4aa231b1a4/336__280a.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Zgwn5kVI5V4?si=1j6j4OuSSndFieXU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Snapshots of Your Day
 
  Casey Neistat is the master of this. He is always ready with a camera on hand so that, when something interesting happens, he can capture it and build his daily vlog around it.
@@ -61,8 +66,9 @@ By commenting on what you’re watching/reading you have a better chance of capi
 Carrying a camera around like Casey may or may not suit your lifestyle, but you can still pick out one story from your day to tell. It doesn’t have to be a major event, and you shouldn’t worry that it won’t be interesting to other people. It’s your personality they’re tuning in for, so even if you’re just talking about a funny thing your cat did it will keep your audience interested because a) it’s you talking about it and b) it gives them a bit of insight into your life.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4721564&QTY=1&AFFILIATE=108875&CART=1">Power Tools add-on for Google Sheets, 12-month subscription</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kx-Pb0otJCs?si=Mvr49yQVesmJA8-O" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Whatever You Need to Get Out
 
 _Flula is frequently puzzled by English expressions, like 'Party Pooper', and needs to get his confusion off his chest at odd hours of the day._
@@ -89,21 +95,16 @@ The puya chilensis is a plant that ‘eats’ sheep (sheep get stuck to it, star
 
 Sea monkeys can survive in space.
 
-<!-- affiliate ads begin -->
-<a href="https://store.revouninstaller.com/order/checkout.php?PRODS=27889512&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4282ec8de8c9be897e7aff4aa231b1a4/728__90.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ## EVERYTHING
 
 You could also just flick the camera on and tell the full story of your day like you’d do in a traditional daily blog. What did you have for breakfast, how was school/work, did you talk to any friends, how was the weather – anything and everything. Generally, these videos can run a bit long and don’t have a lot of snappy editing. They’re faster to make, which is good if you’re doing them every day, but the unpolished nature of them won’t appeal to everyone. It will be exactly what appeals to some people, though.
 
-<!-- affiliate ads begin -->
-<a href="https://vapordna.pxf.io/c/5597632/1494880/17238" target="_top" id="1494880"><img src="//a.impactradius-go.com/display-ad/17238-1494880" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1494880/17238" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Customize Your Vlog Stories with Powerful Video Editor
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
+
 <!-- affiliate ads begin -->
-<a href="https://godlikehost.sjv.io/c/5597632/1920047/21774" target="_top" id="1920047"><img src="//a.impactradius-go.com/display-ad/21774-1920047" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1920047/21774" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/c-BHGGIC0zE?si=FzUQKZa-bx8OlKuB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 **We’ve got a new eBook out!**
@@ -111,9 +112,9 @@ You could also just flick the camera on and tell the full story of your day like
 It’s got strategies that have worked for other YouTubers, boiled down to simple action steps.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=38729081&QTY=1&AFFILIATE=108875&CART=1"><img src="https://website-prod.cache.wpscdn.com/img/wps-spreadsheet-free-excel-editor-online-offline-1x.93e269d.png" border="0">
-WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/uzb-0C0xUYA?si=F4MPhdVqyVgx7_8X" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -122,14 +123,11 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -138,4 +136,22 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-files.techidaily.com/new-essential-list-premier-free-video-player-choices-for-pctabletsmartphone-users-for-2024/"><u>[New] Essential List Premier Free Video Player Choices for PC/Tablet/Smartphone Users for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-elite-channel-analyzer-top-youtube-positioning-tool/"><u>[New] In 2024, Elite Channel Analyzer Top YouTube Positioning Tool</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-innovating-your-online-presence-expert-tips-for-video-enhancement-after-upload/"><u>[New] In 2024, Innovating Your Online Presence Expert Tips for Video Enhancement After Upload</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/outhwatering-masters-culinary-youtube-experts-for-2024/"><u>[New] Mouthwatering Masters Culinary YouTube Experts for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/r-beasts-financial-portrait/"><u>[New] Mr. Beast’s Financial Portrait</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ltimate-livestream-guidebook-recommended-tools-and-devices-compilation/"><u>[New] Ultimate Livestream Guidebook Recommended Tools and Devices Compilation</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-masterpiece-moments-top-15-musician-behind-the-scenes-vlogs-for-2024/"><u>[Updated] Masterpiece Moments Top 15 Musician Behind-the-Scenes Vlogs for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-maximize-view-count-best-yt-thumbnail-sizes/"><u>[Updated] Maximize View Count Best YT Thumbnail Sizes</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/evaluating-the-enduring-appeal-of-the-samsung-galaxy-tab-s3-a-detailed-analysis/"><u>Evaluating the Enduring Appeal of the Samsung Galaxy Tab S3 - A Detailed Analysis</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/in-2024-essential-hand-tracking-techniques-for-modern-devices/"><u>In 2024, Essential Hand Tracking Techniques for Modern Devices</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/peering-into-the-future-with-asuss-4k-uxga-mg28uq-screen-for-2024/"><u>Peering Into the Future with ASUS's 4K UXGA MG28UQ Screen for 2024</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/toms-pc-review-hub-for-top-notch-components-and-systems/"><u>Tom's PC Review Hub for Top-Notch Components and Systems</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/top-10-password-cracking-tools-for-vivo-y27-5g-by-drfone-android/"><u>Top 10 Password Cracking Tools For Vivo Y27 5G</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/understanding-the-impact-of-a-camera-hump-on-your-smartphones-overall-girth/"><u>Understanding the Impact of a Camera Hump on Your Smartphone's Overall Girth</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/v770-innovative-design-and-affordable-quality/"><u>V770 - Innovative Design & Affordable Quality</u></a></li>
+</ul></div>
 

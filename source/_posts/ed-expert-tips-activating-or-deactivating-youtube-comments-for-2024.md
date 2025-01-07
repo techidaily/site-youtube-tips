@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Expert Tips  Activating or Deactivating YouTube Comments for 2024\""
-date: 2024-08-23T05:33:49.972Z
-updated: 2024-08-24T05:33:49.972Z
+date: 2024-12-31T20:18:19.738Z
+updated: 2025-01-06T18:57:29.511Z
 tags:
   - ai video
   - ai youtube
@@ -30,6 +30,10 @@ As a brand, it is imperative to thoroughly read all the comments that your YouTu
 
 Keeping all these points in mind, the following sections explain **how to enable comments on YouTube** and **how to turn off comments on YouTube**. Here you will also get to know what other types of security and privacy options are there that you can use to filter the comments posted by the disturbing elements.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1rCjQ09iG7s?si=Si1fUBric8MH1VHI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 1: How to Turn on or Turn off Comments for YouTube Channel
 
 If you don’t want any comments on any of the videos that you publish, you must learn **how to disable comments on the YouTube** channel. The process of doing so is explained below:
@@ -39,6 +43,10 @@ If you don’t want any comments on any of the videos that you publish, you must
 Use your favorite web browser to go to YouTube and sign in to your Google account. Click your profile picture from the top-right corner of the webpage, and click **YouTube Studio** from the menu that appears.
 
 ![ Find YouTube Studio options](https://images.wondershare.com/filmora/article-images/find-youtube-studio-option.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ITtcSWvS8bo?si=4M4BfMgaabrW6148" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 #### Step 2: Go to Channel’s Advanced Settings
 
@@ -70,6 +78,10 @@ Back on the **YouTube Studio** page, click **Content** from the left pane. From 
 
 ![ Turn on or off YouTube content commnets settings](https://images.wondershare.com/filmora/article-images/turn-on-off-channel-content-comments-settings.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3UyJuZYzjt0?si=W87GeyzVKVORAk7S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 #### **Additional Info about Comments Options**
 
 The four options that become available when you allow the comments on your YouTube channel along with their meaning are:
@@ -89,6 +101,10 @@ Selecting this option holds all the comments from all the users, and waits for y
 * **Disable comments**
 
 When this option is selected, no one can post a comment to the video(s) whatsoever.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XVsiIO7hWOc?si=UvWnqxaI_yHwEr74" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 2: Turn on or Turn off Comments for Specific Videos
 
@@ -110,11 +126,12 @@ From under the **Audience** section in the right window of the **Video details**
 
 ![ Turn on or turn off comments for specific youtube video](https://images.wondershare.com/filmora/article-images/turn-on-off-comments-for-specific-youtube-video.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DBMTAJBx-X4?si=sje5pFJXiHzJJGbP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Note:** To learn **how to disable comments on YouTube** for specific video, you can repeat the above steps, and choose the **Yes, it’s made for kids** radio button from the **Audience** section when you are on the **Video details** page.
 
-<!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=42296855&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2023/recode/Nero_Recode_Screen_2.png" border="0"></a>
-<!-- affiliate ads end -->
 ## FAQs About YouTube Comments
 
 #### 1\. Why can’t I comment on the YouTube video?
@@ -131,9 +148,6 @@ You can go to **YouTube Studio** \> **Settings** \> **Community**, and on the **
 
 ![ Block YouTube   commnets ](https://images.wondershare.com/filmora/article-images/block-users-youtube-comment.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4726807&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/c14a8df1e1b4d5297e9cb30cb34d5a00/products/copy_copy_power-tools-48.png" border="0">Power Tools add-on for Google Sheets, Lifetime subscription</a>
-<!-- affiliate ads end -->
 #### 4\. If I turn comments off and back on again, will the old comments come back?
 
 Yes. When you turn off the comments, the existing comments disappear. When you turn them back on, all the previous comments reappear, and become visible to the audience.
@@ -148,23 +162,17 @@ It is easy to understand **how to turn on comments on YouTube**. The best thing 
 
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
 
-<!-- affiliate ads begin -->
-<iframe id="iframe_672" src="//a.impactradius-go.com/gen-ad-code/5597632/1959812/17834/" width="720" height="300" scrolling="no" frameborder="0" marginheight="0" marginwidth="0"></iframe>
-<!-- affiliate ads end -->
 Liza Brown
 
 Liza Brown is a writer and a lover of all things video.
 
 Follow @Liza Brown
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -173,4 +181,26 @@ Follow @Liza Brown
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://driver-download.techidaily.com/fixed-secure-download-for-high-speed-1535-wireless-card-drivers/"><u>[FIXED] Secure Download for High-Speed 1535 Wireless Card Drivers</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-2024-approved-beyond-clickbait-whats-real-about-instagram-reels/"><u>[New] 2024 Approved Beyond Clickbait What's Real About Instagram Reels?</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ettled-silent-shorter-showcase-ended-for-2024/"><u>[New] Settled Silent Shorter Showcase Ended for 2024</u></a></li>
+<li><a href="https://some-tips.techidaily.com/new-the-vanguard-of-virtual-storage-top-choices/"><u>[New] The Vanguard of Virtual Storage Top Choices</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-2024-approved-elevate-engagement-discover-these-top-12-techniques-for-video-success/"><u>[Updated] 2024 Approved Elevate Engagement - Discover These Top 12 Techniques for Video Success</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-2024-approved-how-to-size-your-videos-youtubes-best-practices-unveiled/"><u>[Updated] 2024 Approved How to Size Your Videos YouTube's Best Practices Unveiled</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-2024-approved-seamless-playlist-transfer-migrating-from-spotify-to-youtube-music-service/"><u>[Updated] 2024 Approved Seamless Playlist Transfer Migrating From Spotify to YouTube Music Service</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-deciphering-your-pathway-to-youtubes-maker-land/"><u>[Updated] Deciphering Your Pathway to YouTube's Maker Land</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-leading-ladies-of-livestreams-top-10-female-youtubers-unveiled/"><u>[Updated] Leading Ladies of Livestreams Top 10 Female YouTubers Unveiled</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-the-algorithm-behind-youtubes-post-upload-logic/"><u>[Updated] The Algorithm Behind YouTube's Post-Upload Logic</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/2024-approved-academic-avenue-leading-educators-on-youtube/"><u>2024 Approved Academic Avenue Leading Educators on YouTube</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/tial-strategies-for-memorable-youtube-closings/"><u>Essential Strategies for Memorable YouTube Closings</u></a></li>
+<li><a href="https://techidaily.com/how-do-i-reset-my-xiaomi-redmi-k70e-phone-without-technical-knowledge-drfone-by-drfone-reset-android-reset-android/"><u>How do I reset my Xiaomi Redmi K70E Phone without technical knowledge? | Dr.fone</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/how-to-change-your-apple-id-password-on-your-apple-iphone-12-pro-max-drfone-by-drfone-ios/"><u>How To Change Your Apple ID Password On your Apple iPhone 12 Pro Max | Dr.fone</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/how-to-recover-from-a-black-screen-on-windows-movie-maker-expert-tips-and-solutions/"><u>How To Recover From A Black Screen on Windows Movie Maker – Expert Tips & Solutions</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/24-rising-above-the-crowd-trending-techniques-for-youtubers/"><u>In 2024, Rising Above the Crowd Trending Techniques for YouTubers</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/in-2024-top-5-free-online-gif-to-video-tools-no-downloads-needed/"><u>In 2024, Top 5 Free Online GIF-to-Video Tools (No Downloads Needed)</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/egic-hash-tags-chart-your-way-to-60000-in-views/"><u>Strategic Hash Tags Chart Your Way to $60,000 in Views</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/the-smart-shoppers-guide-to-affordable-cloud-space-for-2024/"><u>The Smart Shopper's Guide to Affordable Cloud Space for 2024</u></a></li>
+</ul></div>
 

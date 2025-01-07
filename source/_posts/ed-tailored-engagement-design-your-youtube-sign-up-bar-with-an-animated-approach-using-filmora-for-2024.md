@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Tailored Engagement  Design Your YouTube Sign-Up Bar with an Animated Approach Using Filmora for 2024\""
-date: 2024-08-23T05:32:04.967Z
-updated: 2024-08-24T05:32:04.967Z
+date: 2025-01-02T20:18:22.343Z
+updated: 2025-01-06T19:49:08.512Z
 tags:
   - ai video
   - ai youtube
@@ -42,9 +42,21 @@ There are so many platforms on the internet from where you can get Youtube subsc
 
 **Step 5:** Now, let's add Subscribe text into the button. Go to the Title and select any style that you like. "Basic 6" will work perfectly fine for this purpose. Drag and drop it into the timeline above all tracks.![subscribe-button5](https://images.wondershare.com/filmora/article-images/subs-button5.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=heERQcpMi77lqToE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Step 6:** Double click on the Title on the timeline and edit it with "Subscribe" and place it under the red rectangle and click OK.![subscribe-button6](https://images.wondershare.com/filmora/article-images/subs-button6.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LeKJBWb6Jhk?si=AnViizAPiIT1YCRA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Step 7:** We have put a cursor that can click on the animated subscribe button. You can use Google Search to find a transparent cursor. Make sure to save it in png format. Download it and import it into Filmora.![subscribe-button7](https://images.wondershare.com/filmora/article-images/subs-button7.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LBCobAYzzcc?si=J3eSTQ3AdyxWAjGo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 **Step 8:** Drag and drop the cursor into the timeline and place it above all the other three tracks to make it prominent. Adjust the size of the cursor place it on the Subscribe button where you want it to appear.![subscribe-button8](https://images.wondershare.com/filmora/article-images/subs-button8.png)
 
@@ -54,11 +66,19 @@ There are so many platforms on the internet from where you can get Youtube subsc
 
 **Step 11:** Text needs to be animated as well to match it with the rectangle. Double click on the text in the timeline and click 'ADVANCED.'![subscribe-button11](https://images.wondershare.com/filmora/article-images/subs-button11.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/y3VlwHTQQMs?si=BXYwD1pKiaTuev4y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Step 12:** In this Advance text editor, go to the 'Animation' tab and select any animation that you like. On the timeline under the preview screen, adjusts the dark areas according to the time you set on the rectangle, which was 1 second. We want the text to appear on the screen in 1 second, like the rectangle. Also, adjust the ending time when you want the text to disappear again. We have set it on 4 seconds. Which means it will start to fade after 4 seconds.![subscribe-button12](https://images.wondershare.com/filmora/article-images/subs-button12.png)
 
 **Step 13:** Now, to animate the mouse cursor, we will use the same process we used for a rectangle that is key framing. Double click on the cursor track on the timeline and move the time on your timeline to a point when you want the cursor to appear. Now add a key frame by clicking 'Add'.![subscribe-button13](https://images.wondershare.com/filmora/article-images/subs-button13.png)
 
 **Step 14:** Now jump back to a point in your timeline, when the cursor will start appearing from outside the screen. Move the cursor outside the screen from where you want it to start moving toward the subscribe animation.![subscribe-button14](https://images.wondershare.com/filmora/article-images/subs-button14.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/nWu29cqFjZA?si=TNZyCbPq68PQ0JIb" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 **Step 15:** To animate the click of the cursor, move ahead a little bit into your timeline and scale down the cursor to around 70%. Move it a little further and scale it up to 100%.![subscribe-button15](https://images.wondershare.com/filmora/article-images/subs-button15.png)
 
@@ -68,7 +88,15 @@ There are so many platforms on the internet from where you can get Youtube subsc
 
 **Step 18:** After that, move further in the timeline to the end and make its scale 0\. It will make it disappear.![subscribe-button18](https://images.wondershare.com/filmora/article-images/subs-button18.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/c17xsnbinCQ?si=xHKslFgC3QbxY4qW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Step 19:** Do the same with the cursor. Double click on the cursor in the time and add a key frame at its actual position.![subscribe-button19](https://images.wondershare.com/filmora/article-images/subs-button19.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6KXVWj6Ar1M?si=Cd_jktmoN3e9OzH3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 **Step 20:** Move ahead when you want it to disappear. Move the cursor out of the screen and click 'OK'.![subscribe-button20](https://images.wondershare.com/filmora/article-images/subs-button20.png)
 
@@ -82,20 +110,21 @@ Conclusion：Your own Animated Subscribe Button is ready to be used in your futu
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/T-ssCD10v2M?si=WVWGNayUiCAkMZzZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -104,9 +133,24 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-streamlining-your-youtube-vids-for-igtv-adoption/"><u>[New] In 2024, Streamlining Your YouTube Vids for IGTV Adoption</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-2024-approved-maximize-marketing-youtubes-best-seo-aids-for-videos/"><u>[Updated] 2024 Approved Maximize Marketing - YouTube's Best SEO Aids for Videos</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/updated-in-2024-expert-reviews-top-5-high-performance-video-devices/"><u>[Updated] In 2024, Expert Reviews Top 5 High-Performance Video Devices</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-inquiry-youtubes-payment-scheme-for-creators-for-2024/"><u>[Updated] Inquiry YouTube's Payment Scheme for Creators for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-masterclass-in-visual-storytelling-for-youtube-live-videos/"><u>[Updated] Masterclass in Visual Storytelling for YouTube Live Videos</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-premier-mac-tools-beyond-bandicam/"><u>[Updated] Premier Mac Tools Beyond Bandicam</u></a></li>
+<li><a href="https://techtrends.techidaily.com/windowsmacdvd2024/"><u>最新版！WindowsおよびMac用の一番強力なDVDコピープログラムを発表：2024年リリース、完全無料アクセス</u></a></li>
+<li><a href="https://location-fake.techidaily.com/a-detailed-vpna-fake-gps-location-free-review-on-samsung-galaxy-f34-5g-drfone-by-drfone-virtual-android/"><u>A Detailed VPNa Fake GPS Location Free Review On Samsung Galaxy F34 5G | Dr.fone</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ften-do-youtubers-receive-income-in-2024/"><u>How Often Do YouTubers Receive Income, In 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/24-demystifying-t-series-income-streams-via-youtube-platforms/"><u>In 2024, Demystifying T-Series Income Streams via YouTube Platforms</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/24-enhancing-your-content-with-effortlessly-added-youtube-subtitles/"><u>In 2024, Enhancing Your Content with Effortlessly Added YouTube Subtitles</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-how-to-unlock-any-tecno-spark-10-4g-phone-password-using-emergency-call-by-drfone-android/"><u>In 2024, How To Unlock Any Tecno Spark 10 4G Phone Password Using Emergency Call</u></a></li>
+<li><a href="https://extra-support.techidaily.com/online-and-offline-freebies-in-text-animation-for-2024/"><u>Online & Offline Freebies in Text Animation for 2024</u></a></li>
+<li><a href="https://location-social.techidaily.com/set-your-preferred-job-location-on-linkedin-app-of-your-tecno-spark-10c-drfone-by-drfone-virtual-android/"><u>Set Your Preferred Job Location on LinkedIn App of your Tecno Spark 10C | Dr.fone</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/omprehensive-playbook-for-self-branded-content-creators-for-2024/"><u>The Comprehensive Playbook for Self-Branded Content Creators for 2024</u></a></li>
+<li><a href="https://driver-error.techidaily.com/troubleshooting-hp-wireless-keyboard-connectivity-issues-fixes-and-solutions/"><u>Troubleshooting HP Wireless Keyboard Connectivity Issues - Fixes and Solutions</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/winter-olympics-2022-precision-snowriders-in-the-spotlight-for-2024/"><u>Winter Olympics 2022 - Precision Snowriders in the Spotlight for 2024</u></a></li>
+</ul></div>
 
-
-<!-- affiliate ads begin -->
-<a href="https://shop.emeditor.com/order/checkout.php?PRODS=4610657&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.emeditor.com/wp-content/uploads/2024/06/emeditor_chat_ai.png" border="0">
-EmEditor is a fast, lightweight, yet extensible, easy-to-use text editor, code editor, CSV editor, and large file viewer for Windows. Both native 64-bit and 32-bit builds are available, and moreover, the 64-bit includes separate builds for SSE2 (128-bit), AVX-2 (256-bit), and AVX-512 (512-bit) instruction sets. New versions support AI-assisted writing.</a>
-<!-- affiliate ads end -->
