@@ -1,7 +1,7 @@
 ---
 title: "[New] Strategic Steps for Effective Annotations & Cards on Your YouTube Videos for 2024"
-date: 2025-01-04T21:47:19.910Z
-updated: 2025-01-06T20:54:55.687Z
+date: 2025-01-06T08:40:03.111Z
+updated: 2025-01-13T01:39:17.923Z
 tags:
   - ai video
   - ai youtube
@@ -51,7 +51,7 @@ The main difference between annotation and cards is their outlook. Cards are mor
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/poI1NQxHfjc?si=ZLG0wziYcTKIKwL5" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=M69YSY0Mk_gsdU0Q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How to add YouTube Cards
@@ -62,17 +62,13 @@ YouTube **Cards** are similar to annotations but more interactive. They allow th
 
 ![](https://images.wondershare.com/filmora/article-images/video-manager-in-youtube.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/KKFdFHaVIJg?si=x2vLw7ty3FtHX-9T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 * Click "Edit" tab under the video screen shot you want to add the card on
 * Click on the "Cards" tab
 
 ![](https://images.wondershare.com/filmora/article-images/youtube-cards01.png)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/_O8m9KphYzs?si=jITthzeyX_Kmt9X2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/620kcQ7Dw7w?si=a5ussGs5HV7sG3hF" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 * On the right panel click on "Add Card" drop down menu and select the type of card you want to add
@@ -83,10 +79,14 @@ YouTube **Cards** are similar to annotations but more interactive. They allow th
 ![](https://images.wondershare.com/filmora/article-images/add-cards-to-youtube-video.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fJlICvacgJY?si=jNeijBVj7ia4ammA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/djPqRkskaBo?si=O6FEI-KVW0HwN417" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 * Apply changes and exit
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XVsiIO7hWOc?si=UvWnqxaI_yHwEr74" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## How to add YouTube annotations
 
@@ -98,14 +98,14 @@ YouTube Annotation is addition of a text layer, link or hotspots over your video
 
 ![](https://images.wondershare.com/filmora/article-images/add-annotations-to-youtube-video.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RvR5PNhspKE?si=uJcMYK9v-_Xq7fAg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 * On the right panel click on "+ Add Element" and select the kind of annotation you want to add
 * Adjust the position of Annotation, you can drag the rectangle to locate it at any position of the video, move the slide to set the start and end time of the annotation
 
 ![](https://images.wondershare.com/filmora/article-images/add-annotation-to-youtube-1.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/NC0rdKEQ98o?si=HYgqC8CxF_WTO5if" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 * Apply changes
 
@@ -166,14 +166,21 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-activity-recording.techidaily.com/new-expert-blueprint-fashioning-timer-functionality-with-video-editors/"><u>[New] Expert Blueprint Fashioning Timer Functionality with Video Editors</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/n-2024-the-ultimate-guide-to-youtube-adsense-optimization/"><u>[New] In 2024, The Ultimate Guide to YouTube AdSense Optimization</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-ensuring-effective-monetization-strategies-for-yt-channels-for-2024/"><u>[Updated] Ensuring Effective Monetization Strategies for YT Channels for 2024</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/updated-in-2024-virtual-horizons-the-foremost-ps-vr-games-to-await-you/"><u>[Updated] In 2024, Virtual Horizons The Foremost PS VR Games to Await You</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-proven-asmr-techniques-and-the-best-microphone-options/"><u>[Updated] Proven ASMR Techniques and the Best Microphone Options</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/approved-the-ultimate-tutorial-blocking-youtube-ads-on-all-platforms/"><u>2024 Approved The Ultimate Tutorial Blocking YouTube Ads on All Platforms</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/in-2024-how-to-change-infinix-zero-30-5g-lock-screen-password-by-drfone-android/"><u>In 2024, How To Change Infinix Zero 30 5G Lock Screen Password?</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ess-edits-await-best-freeware-on-android-for-2024/"><u>Seamless Edits Await Best Freeware on Android for 2024</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/the-best-keyboard-wrist-rests-of-2024/"><u>The Best Keyboard Wrist Rests of 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/024-approved-ace-in-the-halls-boosting-youtube-traffic/"><u>[New] 2024 Approved Ace in the Halls Boosting YouTube Traffic</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/new-cutting-edge-choices-best-6-mac-video-grabber-apps-for-2024/"><u>[New] Cutting-Edge Choices Best 6 Mac Video Grabber Apps for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/aximizing-youtube-income-universal-studio-insights/"><u>[New] Maximizing YouTube Income Universal Studio Insights</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-become-a-visionary-creator-optimal-camera-lens-selection-for-2024/"><u>[Updated] Become a Visionary Creator Optimal Camera Lens Selection for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-unleash-your-youtube-playlists-a-comprehensive-guide/"><u>[Updated] Unleash Your YouTube Playlists A Comprehensive Guide</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-unlock-50-exclusive-youtube-banner-free-gifts-in-2024/"><u>[Updated] Unlock 50 Exclusive YouTube Banner Free Gifts, In 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-youtubes-dimensions-decoded-a-comprehensive-ratio-handbook-for-2024/"><u>[Updated] YouTube's Dimensions Decoded A Comprehensive Ratio Handbook for 2024</u></a></li>
+<li><a href="https://blog-min.techidaily.com/5-ways-to-transfer-music-from-poco-m6-pro-5g-to-other-android-devices-easily-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>5 Ways to Transfer Music from Poco M6 Pro 5G to Other Android Devices Easily | Dr.fone</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/direct-video-transfer-from-twitter-to-tumblr/"><u>Direct Video Transfer From Twitter to Tumblr</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/capture-to-curve-an-insider-look-at-editing-and-sharing-360-videos-on-youtube-for-2024/"><u>From Capture to Curve An Insider Look at Editing and Sharing 360° Videos on YouTube for 2024</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-bypassing-google-account-with-vnrom-bypass-for-honor-magic-5-pro-by-drfone-android/"><u>In 2024, Bypassing Google Account With vnROM Bypass For Honor Magic 5 Pro</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/in-2024-from-muffled-to-clear-the-initial-use-of-fade-in-audition/"><u>In 2024, From Muffled to Clear The Initial Use of Fade in Audition</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/microsoft-targets-classrooms-new-low-cost-laptop-se-and-tailored-windows-11-se-operating-system-released-discover-more-on-zdnet/"><u>Microsoft Targets Classrooms: New Low-Cost Laptop SE & Tailored Windows 11 SE Operating System Released, Discover More on ZDNet!</u></a></li>
+<li><a href="https://ai-vdieo-software.techidaily.com/new-the-ultimate-guide-to-video-invitation-apps-for-iphone-and-android/"><u>New The Ultimate Guide to Video Invitation Apps for iPhone and Android</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/the-ultimate-guide-to-get-the-rare-candy-on-pokemon-go-fire-red-on-realme-11-5g-drfone-by-drfone-virtual-android/"><u>The Ultimate Guide to Get the Rare Candy on Pokemon Go Fire Red On Realme 11 5G | Dr.fone</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/windows-enigma-finding-harmony-with-acer-keyboard-issues/"><u>Windows Enigma: Finding Harmony with Acer Keyboard Issues</u></a></li>
 </ul></div>
 

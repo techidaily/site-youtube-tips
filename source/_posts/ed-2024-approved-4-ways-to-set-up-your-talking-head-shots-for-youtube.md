@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  4 Ways To Set Up Your Talking-Head Shots For YouTube\""
-date: 2025-01-05T20:58:48.788Z
-updated: 2025-01-06T22:41:08.077Z
+date: 2025-01-11T11:48:25.706Z
+updated: 2025-01-12T18:00:01.133Z
 tags:
   - ai video
   - ai youtube
@@ -43,11 +43,7 @@ We’ve summarized the key points about setting up talking head style video shot
 ![ Setting up Talking Heads Video Shots for YouTube](https://images.wondershare.com/filmora/article-images/talking-heads-youtube-video-shots-set-up.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/2ipTu54inBo?si=gRegjvtVq5gm_PHo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aYH0B2HqcIM?si=3fkoG85L6hAeB4ok" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Rxyki8-Y630?si=dHLkIxG59zdlZeN0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How to Set Up Your Talking-Head Shots for YouTube \[4 Ways\]
@@ -66,6 +62,10 @@ Objects and people that just make it into the sides of the frame will appear mor
 
 If you look closely into Sean’s eyes, you can also see a specular highlight in the shape of a circle. Many people like the way eyes look against a ring light.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HtM7d4dpN1I?si=2vN_xgVGD4eYGORu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 2.  Medium Vlog Set-Up
 
 If you have more space and want to shoot a more professional-looking talking-head shot with more realistic perspectives, a medium vlog set-up may be a better alternative for you.
@@ -79,6 +79,10 @@ At the 39 second mark of the above video, electronic music producer deadmau5 is 
 You can see from how even the background and couch looks across the entire camera frame that there is no distortion or enhanced perspective.
 
 It appears that, to the right of deadmau5 (camera left), there is a key light and to his left (camera right) there may be a fill light for additional lighting. Behind the couch, there’s also a background uplight to create depth between the subject and the background. At the 1:30 mark of this trailer video, you can briefly see how the Masterclass camera crew set up their shot.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/yDuvbv0QOYI?si=byottcEM_Rrvi4EL" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 3.  Two Person Vlog Set-Up
 
@@ -105,7 +109,7 @@ It is difficult to know whether the movement in his eyes is caused by not being 
 Looking to find the right lights for your video recording set? Check out our [Top 17 Video Lighting Equipment For YouTubers](https://www.filmora.io/community-blog/top-17-video-lighting-equipment-for-youtubers-440.html).
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/XoC2TGp1PLY?si=iH9xs76NhWn4pP-E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/mK1lEBRm_1w?si=FSaM0OKO0XBCgjtT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Tips for Making a Talking Head Video Better
@@ -115,14 +119,10 @@ To make a talking-head video more interesting, you can add some background music
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/d-COuhPT5mk?si=wLZU6jkkAdJuAn6h" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Iz2LYWd8EqI?si=G_3CqFRAmeVPczjj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/c1yHj02oP3w?si=mwi3FyP0p68gkBqV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -145,19 +145,20 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-footage.techidaily.com/new-how-to-create-vintage-videos-a-comprehensive-tutorial/"><u>[New] How to Create Vintage Videos A Comprehensive Tutorial</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/n-2024-stream-video-smoothly-save-pcmac-screens-to-youtube/"><u>[New] In 2024, Stream Video Smoothly Save PC/Mac Screens to YouTube</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/n-2024-youtubes-erased-memories-how-to-revisit-them-online/"><u>[New] In 2024, Youtube's Erased Memories How to Revisit Them Online</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-2024-approved-gifts-that-speak-volumes-a-compendium-of-custom-box-shops-online/"><u>[Updated] 2024 Approved Gifts That Speak Volumes A Compendium of Custom Box Shops Online</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-2024-approved-mp3-upload-process-stream-convert-and-share-on-youtube-quickly/"><u>[Updated] 2024 Approved MP3 Upload Process Stream, Convert & Share on YouTube Quickly</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-step-into-stardom-with-these-10-essential-channel-banner-makers-for-2024/"><u>[Updated] Step Into Stardom with These 10 Essential Channel Banner Makers for 2024</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/approved-the-best-3d-software-perfect-for-youtube-openers/"><u>2024 Approved The Best 3D Software Perfect for YouTube Openers</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-how-to-use-ispoofer-on-xiaomi-redmi-k70-drfone-by-drfone-virtual-android/"><u>In 2024, How to use iSpoofer on Xiaomi Redmi K70? | Dr.fone</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/in-2024-rootjunky-apk-to-bypass-google-frp-lock-for-tecno-spark-20c-by-drfone-android/"><u>In 2024, Rootjunky APK To Bypass Google FRP Lock For Tecno Spark 20C</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/mastering-file-saving-on-windows-11-a-compendium-of-six-techniques/"><u>Mastering File Saving on Windows 11 A Compendium of Six Techniques</u></a></li>
-<li><a href="https://win-forum.techidaily.com/the-ultimate-guide-to-navigating-leading-social-media-sites-facebook-twitter-instagram-youtube/"><u>The Ultimate Guide to Navigating Leading Social Media Sites: Facebook, Twitter, Instagram, YouTube</u></a></li>
-<li><a href="https://hardware-tips.techidaily.com/undersea-creations-the-innovative-3d-printer-running-in-a-water-tank/"><u>Undersea Creations: The Innovative 3D Printer Running in a Water Tank</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/unexpected-d3dx-library-issues-heres-how-to-fix-d3dx926dll-not-found-problem/"><u>Unexpected D3DX Library Issues? Here's How to Fix d3dx9_26.dll Not Found Problem</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/windows-media-playerdvdmp3/"><u>Windows Media PlayerでDVD音声をMP3に直す入門ガイド</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/024-approved-earths-highest-paid-online-video-personality/"><u>[New] 2024 Approved Earth's Highest-Paid Online Video Personality</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/024-approved-hacking-the-process-instant-deletion-on-youtube/"><u>[New] 2024 Approved Hacking the Process Instant Deletion on Youtube</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ffluent-streaming-stars/"><u>[New] Affluent Streaming Stars</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-a-step-by-step-guide-to-your-profit-share-in-youtube-shorts/"><u>[Updated] 2024 Approved A Step-by-Step Guide to Your Profit Share in YouTube Shorts</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-in-2024-elevate-your-social-media-reach-fb-ad-mastery-techniques/"><u>[Updated] In 2024, Elevate Your Social Media Reach FB Ad Mastery Techniques</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-in-2024-mastering-youtube-success-via-creator-studio-complete-handbook/"><u>[Updated] In 2024, Mastering YouTube Success via Creator Studio Complete Handbook</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-navigating-the-nook-how-jake-paul-snagged-youtube-success-for-2024/"><u>[Updated] Navigating the Nook How Jake Paul Snagged YouTube Success for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/approved-tailored-sound-rate-on-youtube-desktopmobile/"><u>2024 Approved Tailored Sound Rate on YouTube (Desktop/Mobile)</u></a></li>
+<li><a href="https://android-frp.techidaily.com/addrom-bypass-an-android-tool-to-unlock-frp-lock-screen-for-your-oneplus-11-5g-by-drfone-android/"><u>AddROM Bypass An Android Tool to Unlock FRP Lock Screen For your OnePlus 11 5G</u></a></li>
+<li><a href="https://common-error.techidaily.com/effective-fixes-for-broken-volume-controls-in-windows-10-solved/"><u>Effective Fixes for Broken Volume Controls in Windows 10 [Solved]</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/resolving-spontaneous-shutdowns-in-windows-machines-my-journey-to-a-stable-pc/"><u>Resolving Spontaneous Shutdowns in Windows Machines: My Journey to a Stable PC</u></a></li>
+<li><a href="https://driver-download.techidaily.com/safe-lenovo-bluetooth-software-updates-for-windows-7-and-windows-e-easy-download-and-installation-tips/"><u>Safe Lenovo Bluetooth Software Updates for Windows 7 and Windows E: Easy Download & Installation Tips</u></a></li>
+<li><a href="https://article-helps.techidaily.com/step-by-step-instructions-on-chromes-pip-across-all-platforms-for-2024/"><u>Step-by-Step Instructions on Chrome’s PIP Across All Platforms for 2024</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/the-next-generation-of-connectivity-embracing-verizon-5g/"><u>The Next Generation of Connectivity: Embracing Verizon 5G</u></a></li>
+<li><a href="https://ai-voice-clone.techidaily.com/updated-in-2024-is-coqui-voice-cloning-worth-the-hype-a-comprehensive-review/"><u>Updated In 2024, Is Coqui Voice Cloning Worth the Hype? A Comprehensive Review</u></a></li>
 </ul></div>
 
