@@ -1,7 +1,7 @@
 ---
 title: "[New] In 2024, Optimal Lighting for Stellar Video Production"
-date: 2025-01-06T05:54:01.726Z
-updated: 2025-01-13T04:02:17.988Z
+date: 2025-01-16T17:27:25.020Z
+updated: 2025-01-19T01:28:38.686Z
 tags:
   - ai video
   - ai youtube
@@ -33,9 +33,17 @@ Going outside and using natural light is the cheapest way to get a lot of light 
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/BR4gsW-J7as?si=9a56UDKZKhREZnwz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Video Lighting Basics: Three Point Lighting
 
 ![ Lighting for YouTube Video](https://images.wondershare.com/filmora/article-images/three-point-lighting.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Q_69vX9wnRE?si=FtLxkpRhPORqcMeE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 The most common technique of lighting a scene is called **three-point lighting**. It involves three different sources of light in the shot and is used by portrait photographers, which is also a great method for lighting your vlog.
 
@@ -49,14 +57,10 @@ The **fill light** is less bright than the primary source of light and it is pla
 
 The final step to creating three point lighting is to set up another light behind you. This is your 'Backlight', and it will help you stand out from your background. **Backlight or Hair light** is always placed behind and above the subject to create separation between the subject in the shot and the background. This basic lighting technique can be applied in almost every scene you shoot, which is why it is important to keep an open mind and to continue experimenting with possible light setups.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/XoC2TGp1PLY?si=iH9xs76NhWn4pP-E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### Watch Video! Top Lighting Tips for Vlogging
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/1rCjQ09iG7s?si=Si1fUBric8MH1VHI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Lp78eFEGwVU?si=-4orJBLvJJrggCJ2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Lightning Tips for Aspiring YouTube Videographers
@@ -86,7 +90,7 @@ Sets of reflectors are often under $50, so they are fairly affordable. However, 
 ![lighting tips](https://images.wondershare.com/filmora/article-images/lighting-tips01.JPG)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=M69YSY0Mk_gsdU0Q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/E3yY7lZ-FKA?si=g8VEuExP8GH59B69" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 If your strong main light is too hard on your eyes then you can use a translucent 'reflector' to soften it. Set your translucent reflector, or other screen, up in front of your main light to diffuse it.
@@ -96,7 +100,7 @@ If you are hosting a **beauty vlog** then you might consider a slightly differen
 ![lighting tips](https://images.wondershare.com/filmora/article-images/lighting-tips02.JPG)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/ZblaBc-v2vs?si=CKW1gJwXQT2vZJYo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fJlICvacgJY?si=jNeijBVj7ia4ammA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 If you are using all of the lighting options available to you and your video still looks too dark then you can try brightening it by **opening up the aperture of your camera** lens/setting a lower f-stop. Letting more light into your camera can help your footage look brighter, although you also run the risk of making things look overexposed/ washed out if you are not careful.
@@ -104,10 +108,6 @@ If you are using all of the lighting options available to you and your video sti
 If you are stuck shooting in **low light conditions** it is best to use a lens with a wider aperture/lower f-stop. This will make the best of the light you do have.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/cDNwgyE0nbY?si=3k_WBhpIw3WudJot" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -130,14 +130,16 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-tips.techidaily.com/024-approved-thriving-as-a-novice-youtuber-sidestep-these-8-crucial-pitfalls/"><u>[New] 2024 Approved Thriving as a Novice YouTuber? Sidestep These 8 Crucial Pitfalls!</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/new-2024-approved-unveiling-hidden-techniques-for-clear-ppt-transcriptions/"><u>[New] 2024 Approved Unveiling Hidden Techniques for Clear PPT Transcriptions</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/aily-dharma-the-best-yoga-channels-for-self-growth-for-2024/"><u>[New] Daily Dharma The Best Yoga Channels for Self-Growth for 2024</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/updated-in-2024-essential-ios-applications-for-playing-psp-classics/"><u>[Updated] In 2024, Essential iOS Applications for Playing PSP Classics</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-simplified-approach-to-removing-youtube-comments-with-ease-for-2024/"><u>[Updated] Simplified Approach to Removing YouTube Comments with Ease for 2024</u></a></li>
-<li><a href="https://youtube-help.techidaily.com/2024-approved-navigating-the-world-of-social-media-with-a-focused-brand/"><u>2024 Approved Navigating the World of Social Media with a Focused Brand</u></a></li>
-<li><a href="https://win-popular.techidaily.com/double-up-on-ios-functionality-effortlessly-linking-two-iphones-including-non-icloud-options/"><u>Double Up on iOS Functionality: Effortlessly Linking Two iPhones - Including Non-iCloud Options</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/in-2024-facebook-video-orientation-dilemma/"><u>In 2024, Facebook Video Orientation Dilemma?</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ize-view-count-best-yt-thumbnail-sizes-for-2024/"><u>Maximize View Count Best YT Thumbnail Sizes for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-video-perfection-in-progress-edits-after-uploading-on-youtube/"><u>[New] In 2024, Video Perfection in Progress Edits After Uploading on YouTube</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-2024-approved-mastering-social-media-top-10-ingenious-igtv-methods-for-brands/"><u>[Updated] 2024 Approved Mastering Social Media Top 10 Ingenious IGTV Methods for Brands</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/updated-exclusive-insight-into-budget-friendly-design-portals/"><u>[Updated] Exclusive Insight Into Budget-Friendly Design Portals</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-in-2024-smile-smarter-crafting-text-memes-like-a-pro/"><u>[Updated] In 2024, Smile Smarter Crafting Text Memes Like a Pro</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-premier-earnings-prodigy-on-youtube-for-2024/"><u>[Updated] Premier Earnings Prodigy on YouTube for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/o-get-youtube-sponsorship-for-small-channels-easy/"><u>How to Get YouTube Sponsorship for Small Channels (Easy)</u></a></li>
+<li><a href="https://fox-links.techidaily.com/novice-necessities-your-first-steps-in-gopro-world-for-2024/"><u>Novice Necessities - Your First Steps in GoPro World for 2024</u></a></li>
+<li><a href="https://win-blog.techidaily.com/quick-fixes-for-madden-nfl-22-resolving-common-game-issues-effortlessly/"><u>Quick Fixes for Madden NFL 22: Resolving Common Game Issues Effortlessly</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/uintessential-quotient-subscriber-rankings/"><u>The Quintessential Quotient Subscriber Rankings</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ise-of-a-monetary-maestro-ajeys-youtube-earnings-story-for-2024/"><u>The Rise of a Monetary Maestro Ajey's YouTube Earnings Story for 2024</u></a></li>
+<li><a href="https://video-content-creator.techidaily.com/updated-2024-approved-discover-the-best-top-game-download-websites/"><u>Updated 2024 Approved Discover the Best Top Game Download Websites</u></a></li>
 </ul></div>
 

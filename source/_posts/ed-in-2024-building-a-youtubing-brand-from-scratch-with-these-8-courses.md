@@ -1,7 +1,7 @@
 ---
 title: "[Updated] In 2024, Building a YouTubing Brand From Scratch with These 8 Courses"
-date: 2024-08-15T22:51:33.542Z
-updated: 2024-08-16T22:51:33.542Z
+date: 2025-01-12T19:40:43.318Z
+updated: 2025-01-18T18:19:08.706Z
 tags:
   - ai video
   - ai youtube
@@ -43,6 +43,10 @@ In this article, we highlighted 8 free online on-demand courses that you can tak
 
 While we encourage you to continue learning and exploring your interests and passions, we feel that it’s all about getting your hands dirty and doing it yourself. These free courses will help you dip your toes into different aspects of YouTube so that you can make better videos, improve your content discovery, and grow your audience.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/TJCye_oCTTw?si=6bVyBphcSgSFdyuq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Creating YouTube Videos with Wondershare Filmora
 
 As one of the best video editing software for YouTubers, [Filmora](https://tools.techidaily.com/wondershare/filmora/download/)allows you to create videos with templates and effects easily.
@@ -55,23 +59,21 @@ Amy Landino is a YouTuber, author, and keynote speaker. She is an expert on vlog
 
 To access the video course, you will need to subscribe to her email newsletter or if you would like the guide without receiving future emails, you can send an email to <meg@vlogboss.com>.
 
-<!-- affiliate ads begin -->
-<a href="https://mindmanager.sjv.io/c/5597632/1787667/20231" target="_top" id="1787667"><img src="//a.impactradius-go.com/display-ad/20231-1787667" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1787667/20231" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## 2\. [YouTube Creator Academy](https://creatoracademy.youtube.com/page/home)
 
 Once you’ve got your channel setup and you have a feel for YouTube, it’s time to expand your knowledge of the whole platform. YouTube has generously created a whole Academy to teach you all the fundamentals. From content creation to analytics to brand deals, the YouTube Creator Academy is one of the most valuable free resources. Before you start paying for any course online or in person, review all the content in the Academy first to get yourself to the next level.
 
 Many of the courses featured in YouTube Creator Academy are hosted by well-known YouTube creators, who have built a large following with their content. Some of the courses include: Make money on YouTube, Create great content, Copyright on YouTube, and many more.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3851691&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.aiseesoft.com/avangate/30p/banner.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ## 3\. Jump Cut: [YouTube Influencer 101 Crash Course](https://jumpcut.com/)
 
 Jump Cut is founded by Kong and Jesse, two YouTubers who have succeeded on the platform by mastering viral content. Jump Cut offers multiple paid courses, but the initial course is free. This course consists of 4 emails each one with a link to a video where Jesse, the instructor, walks you through 4 ideologies of creating compelling content that expands your reach and grows our channel.
 
 If you are a YouTuber looking to push your content creation capabilities, this is a course you must try. Be warned, after you sign up, the emails and the video have an expiration date and will eventually become unavailable. This is designed to stop you from procrastinating. So this course is serious business.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DEqoiNArwjQ?si=oaL_lgnI-RxY5Qy_" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 4\. Alison: [Introduction to Digital Photography](https://alison.com/course/introduction-to-digital-photography)
 
@@ -80,26 +82,24 @@ The principles of good photography are very similar to videography. Understandin
 The course features 13 modules, teaching the history, technical elements, and file formats of photography. Following the modules, there is an assessment where you can test all that you have learned.
 
 <!-- affiliate ads begin -->
-<a href="https://aidotcom.pxf.io/c/5597632/2086436/19576" target="_top" id="2086436"><img src="//a.impactradius-go.com/display-ad/19576-2086436" border="0" alt="" width="1500" height="400"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2086436/19576" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KF793jv1LIc?si=fJOogQJ2f8JUfTzZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## 5\. Hootsuite: [Social Marketing Training](https://education.hootsuite.com/courses/social-marketing-education)
 
 In this free social media course from Hootsuite, you will learn the benefits of spreading your message across multiple social media platforms and increasing the reach of your brand. All you need to do is sign up for a free account to access the material.
 
 As you start making videos for YouTube, you will discover that one of the best ways of sharing them is on social media. The thing is creating content on YouTube is different from Facebook, Twitter, and other channels. Understanding the native content of each platform, the behavior of the audience, and how to best optimize and schedule content on other channels will ensure that you not only get views to your YouTube video but build a lasting fanbase.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.textstudio.com/order/checkout.php?PRODS=35633309&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/d6eb8222c9718486bdabce8b897380f7/products/3_premium-icon.png" border="0"> Take advantage of PREMIUM features for 12 months. 
-Create your texts / logos without any limitation. 
-No attribution required when downloading. 
-No advertising on the website. 
- TextStudio.com  PREMIUM - Yearly Membership</a>
-<!-- affiliate ads end -->
 ## 6\. Moz: [SEO Training Course](https://www.udemy.com/whiteboard-seo/)
 
 At the start, one of the most effective ways for your videos to get discovered is through search. Moz, a search engine optimization (SEO) tool, compiled all their instructional videos together for this course, in order to teach you all the basics of how Google determines whether to show your content as number one in the search result page or bury it deep in the basement where it will never see the light of day.
 
 Understanding the fundamentals of SEO will put you leaps and bounds ahead of other YouTubers who are merely creating content out of random ideas they pluck from their heads.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qbuund2HKOQ?si=NaGHqIrx8hSL7gWV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 7\. FutureLearn: [The Secret Power of Brands](https://www.futurelearn.com/courses/the-secret-power-of-brands)
 
@@ -108,8 +108,9 @@ After you have found a comfortable niche for your YouTube channel to flourish in
 This free course gives you 8-weeks of free access, which includes articles, videos, peer reviews, and quizzes.
 
 <!-- affiliate ads begin -->
-<a href="https://zonlipartnershipprogram.pxf.io/c/5597632/1611407/17882" target="_top" id="1611407"><img src="//a.impactradius-go.com/display-ad/17882-1611407" border="0" alt="" width="300" height="485"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1611407/17882" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Dn-24B6AURY?si=ErES2KWVnintY6h9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## 8\. Leadpages: [The Affiliate Marketing System](https://lps.leadpages.net/affiliate-marketing-course/)
 
 As you grow your audience and have earned some credibility in your field, you will think of ways of monetizing your content. One way of doing that is through affiliate marketing, where you attached a link to a retailer’s website such as Amazon, and should your viewer click on the link and make a purchase, you will get a commission. Sounds wonderfully easy, right? Easy it is not, but with the help of this course from Leadpages, a landing page builder, you will get some strategies and resources to build your affiliate marketing program that earns you a passive income.
@@ -119,9 +120,6 @@ Leadpages offers this course in video and audio format, in addition, there are 1
 In this golden age of information, we can learn anything online. Sometimes we have to pay and other times we don’t. Have you discovered any free courses yourself? Share it with the community by leaving a comment below.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
-<!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=4729507&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.nero.com/nero-com-wAssets/img/banners/2023/TIU/Nero_TuneItUp_Screen_2.webp" border="0">/a>
-<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -129,14 +127,11 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -145,4 +140,26 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-lab.techidaily.com/024-approved-quick-fix-from-raw-images-to-high-quality-youtube-thumbnails/"><u>[New] 2024 Approved Quick Fix From Raw Images To High-Quality YouTube Thumbnails</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-the-ultimate-gathering-of-heartfelt-weddings-youtube-and-vimeo-edition/"><u>[New] In 2024, The Ultimate Gathering of Heartfelt Weddings - Youtube & Vimeo Edition</u></a></li>
+<li><a href="https://video-capture.techidaily.com/new-mac-tips-for-effective-lecture-saves/"><u>[New] Mac Tips for Effective Lecture Saves</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-2024-approved-optimizing-self-filmed-content-on-youtube/"><u>[Updated] 2024 Approved Optimizing Self-Filmed Content on YouTube</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-2024-approved-tailored-tricks-building-a-personalized-youtube-follow-buttons/"><u>[Updated] 2024 Approved Tailored Tricks Building a Personalized YouTube Follow Buttons</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-in-2024-things-about-asmr-video-you-should-know/"><u>[Updated] In 2024, Things About ASMR Video You Should Know</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-the-roadmap-to-youtube-fame-accruing-more-subscribers/"><u>[Updated] The Roadmap to YouTube Fame Accruing More Subscribers</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-unlimited-visual-potential-free-themes-for-channels-for-2024/"><u>[Updated] Unlimited Visual Potential – Free Themes for Channels for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-unveiling-youtube-shorts-what-it-all-means-for-2024/"><u>[Updated] Unveiling YouTube Shorts What It All Means for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/approved-enhance-content-reach-and-impact-social-blades-role-in-youtube-analytics/"><u>2024 Approved Enhance Content Reach and Impact - Social Blade's Role in YouTube Analytics</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/2024-approved-personalized-ringtone-crafting-from-tiktok-beats-to-cellphone-alerts/"><u>2024 Approved Personalized Ringtone Crafting From TikTok Beats to Cellphone Alerts</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/approved-tailoring-audience-for-your-youtube-videos/"><u>2024 Approved Tailoring Audience for Your Youtube Videos</u></a></li>
+<li><a href="https://common-error.techidaily.com/fixing-high-disk-usage-caused-by-microsofts-telemetry-service-in-windows-11-systems/"><u>Fixing High Disk Usage Caused by Microsoft's Telemetry Service in Windows 11 Systems</u></a></li>
+<li><a href="https://win-workspace.techidaily.com/guide-completement-a-reset-your-computer-before-selling-it/"><u>Guide Completement À Reset Your Computer Before Selling It</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/high-performance-mac-editors-ranked-1-to-5/"><u>High-Performance Mac Editors - Ranked #1 to #5</u></a></li>
+<li><a href="https://fake-location.techidaily.com/how-to-share-location-in-messenger-on-oneplus-open-drfone-by-drfone-virtual-android/"><u>How to Share Location in Messenger On OnePlus Open? | Dr.fone</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/resolve-windows-auditory-glitches-fixing-speaker-noise-in-win7win11/"><u>Resolve Windows Auditory Glitches: Fixing Speaker Noise in Win7/Win11</u></a></li>
+<li><a href="https://fox-that.techidaily.com/revive-your-iphones-standby-top-4-solutions/"><u>Revive Your iPhone's Standby: Top 4 Solutions</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/unlocking-creative-potential-downloading-free-luts-for-ar-development/"><u>Unlocking Creative Potential Downloading Free LUTs for AR Development</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Keeping Cameras Steady in Motion Landscapes"
-date: 2025-01-01T17:56:41.262Z
-updated: 2025-01-06T16:50:08.623Z
+date: 2025-01-18T16:01:36.094Z
+updated: 2025-01-19T16:01:31.905Z
 tags:
   - ai video
   - ai youtube
@@ -34,7 +34,7 @@ When you’re trying to grow a channel on YouTube it can feel like equipment is 
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/f3PFn06LijE?si=zHrmlTOzrKxXe-k4" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/E3yY7lZ-FKA?si=g8VEuExP8GH59B69" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### DIY Your Video with Wondershare Filmora
@@ -43,11 +43,11 @@ Wondershare Filmora has the best video stabilization tool is your videos have a 
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
+Here are 3 of our favorite DIY tripods.
+
 <!-- affiliate ads begin -->
 <iframe width="560" height="315" src="https://www.youtube.com/embed/sXLLPY11of0?si=-3YNnpnO0wbc0K_-" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
-
-Here are 3 of our favorite DIY tripods.
 
 ### **DIY smartphone tripod using binder clips or hair clips**
 
@@ -63,16 +63,12 @@ Here it is with binder clips:
 
 ![binder clips](https://images.wondershare.com/filmora/article-images/binder-clips.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fvAC8jgs62o?si=xqEXZ7dpAXZ4sZ7A" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 And here it is with hair clips:
 
 ![hair clips](https://images.wondershare.com/filmora/article-images/hair-clips.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/jpdGEJJwMLY?si=eKgXOPpNeYvYKcel" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9Jfq2Wx1Bcs?si=YQrYpTy0g4aV5QaO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Now you can set your smartphone upon any stable surface, like a table or a stack of books.
@@ -96,6 +92,10 @@ To get similar functions from the ‘any stable surface’ solution you can use 
 
 Now if your camera isn’t up high enough, or is too high, you can adjust it just by adding or taking away books. If you want to move it closer or farther away from you, just pull the towel forwards or backward.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GU08CQVsZz0?si=V-SvPfzRsQysMS0e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### **DIY gripping ‘Gorillapod’ using wire and tape**
 
 Gorillapod’s are cool because you can use them like normal tripods, carry them around like selfie sticks, or attach them to things like fences and posts. Here’s how you can make something similar using **wire**, **electrical tape** or **duct tape**, and a **1/4 bolt**.
@@ -105,7 +105,7 @@ Your wire should be fairly stiff and you’ll need three pieces the same length,
  ![wire and type](https://images.wondershare.com/filmora/article-images/wire-and-type.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/tkpBmccvJ_Q?si=J7ellPL1G1l8Axi_" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DBMTAJBx-X4?si=sje5pFJXiHzJJGbP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 _All of your supplies plus the finished product._
@@ -151,16 +151,19 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-tips.techidaily.com/n-2024-unveiling-the-secrets-of-youtube-video-dimensions-and-resolution/"><u>[New] In 2024, Unveiling the Secrets of YouTube Video Dimensions & Resolution</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-2024-approved-tagging-techniques-to-skyrocket-your-game-vids/"><u>[Updated] 2024 Approved Tagging Techniques to Skyrocket Your Game Vids</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-simplify-creating-youtube-thumbnails-now-for-2024/"><u>[Updated] Simplify Creating YouTube Thumbnails Now for 2024</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/approved-taming-the-black-screen-demon-of-youtube/"><u>2024 Approved Taming the Black Screen Demon of YouTube</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/best-android-data-recovery-undelete-lost-messages-from-oppo-a59-5g-by-fonelab-android-recover-messages/"><u>Best Android Data Recovery - Undelete Lost Messages from Oppo A59 5G</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/boosting-audio-quality-in-social-media-recordings-for-2024/"><u>Boosting Audio Quality in Social Media Recordings for 2024</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/o-use-google-trends-to-come-up-with-video-ideas-for-2024/"><u>How to Use Google Trends to Come up with Video Ideas for 2024</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/in-2024-achieving-cinematic-quality-through-aspect-ratio-choices/"><u>In 2024, Achieving Cinematic Quality Through Aspect Ratio Choices</u></a></li>
-<li><a href="https://win-solutions.techidaily.com/inside-look-how-infinity-ward-squashed-cod-mw-play-issues/"><u>Inside Look: How Infinity Ward Squashed Cod: MW Play Issues</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/live-action-sims-perfecting-your-videos-for-2024/"><u>Live-Action Sims Perfecting Your Videos for 2024</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/overcome-your-phasmophobia-game-glitch-fix-the-endless-load-screen-of-90/"><u>Overcome Your Phasmophobia Game Glitch - Fix the Endless Load Screen of 90%!</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/024-approved-achieve-professional-level-youtube-transcription-without-spending/"><u>[New] 2024 Approved Achieve Professional-Level YouTube Transcription Without Spending</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/024-approved-flv-file-symphony-creating-a-single-youtube-playlist/"><u>[New] 2024 Approved FLV File Symphony Creating a Single YouTube Playlist</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/024-approved-how-to-pick-a-unique-name-for-youtube-channel-filmora/"><u>[New] 2024 Approved How To Pick a Unique Name for YouTube Channel - Filmora</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/024-approved-negative-space-creating-youtube-reverse-videos/"><u>[New] 2024 Approved Negative Space Creating YouTube Reverse Videos</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/new-from-script-to-airwaves-step-by-step-guide-for-ios-audio-recording-for-2024/"><u>[New] From Script to Airwaves Step-by-Step Guide for iOS Audio Recording for 2024</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-in-2024-spinning-stories-across-a-whole-cone/"><u>[Updated] In 2024, Spinning Stories Across a Whole Cone</u></a></li>
+<li><a href="https://extra-information.techidaily.com/auditory-adventures-pinpointing-top-music-picks-for-podcast-openings-for-2024/"><u>Auditory Adventures Pinpointing Top Music Picks for Podcast Openings for 2024</u></a></li>
+<li><a href="https://techtrends.techidaily.com/dealing-with-errors-ensuring-uninterrupted-streaming-of-your-selected-show-on-netflix/"><u>Dealing with Errors: Ensuring Uninterrupted Streaming of Your Selected Show on Netflix</u></a></li>
+<li><a href="https://win-blog.techidaily.com/eradicate-game-buffering-unveiling-the-secrets-to-enhanced-high-frame-rates/"><u>Eradicate Game Buffering: Unveiling the Secrets to Enhanced High Frame Rates</u></a></li>
+<li><a href="https://win-able.techidaily.com/mastering-data-arrangement-in-microsoft-excel-discover-the-7-most-effective-techniques/"><u>Mastering Data Arrangement in Microsoft Excel: Discover the 7 Most Effective Techniques</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/maximizing-mobile-use-timely-decisions-for-phone-upgrades/"><u>Maximizing Mobile Use: Timely Decisions for Phone Upgrades</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/navigating-pip-functionality-in-microsoft-edge-for-2024/"><u>Navigating PIP Functionality in Microsoft Edge for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/-vocal-changer-tools-for-digital-personalities/"><u>Prime Vocal Changer Tools for Digital Personalities</u></a></li>
+<li><a href="https://graphic-issues.techidaily.com/remedying-streaming-lag-in-newest-win11-version/"><u>Remedying Streaming Lag in Newest Win11 Version</u></a></li>
 </ul></div>
 
