@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  From Zero to Hero in YouTube Traffic\""
-date: 2024-08-08T11:45:48.991Z
-updated: 2024-08-09T11:45:48.991Z
+date: 2025-01-21T05:47:43.678Z
+updated: 2025-01-25T00:38:43.434Z
 tags:
   - ai video
   - ai youtube
@@ -18,9 +18,6 @@ thumbnail: https://thmb.techidaily.com/acf1543a08c93a8277bd32ca8ca0045c1e81ebd50
 
 # The 12-step YouTube SEO Guide for Beginners Who Want More Views
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=40085955&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/f702defbc67edb455949f46babab0c18/products/2_logo9.png" border="0">FX PRO (Gold Robot + Silver Robot(Basic Package))</a>
-<!-- affiliate ads end -->
 ![](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 ##### Shanoon Cox
@@ -41,6 +38,10 @@ Ready?
 
 Let’s Go!
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FLO5dwmJAVs?si=1OYH8rv8aPaMsCiU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 1: Research Your Topic and Competitors
 
 [Come up with a video idea](https://tools.techidaily.com/wondershare/filmora/download/). Can’t come up with one? Let me help. I heard you can make a mean scrambled egg, why don’t you show the world how you do it?
@@ -53,19 +54,17 @@ Wait, don’t go making the video yet. First, we have to do some research. We ne
 
 Do a quick search on YouTube to see what videos already exist on your topic.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3922934&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4b0a0290ad7df100b77e86839989a75e/products/ripperpro.png" border="0">WonderFox DVD Ripper Pro</a>
-<!-- affiliate ads end -->
 ![Find Related Videos Sample](https://images.wondershare.com/filmora/article-images/find-related-videos.jpg)
 
 Uh oh… your video will be competing against celebrities like Gordon Ramsay and Jamie Oliver.
 
 Okay, don’t panic! There is a fantastic quote, credited to bestselling author, [Jon Acuff](https://acuff.me/), that goes:
 
-<!-- affiliate ads begin -->
-<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=1300375&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-15_%281%29.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ![fantastic quote](https://images.wondershare.com/filmora/article-images/fantastic-quote-do-not-compare-beginning-to-middle.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FATJWpNYmio?si=72ugPTb3vJXz6cAM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 While researching your competition, you will feel overwhelmed, but remember, you are at the beginning, and Gordon Ramsay and Jamie Oliver are not even at their middle, they are way passed the finish line. You still have a long journey to go, so don’t get discouraged, get inspired!
 
@@ -91,10 +90,11 @@ Come up with as many relevant keywords as you can. Start by entering a keyword i
 
 Once you have an idea of what people are searching for related to your topic, you’ll want to find more relevant keywords. I like to use the free app, [Ubersuggest](https://neilpatel.com/ubersuggest/)to do that.
 
-<!-- affiliate ads begin -->
-<a href="https://tokenmetrics.sjv.io/c/5597632/1864921/20702" target="_top" id="1864921"><img src="//a.impactradius-go.com/display-ad/20702-1864921" border="0" alt="" width="1251" height="1042"/></a>
-<!-- affiliate ads end -->
 ![Find Keywords with Ubersuggest](https://images.wondershare.com/filmora/article-images/keyword-seo-tool-ubersuggest.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/May-pLCUkEA?si=PGlcFZAlsp3S3beI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 This app gives you a whole list of long-tail keywords, which are 3-4-word phrases which is specific to what your video is about.
 
@@ -168,6 +168,10 @@ Have the specific keywords at the top, followed by more general keywords, and th
 
 **Branded**: Gordon Ramsay scrambled eggs
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JlX-G8rBs1w?si=iIhUoWAq5x3YK9rA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 2: Make The Best Darn Video Possible
 
 It doesn’t matter how relevant your keywords are or how epic your title is, if you video sucks (i.e. your viewers click in and leave right away), YouTube will not show it in search.
@@ -202,6 +206,10 @@ For example, in this scrambled egg video you are making, at the end you can ask,
 
 ![Encourage Viewers to Engage in Video](https://images.wondershare.com/filmora/article-images/encourage-viewers-to-engage-min.gif)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ZLb1ViO4WR8?si=g_aiHGNCd7eAvmDM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Who knows, who will respond.
 
 #### Step 9: Design a Thumbnail
@@ -220,18 +228,10 @@ You can use an online service called [Canva](https://www.canva.com/)or download 
 
 Want to know more thumbnail maker? Check our picks of the [best free YouTube thumbnail makers](https://tools.techidaily.com/wondershare/filmora/download/).
 
-<!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BGeneral%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/general-970x90.gif" border="0"></a>
-<!-- affiliate ads end -->
 ## Part 3: Publishing With Attention to Optimization
 
 Well done finishing the video! You are almost there… but not there yet.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698824&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/dex3pro-screenshot-homepage.png" border="0">PCDJ DEX 3 for Windows & MAC is the total entertainment DJ software solution, offering audio, video, and karaoke mixing ability. Automatic beat-sync, smart looping, 4 decks, DJ MIDI controller support, Karaoke Streaming and much more. 
-DEX 3 meets the demands of today’s versatile DJ, without compromise! 
-DEX 3 (Audio, Video and Karaoke Mixing Software for Windows/MAC | 3 Activations and Free Updates)</a>
-<!-- affiliate ads end -->
 ![XDyocwuGRiSptxueJZ5aokKqKt-JXMbX](https://images.filmora.io/5/XDyocwuGRiSptxueJZ5aokKqKt-JXMbX.gif)
 
 Come on, keep going!
@@ -268,9 +268,6 @@ Besides considering YouTube SEO, you should make a good YouTube video as well. F
 
 Do you have any questions about SEO? Please leave us a comment below.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.incomedia.eu/order/checkout.php?PRODS=14095146&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8b6cc3ee5ec407721ce3bf5ff4c0f56b/PRO_BUY_728x90-EN.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 Shanoon Cox
@@ -279,14 +276,11 @@ Shanoon Cox is a writer and a lover of all things video.
 
 Follow @Shanoon Cox
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -295,4 +289,24 @@ Follow @Shanoon Cox
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-tips.techidaily.com/re-there-restrictions-in-saving-youtube-videos-in-2024/"><u>[New] Are There Restrictions in Saving YouTube Videos, In 2024</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-facebook-video-acquisition-made-easy-best-android-downloader-apps-ranked/"><u>[New] Facebook Video Acquisition Made Easy Best Android Downloader Apps Ranked</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/trategies-to-enhance-your-youtube-video-positioning/"><u>[New] Strategies to Enhance Your YouTube Video Positioning</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-2024-approved-unlock-the-power-of-partnerships-youtube-ads-with-a-famebit-edge/"><u>[Updated] 2024 Approved Unlock the Power of Partnerships YouTube Ads with a FameBit Edge</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-in-2024-creating-captivating-mukbang-content-step-by-step/"><u>[Updated] In 2024, Creating Captivating Mukbang Content Step-By-Step</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-maximize-your-money-with-these-top-10-simple-and-strategic-youtube-biz-channels/"><u>[Updated] Maximize Your Money with These Top 10 Simple and Strategic YouTube Biz Channels</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-the-math-behind-making-money-youtubes-viewer-insights/"><u>[Updated] The Math Behind Making Money YouTube’s Viewer Insights</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-the-premier-video-symposium-life-past-vidcon-for-2024/"><u>[Updated] The Premier Video Symposium Life Past VidCon for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/approved-how-to-overcome-no-image-problem-in-youtube-shorts/"><u>2024 Approved How To Overcome No Image Problem in YouTube Shorts</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/2024-approved-toddler-tycoon-turned-teen-titan-the-income-of-a-kid-star/"><u>2024 Approved Toddler Tycoon Turned Teen Titan The Income of a Kid Star</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/approved-unlock-creativity-idea-driven-youtube-channel-titles/"><u>2024 Approved Unlock Creativity Idea-Driven YouTube Channel Titles</u></a></li>
+<li><a href="https://fox-triigers.techidaily.com/accelerate-your-pcs-performance-effective-techniques-to-clear-up-disk-space-tips-from-yl-computing/"><u>Accelerate Your PC's Performance: Effective Techniques to Clear Up Disk Space - Tips From YL Computing</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/best-amazon-offers-before-black-friday-and-cyber-monday-insider-tips-for-savvy-shoppers/"><u>Best Amazon Offers Before Black Friday and Cyber Monday - Insider Tips for Savvy Shoppers</u></a></li>
+<li><a href="https://techtrends.techidaily.com/hulu-rununk13-error-explained-and-solutions-for-a-smooth-streaming-experience/"><u>Hulu RUNUNK13 Error Explained and Solutions for a Smooth Streaming Experience</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-best-pokemons-for-pvp-matches-in-pokemon-go-for-apple-iphone-6s-drfone-by-drfone-virtual-ios/"><u>In 2024, Best Pokemons for PVP Matches in Pokemon Go For Apple iPhone 6s | Dr.fone</u></a></li>
+<li><a href="https://ai-topics.techidaily.com/in-2024-demystifying-ai-game-generators/"><u>In 2024, Demystifying AI Game Generators</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-how-to-sharefake-gps-on-uber-for-honor-magic-5-pro-drfone-by-drfone-virtual-android/"><u>In 2024, How to share/fake gps on Uber for Honor Magic 5 Pro | Dr.fone</u></a></li>
+</ul></div>
 

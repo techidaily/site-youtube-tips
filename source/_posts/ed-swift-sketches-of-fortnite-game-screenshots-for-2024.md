@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Swift Sketches of Fortnite Game Screenshots for 2024"
-date: 2024-08-08T11:47:12.010Z
-updated: 2024-08-09T11:47:12.010Z
+date: 2025-01-20T22:11:07.540Z
+updated: 2025-01-25T03:05:34.463Z
 tags:
   - ai video
   - ai youtube
@@ -32,23 +32,14 @@ Filmora has recently introduced a new feature named AI Portrait that uses Artifi
 
 **Step 01:** To start making a Fortnite thumbnail, it is important to have a screenshot of your gameplay. We can make a perfect screenshot using Fortnite Replay Mode. If you have recently played a Fortnite match, you can access its replay under the Career tab. Under the Career tab select Replays.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4726807&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/c14a8df1e1b4d5297e9cb30cb34d5a00/products/copy_copy_power-tools-48.png" border="0">Power Tools add-on for Google Sheets, Lifetime subscription</a>
-<!-- affiliate ads end -->
 ![make-fortnite-thumbnail-step1](https://images.wondershare.com/filmora/article-images/make-fortnite-thumbnail-step1.jpg)
 
 **Step 02:** If you are using a console, the game will only store 10 recent gameplays, but if you are using a PC, it will store 100 recent gameplays in this section. From all these gameplays, select the one that you want to use for the Thumbnail. Once you choose gameplay, you can control everything in it. The angle, speed, and camera mode.
 
-<!-- affiliate ads begin -->
-<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=12653853&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/bcb41ccdc4363c6848a1d760f26c28a0/products/14_videoproc-converter-ai-box.png" border="0"></a>
-<!-- affiliate ads end -->
 ![make-fortnite-thumbnail-step2](https://images.wondershare.com/filmora/article-images/make-fortnite-thumbnail-step2.jpg)
 
 **Step 03:** For creating a perfect thumbnail, select "Drone Free Camera" mode from the camera mode located on the bottom right corner of the screen. It will allow us to change the angle the way we want. Choose an angle of your choice and take the screenshot.
 
-<!-- affiliate ads begin -->
-<a href="https://vapordna.pxf.io/c/5597632/1494880/17238" target="_top" id="1494880"><img src="//a.impactradius-go.com/display-ad/17238-1494880" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1494880/17238" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![make-fortnite-thumbnail-step3](https://images.wondershare.com/filmora/article-images/make-fortnite-thumbnail-step3.jpg)
 
 **Step 04:** Open Filmora X, make sure to select the 16:9 screen ratio. Import the screenshot using the import button.
@@ -61,9 +52,6 @@ Filmora has recently introduced a new feature named AI Portrait that uses Artifi
 
 **Step 06:** Now, let's separate the background and character. Go to the Effects, then AI Portrait, select Human Segmentation, and drop it into the screenshot.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4708689&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/uppic/audible-converter-interface.png" border="0">Epubor Audible Converter for Win： Download and convert Audible AAXC/AA/AAX to MP3 with 100% original quality preserved.</a>
-<!-- affiliate ads end -->
 ![make-fortnite-thumbnail-step6](https://images.wondershare.com/filmora/article-images/make-fortnite-thumbnail-step6.jpg)
 
 **Step 07:** Filmora will ask you to purchase it, but you can now hit "Try it" to use it.
@@ -72,9 +60,6 @@ Filmora has recently introduced a new feature named AI Portrait that uses Artifi
 
 **Step 08:** It will remove the background of the screenshot.
 
-<!-- affiliate ads begin -->
-<a href="https://versadesk.pxf.io/c/5597632/1892107/21290" target="_top" id="1892107"><img src="//a.impactradius-go.com/display-ad/21290-1892107" border="0" alt="" width="1200" height="628"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1892107/21290" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![make-fortnite-thumbnail-step8](https://images.wondershare.com/filmora/article-images/make-fortnite-thumbnail-step8.jpg)
 
 **Step 09:** To add a background, go to the media and navigate to "Sample Color." Drag a color of your choice and drop it below the screenshot.
@@ -87,9 +72,6 @@ Filmora has recently introduced a new feature named AI Portrait that uses Artifi
 
 **Step 11:** We can make this Fortnite Thumbnail look more attractive by adding elements such as stickers and icons. Filmora contains a wide range of stickers. To access them, navigate to the Elements tab. Here you can find so many categories of elements. Choose any elements according to your need and drop them in the timeline above all other layers. If you cannot find a suitable sticker, you can download one from the internet and use it by importing it into Filmora.
 
-<!-- affiliate ads begin -->
-<a href="https://cowinaudio.pxf.io/c/5597632/1116855/13794" target="_top" id="1116855"><img src="//a.impactradius-go.com/display-ad/13794-1116855" border="0" alt="" width="767" height="285"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1116855/13794" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![make-fortnite-thumbnail-step11](https://images.wondershare.com/filmora/article-images/make-fortnite-thumbnail-step11.jpg)
 
 **Step 12:** Once you are satisfied with the final results, you can take the screenshot of the Thumbnail using the Snapshot icon located below the preview panel. It will create a screenshot in the media panel of Filmora.
@@ -104,9 +86,6 @@ Filmora has recently introduced a new feature named AI Portrait that uses Artifi
 
 With Filmora, there are no limits. You can use your imagination to create amazing Fortnite thumbnails or thumbnails for other purposes. This article is just a demo teaching you how you use Filmora X to develop free and astounding thumbnails. Explore other options and elements of Filmora to take your thumbnails to another level.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620780&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/728__90banner.jpg" border="0"></a>
-<!-- affiliate ads end -->
  ![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
 
 Ollie Mattison
@@ -115,14 +94,11 @@ Ollie Mattison is a writer and a lover of all things video.
 
 Follow @Ollie Mattison
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -131,4 +107,22 @@ Follow @Ollie Mattison
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-share.techidaily.com/new-celebrating-beauty-innovators-youtubes-elite-list-for-2024/"><u>[New] Celebrating Beauty Innovators YouTube's Elite List for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-navigating-the-intricacies-of-transferring-videos-to-youtube/"><u>[Updated] Navigating the Intricacies of Transferring Videos to YouTube</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-navigating-the-landscape-of-youtube-advertising-and-banners/"><u>[Updated] Navigating the Landscape of YouTube Advertising & Banners</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/approved-converting-youtube-videos-into-engaging-gifs-on-devices/"><u>2024 Approved Converting YouTube Videos Into Engaging GIFs on Devices</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/approved-unravel-time-on-your-screen-fresh-perspectives-to-watch-youtube-backwards/"><u>2024 Approved Unravel Time on Your Screen Fresh Perspectives to Watch YouTube Backwards</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/comprehensive-techniques-for-iphones-in-virtual-space-for-2024/"><u>Comprehensive Techniques for iPhones in Virtual Space for 2024</u></a></li>
+<li><a href="https://some-tips.techidaily.com/enhancing-your-network-setup-on-macos-steps-to-establish-diverse-connectivity-hubs/"><u>Enhancing Your Network Setup on macOS: Steps to Establish Diverse Connectivity Hubs</u></a></li>
+<li><a href="https://discover-excellent.techidaily.com/guide-converting-and-saving-mark-mansons-speaker-series-in-multiple-formats-mp4-mp3-avi/"><u>Guide: Converting and Saving Mark Manson's Speaker Series in Multiple Formats (MP4, MP3, AVI)</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/arch-of-success-pivotal-youtube-gatherings-after-vidcon/"><u>In Search of Success Pivotal YouTube Gatherings (After VidCon)</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/eres-role-in-your-youtube-creation-process/"><u>Premiere's Role in Your YouTube Creation Process</u></a></li>
+<li><a href="https://blog-min.techidaily.com/top-6-proven-artificial-intelligence-enhanced-video-resolution-tools/"><u>Top 6 Proven Artificial Intelligence Enhanced Video Resolution Tools</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RvR5PNhspKE?si=uJcMYK9v-_Xq7fAg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 

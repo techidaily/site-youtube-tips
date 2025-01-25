@@ -1,7 +1,7 @@
 ---
 title: "[New] In 2024, Innovation Hub for YouTube Gurus"
-date: 2024-08-15T22:50:34.437Z
-updated: 2024-08-16T22:50:34.437Z
+date: 2025-01-23T03:15:31.822Z
+updated: 2025-01-24T23:10:51.932Z
 tags:
   - ai video
   - ai youtube
@@ -51,6 +51,10 @@ _Nick talks about arriving in New York and goes through the swag box waiting in 
 
 There were some clues as to what the rest of the summit was like hiding amongst the swag too. Here’s what was in the box:
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MPoakxUNf9o?si=S-ppSqzHzN9VrxC7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 1\. A map of Dumbo
 
 The hotel YouTube put the creators up in was in Dumbo, Brooklyn. ‘Dumbo’ is an acronym for Down Under the Manhattan Bridge Overpass. While it used to be primarily an industrial area, Dumbo is now the most expensive neighborhood in Brooklyn with many of the old industrial spaces now serving as luxury residential lofts. Dumbo is also a hub for tech startups.
@@ -60,15 +64,13 @@ _Tess takes you to some of her favorite places in Dumbo._
 Dumbo is home to an interesting mix of ‘past’ and ‘future’. The creators who attended the summit probably had a lot of fun exploring it.
 
 <!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2027209/17108" target="_top" id="2027209"><img src="//a.impactradius-go.com/display-ad/17108-2027209" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2027209/17108" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/B2MlLvGxMwI?si=q_blGjXyJrGtzT8d" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## 2\. Post Cards
 
 One of the major benefits of attending this summit would have been networking with other creators, but because of how busy everyone was and how awkward it can be to arrange ‘bumping into’ someone YouTube created a way for creators to send each other notes. All they had to do was write a note on one of the postcards YouTube provided them with and stick it in one of the red mailboxes at the event. YouTube took care of making sure the person it was addressed to got it.
 
-<!-- affiliate ads begin -->
-<a href="https://proteahair.pxf.io/c/5597632/1983634/23621" target="_top" id="1983634"><img src="//a.impactradius-go.com/display-ad/23621-1983634" border="0" alt="" width="320" height="100"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983634/23621" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## 3\. S’well bottle
 
 S’well bottles are stainless steel beverage containers that keep drinks hot or cold. They retail for around $45\. YouTubers invited to the Creator Summit received ones with YouTube branding on them. A good water bottle is a convention/conference essential, so this was a very practical gift.
@@ -78,8 +80,9 @@ S’well bottles are stainless steel beverage containers that keep drinks hot or
 To help them relax after long days at the summit, YouTube provided creators with YouTube-branded slippers. They look pretty comfy. Plus, now every time these YouTubers look down at their feet they’ll be reminded to go make some videos.
 
 ![Branded slippers - 2017 YouTube Creator Summit](https://images.wondershare.com/filmora/article-images/youtube-creator-summit-branded-slippers.jpg)
+
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=2201613&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.macdvdripperpro.com/images/devices-3.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-G7cU8dYvuI?si=JaKqRcW6qq9CDvty" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 _thinknoodles wearing his YouTube slippers._
@@ -88,13 +91,18 @@ _thinknoodles wearing his YouTube slippers._
 
 There were numerous custom pins available at different events at the summit. Aside from a complementary Brooklyn and 1 Hotel Brooklyn Bridge (the hotel the creators were staying at) pins, the creators did not receive these in their swag boxes – they had to collect them.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PUDdKOsEN74?si=tkZf-KVinjuwmgx9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 6\. Denim jacket
 
 A denim jacket with a play button on it was also in the box. The idea was that creators would collect pins and display them on their new jackets. At the end of the week, they would have a great souvenir reminding them of every event they attended at the summit.
 
 _![Denim jacket- 2017 YouTube Creator Summit](https://images.wondershare.com/filmora/article-images/youtube-creator-summit-denim-jacket.jpg)_
+
 <!-- affiliate ads begin -->
-<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3DSysTools%2BGmail%2BBackup"><img src="https://www.systoolsgroup.com/box/gmail-backup.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/iLlpdv0cz_k?si=HwTdnMmeVJXm4GPV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 _Hannah Hart posted this photo from a river cruise she and other YouTubers went on while in New York for the summit._
@@ -104,14 +112,8 @@ Most creators here on Filmora are still trying to grow their channels, but one d
 Want to join the YouTube Creator Summit in the future? We all know that there is a long way to go, but we can start making good YouTube videos now. Remember to use [Filmora](https://tools.techidaily.com/wondershare/filmora/download/) with the templates and effects to touch up your YouTube videos.
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
-<!-- affiliate ads begin -->
-<a href="https://united.elfm.net/c/5597632/748964/4704" target="_top" id="748964"><img src="//a.impactradius-go.com/display-ad/4704-748964" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://united.elfm.net/i/5597632/748964/4704" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=32667153&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.coolmuster.com/uploads/image/20201228/feature02.png" border="0"></a>
-<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -119,14 +121,11 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -135,4 +134,20 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-tips.techidaily.com/024-approved-clearing-up-black-screens-in-youtube-playback/"><u>[New] 2024 Approved Clearing Up Black Screens in YouTube Playback</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-2024-approved-effortless-and-secure-transferring-of-huge-files-iphone-to-macos/"><u>[New] 2024 Approved Effortless & Secure Transferring of Huge Files IPhone to macOS</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/024-approved-how-to-insert-youtube-playlists-seamlessly-into-a-website/"><u>[New] 2024 Approved How to Insert YouTube Playlists Seamlessly Into a Website</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/024-approved-sound-selection-secrets-top-7-free-effects-for-youtube/"><u>[New] 2024 Approved Sound Selection Secrets Top 7 Free Effects for YouTube</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/mplify-content-with-free-audio-samples-for-2024/"><u>[New] Amplify Content with Free Audio Samples for 2024</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/new-explore-the-best-apps-for-effortless-youtube-to-webm-conversion-for-2024/"><u>[New] Explore the Best Apps for Effortless YouTube to WebM Conversion for 2024</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/amds-financial-report-gaming-revenue-slides-down-59-impressive-rise-in-data-center-cash-flow-by-115/"><u>AMD's Financial Report: Gaming Revenue Slides Down 59%; Impressive Rise in Data Center Cash Flow by 115%</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/-more-viewers-to-your-videos-top-growth-hacks-for-2024/"><u>Drive More Viewers to Your Videos Top Growth Hacks for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/lent-sound-devices-for-video-blogs-for-2024/"><u>Excellent Sound Devices for Video Blogs for 2024</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/how-to-unlock-vivo-y200e-5g-pin-codepattern-lockpassword-by-drfone-android/"><u>How to Unlock Vivo Y200e 5G PIN Code/Pattern Lock/Password</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-a-working-guide-for-pachirisu-pokemon-go-map-on-nokia-c12-plus-drfone-by-drfone-virtual-android/"><u>In 2024, A Working Guide For Pachirisu Pokemon Go Map On Nokia C12 Plus | Dr.fone</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-how-to-unlock-infinix-phone-password-without-factory-reset-by-drfone-android/"><u>In 2024, How to Unlock Infinix Phone Password Without Factory Reset?</u></a></li>
+<li><a href="https://techtrends.techidaily.com/unbeatable-apple-watch-discounts-limited-time-only/"><u>Unbeatable Apple Watch Discounts - Limited Time Only</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "The Art of Analytic Assessment in the YouTube Sphere for 2024"
-date: 2025-01-18T16:03:29.397Z
-updated: 2025-01-19T16:03:30.801Z
+date: 2025-01-20T12:10:00.418Z
+updated: 2025-01-25T05:14:02.329Z
 tags:
   - ai video
   - ai youtube
@@ -51,10 +51,6 @@ thumbnail: https://thmb.techidaily.com/3c3e9aebd6b49c0af91473b8783124a08a04e227f
 
 ![](https://images.wondershare.com/filmora/article-images/youtube-analytics-playback-location.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/-Bov2KfWQ_Y?si=MnVczisgeJ-sGW2r" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 #### 3\.  Demographics
 
  The demographics page helps you get YouTube insights, using them you can know the audience in a gender and location specific manner. For local businesses targeting a certain region, YouTube analytics would prove to be a boon. You can also know the geography and device used by the viewers with this feature. Understanding the gender and location of people will help you create dedicated product videos that would be helpful to them.
@@ -67,11 +63,19 @@ thumbnail: https://thmb.techidaily.com/3c3e9aebd6b49c0af91473b8783124a08a04e227f
 
 ![](https://images.wondershare.com/filmora/article-images/youtube-analytics-traffic-source.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/zXUt81WsQpI?si=W3DKIAsa2-qbGadJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 #### 5\.  Audience Retention
 
  This data explains how far your video has engaged your audience. Along with views, the duration that a viewer is on your video weighs too. From the audience retention page, you can find out the specific time that a viewer has exited your video and see what made them do so. There are 2 types of audience retention features – absolute audience retention and relative audience retention.
 
 ![](https://images.wondershare.com/filmora/article-images/youtube-analytics-audience-retention.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/4qA2pGQ5qmw?si=1mAA9WTi2Z5F7n6s" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 #### 6\.  Devices
 
@@ -79,15 +83,15 @@ thumbnail: https://thmb.techidaily.com/3c3e9aebd6b49c0af91473b8783124a08a04e227f
 
 ![](https://images.wondershare.com/filmora/article-images/youtube-analytics-devices.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/umvX4ZdWbxk?si=tPXL0-Kzf9SQaY8z" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 #### 7\.  Likes and dislikes
 
  YouTube insights gauge the audience acceptance for your video by the number of likes and dislikes. Videos with a huge number of like implies that it is loved by people, though, the quality of video can't exactly be defined by the number of likes or dislikes. Even the best quality video created for asking opinions about a certain situation/issue might be good enough but still get dislikes.
 
 ![](https://images.wondershare.com/filmora/article-images/youtube-analytics-likes-and-dislikes.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/JlX-G8rBs1w?si=iIhUoWAq5x3YK9rA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 #### 8\.  Subscribers
 
@@ -105,15 +109,15 @@ thumbnail: https://thmb.techidaily.com/3c3e9aebd6b49c0af91473b8783124a08a04e227f
 
 ![](https://images.wondershare.com/filmora/article-images/youtube-analytics-annotations.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/lxv4NM-89CU?si=Uj5rOkhrwZ_6QIuW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 #### 10\.  Comments
 
  Audience engagement on any YouTube video can easily be gauged by using the vital aspect known as comments. Either it touched a chord in their heart, inspired or motivated them, or simply made them smile, the comments will say it all. Sometimes the audience simply taps 'Like' in place of commenting at their convenient.
 
 ![](https://images.wondershare.com/filmora/article-images/youtube-analytics-comments.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/cKRBWf1EDZo?si=CTNd4q450biit4eM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 #### 11\.  Cards
 
@@ -122,7 +126,7 @@ thumbnail: https://thmb.techidaily.com/3c3e9aebd6b49c0af91473b8783124a08a04e227f
 ![](https://images.wondershare.com/filmora/article-images/youtube-analytics-cards.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/AQn0MYjIfyI?si=rIdjT-qMRpjpJXXa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Rxyki8-Y630?si=dHLkIxG59zdlZeN0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 #### 12\.  Sharing
@@ -132,7 +136,7 @@ thumbnail: https://thmb.techidaily.com/3c3e9aebd6b49c0af91473b8783124a08a04e227f
 ![](https://images.wondershare.com/filmora/article-images/youtube-analytics-sharing.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/umvX4ZdWbxk?si=tPXL0-Kzf9SQaY8z" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UCqHbpxQGP4?si=XGkajFHdqyoKNAFM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 #### 13\.  Videos in playlists
@@ -154,10 +158,6 @@ thumbnail: https://thmb.techidaily.com/3c3e9aebd6b49c0af91473b8783124a08a04e227f
  InflueNex is a helpful influencer marketing tool for Analyzing, searching, and managing YouTubers. With the help of this YouTube analytics tool, you're able to learn your competitors' channels and videos with detailed information.
 
 ![InflueNex YouTube Marketing Paltform ](https://images.wondershare.com/filmora/article-images/influenex-youtube-marketing-paltform.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/tPgf_wSdhS8?si=BHoH1ryaxmwk-8FV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 #### 2\. [Rival IQ](https://www.rivaliq.com/)
 
@@ -192,24 +192,14 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-tips.techidaily.com/024-approved-adding-impact-strategies-for-youtubes-last-impressions/"><u>[New] 2024 Approved Adding Impact Strategies for Youtubes' Last Impressions</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/024-approved-elevate-visibility-maximize-views-seo-for-videos/"><u>[New] 2024 Approved Elevate Visibility, Maximize Views - SEO for Videos</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/024-approved-enhance-visibility-youtube-thumbnails-made-simple/"><u>[New] 2024 Approved Enhance Visibility YouTube Thumbnails Made Simple</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/024-approved-giggles-in-the-garage-ingenious-funny-video-concepts-for-youtubers/"><u>[New] 2024 Approved Giggles in the Garage Ingenious Funny Video Concepts for YouTubers</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/024-approved-mastering-gifs-leading-platforms-reviewed/"><u>[New] 2024 Approved Mastering GIFs Leading Platforms Reviewed</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/024-approved-minecraft-banner-templates-get-them-here/"><u>[New] 2024 Approved Minecraft Banner Templates Get Them Here</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/024-approved-professionals-choice-premium-youtube-cameras/"><u>[New] 2024 Approved Professionals' Choice Premium YouTube Cameras</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/024-approved-short-form-content-breakdown-now/"><u>[New] 2024 Approved Short Form Content Breakdown Now!</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/new-guide-to-prime-gopro-protectors-top-10-reviewed-for-2024/"><u>[New] Guide to Prime GoPro Protectors - Top 10 Reviewed for 2024</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/aomei-cyberback-engine-streamlined-central-server-backup-solution/"><u>AOMEI CyberBack Engine: Streamlined Central Server Backup Solution</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-repair-corrupt-mp4-and-avi-files-of-motorola-moto-g-5g-2023-with-video-repair-utility-on-windows-by-stellar-video-repair-mobile-video-repair/"><u>How to Repair corrupt MP4 and AVI files of Motorola Moto G 5G (2023) with Video Repair Utility on Windows? </u></a></li>
-<li><a href="https://win-ratings.techidaily.com/how-to-securely-format-your-seagate-external-hard-drive-on-windows-10-8-and-7/"><u>How to Securely Format Your Seagate External Hard Drive on Windows 10, 8 & 7</u></a></li>
-<li><a href="https://extra-information.techidaily.com/in-2024-breakthrough-tactics-for-improved-voice-identity-in-pubg/"><u>In 2024, Breakthrough Tactics for Improved Voice Identity in PUBG</u></a></li>
-<li><a href="https://bypass-frp.techidaily.com/in-2024-how-to-bypass-honor-magic-vs-2-frp-in-3-different-ways-by-drfone-android/"><u>In 2024, How To Bypass Honor Magic Vs 2 FRP In 3 Different Ways</u></a></li>
-<li><a href="https://article-helps.techidaily.com/instantaneous-photographic-view-in-win11-for-2024/"><u>Instantaneous Photographic View in Win11 for 2024</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/leading-uninterruptible-power-supplies-ups-for-enhanced-energy-security-2024-edition/"><u>Leading Uninterruptible Power Supplies (UPS) for Enhanced Energy Security, 2024 Edition</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/0-most-viewed-videos-on-youtube-of-all-time-for-2024/"><u>Top 10 Most Viewed Videos on YouTube of All Time for 2024</u></a></li>
-<li><a href="https://some-tips.techidaily.com/uniendo-videos-eficientemente-tecnicas-faciles-y-rapidas-de-movavi/"><u>Uniendo Videos Eficientemente: Técnicas Fáciles Y Rápidas De Movavi</u></a></li>
-<li><a href="https://ai-video-apps.techidaily.com/updated-in-2024-create-stunning-loops-best-free-gif-software/"><u>Updated In 2024, Create Stunning Loops Best Free GIF Software</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-maximizing-your-creations-uploading-imovie-videos-to-youtube/"><u>[New] In 2024, Maximizing Your Creations Uploading IMovie Videos to YouTube</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/new-insightful-guide-on-the-best-gopro-headsets-6-and-beyond/"><u>[New] Insightful Guide on The Best GoPro Headsets #6 & Beyond</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-2024-approved-earning-big-on-youtube-shorts-what-you-need-and-how-much-can-you-make/"><u>[Updated] 2024 Approved Earning Big on Youtube Shorts What You Need & How Much Can You Make?</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-elite-7-cameras-elevating-interactive-learning-vlogs-and-tutorials-for-2024/"><u>[Updated] Elite 7 Cameras Elevating Interactive Learning Vlogs & Tutorials for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/approved-recovering-youtube-gems-2-easy-watch-methods-revealed/"><u>2024 Approved Recovering Youtube Gems 2 Easy Watch Methods Revealed</u></a></li>
+<li><a href="https://printer-issues.techidaily.com/fix-for-post-update-printer-failure/"><u>Fix for Post-Update Printer Failure</u></a></li>
+<li><a href="https://fake-location.techidaily.com/how-to-fake-gps-on-lava-blaze-pro-5g-for-mobile-legends-drfone-by-drfone-virtual-android/"><u>How To Fake GPS On Lava Blaze Pro 5G For Mobile Legends? | Dr.fone</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/cket-your-subscribers-with-these-easy-strategies-for-2024/"><u>Skyrocket Your Subscribers with These Easy Strategies for 2024</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/srt-conversion-essentials-ttml-xml-ssa-and-beyond/"><u>SRT Conversion Essentials TTML, XML, SSA, and Beyond</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Channel Confidence  Tips for Trending on YouTube\""
-date: 2024-08-08T11:43:45.954Z
-updated: 2024-08-09T11:43:45.954Z
+date: 2025-01-20T11:10:41.307Z
+updated: 2025-01-25T10:04:02.580Z
 tags:
   - ai video
   - ai youtube
@@ -18,9 +18,6 @@ thumbnail: https://thmb.techidaily.com/51abaf027a31735325c9f76686dddc367d5ab57a5
 
 # 8 Tips on How to Vlog Confidently Like Popular YouTubers
 
-<!-- affiliate ads begin -->
-<a href="https://store.bitdefender.com/affiliate.php?ACCOUNT=BITLATIN&AFFILIATE=108875&PATH=http%3A%2F%2Fwww.bitdefender.com%2Fbusiness%3FAFFILIATE%3D108875%26RESOURCE%3D30%2525%2BOff%2Ball%2BGravityZone%2BProducts"><img src="https://www.bitdefender.com/content/dam/bitdefender/business/campaign/1200X628.png" border="0"></a>
-<!-- affiliate ads end -->
 ![](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
@@ -43,10 +40,6 @@ There will be an urge for you to mimic other vloggers, talking and acting the wa
 
 Don’t focus on your image, but instead focus on your voice. What makes you different? That is how you will build a proper reputation.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.emeditor.com/order/checkout.php?PRODS=4610657&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.emeditor.com/wp-content/uploads/2024/06/emeditor_chat_ai.png" border="0">
-EmEditor is a fast, lightweight, yet extensible, easy-to-use text editor, code editor, CSV editor, and large file viewer for Windows. Both native 64-bit and 32-bit builds are available, and moreover, the 64-bit includes separate builds for SSE2 (128-bit), AVX-2 (256-bit), and AVX-512 (512-bit) instruction sets. New versions support AI-assisted writing.</a>
-<!-- affiliate ads end -->
 ## **2\. Tell A Story**
 
 A vlog is not an assortment of footage haphazardly put together. A successful vlog must have a story: a conflict told with a beginning, middle, and end.
@@ -65,9 +58,6 @@ The ending needs to be justified even if there is a twist. Everything before tha
 
 The gold standard example of a surprising, yet inevitable end is Casey Neistat's bike lane video. Everything in the video is leading up to the end, but when you watch it the first time it’s unexpected, and that’s why it’s so good.
 
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1657399/16446" target="_top" id="1657399"><img src="//a.impactradius-go.com/display-ad/16446-1657399" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1657399/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **4\. Be Inviting**
 
 A common trait of successful vloggers is that they are welcoming. They share their passion and encourage others to join in. Vlogging is about being a guide. It doesn’t matter if you are leading a tour of your home or showing your viewer an interesting new skill, it is important for you to approach the whole process with open arms.
@@ -77,9 +67,9 @@ Unlike being invited to a party, there is no obligation when it comes to YouTube
 The opposite of inviting is rejecting, and when you are a vlogger, you don’t want to reject anyone from enjoying your videos.
 
 <!-- affiliate ads begin -->
-<a href="https://order.glarysoft.com/order/checkout.php?PRODS=35504869&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/1_FR-200-1.png" border="0">Glarysoft File Recovery Pro Annually -  Helps to recover your lost file/data, even permanently deleted data. 
-</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/VxFUhesNCKo?si=Ti0ui6DXYP12sjSs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## **5\. Compose the Shot**
 
 Vlogging is a visual medium, and while the story is important, what is captured in the frame will play an impactful role in the video as well.
@@ -93,8 +83,9 @@ Check out this example from [Rosanna Pansino](https://www.youtube.com/channel/UC
  The camera follows her fluidly throughout the video, but it is her eyes that guide both the camera moves and what she wants our attention to be directed to. Don’t hesitate to let the viewer know what you want them to see.
 
 <!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/863039/11832" target="_top" id="863039"><img src="//a.impactradius-go.com/display-ad/11832-863039" border="0" alt="" width="300" height="250"/></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RBN1gYY5hUs?si=p89CMiMzeJzU0wGu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## **6\. Be Prepared**
 
 While you can pick up a camera and start vlogging on the fly, being prepared enables you to produce the best video possible. Take a few minutes before you hit record simply to outline the key points you want to talk about and how the video will end, ensuring that after filming you haven’t forgotten a crucial part.
@@ -105,6 +96,10 @@ Good preparation includes having all your gear ready for filming when you need i
 
 Take a look at [Ashley Nichole](https://www.youtube.com/channel/UC8GTe3Wn7dtWXf3B%5Fv5gm9w) in this vlog and notice that although she sounds spontaneous, it is also evident that she knows what she is going to talk about next.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3UyJuZYzjt0?si=W87GeyzVKVORAk7S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **7\. Be Expressive**
 
 Remember those teachers that drone on and on, without adding any expression or passion to what they are lecturing? While they might have been perfectly suitable as teachers, they wouldn’t make good vloggers.
@@ -114,6 +109,10 @@ If you speak on camera in a monotone voice, you are not being expressive. Your f
 Consider your audience: they are coming home from school or work, where there were classes and meetings, and the last thing they want to watch is a video of your speaking without energy.
 
 Want to see a vlogger that is awesome at being expressive on camera? Check out [Emma Chamberlain](https://www.youtube.com/channel/UC78cxCAcp7JfQPgKxYdyGrg), if you haven’t already. Every word she says in her video is layered with emotion. We know exactly how she feels.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/X4q6gyaEojM?si=ImdFm6Zsr0azykqV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **8\. Stay Organized**
 
@@ -137,12 +136,13 @@ Do you have any vlogging tricks of your own? Leave a comment below.
 
 If you want to find a video editing solution that empowers your imagination and creativity yet takes less effort, please try this robust and user-friendly video editing software **Wondershare Filmora**, which will definitely enhance your productivity and helps you to make money by making videos much easier.
 
-<!-- affiliate ads begin -->
-<a href="https://otszone.ots7.com/order/checkout.php?PRODS=4713321&QTY=1&AFFILIATE=108875&CART=1"><img src="https://green.ots7.com/screenshots/OtsAV/OtsAVDJ1.90-300x188.jpg" border="0">OtsAV DJ Pro</a>
-<!-- affiliate ads end -->
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/uzb-0C0xUYA?si=F4MPhdVqyVgx7_8X" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -150,14 +150,11 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -166,4 +163,22 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-sharing-recording.techidaily.com/new-comprehensive-guide-to-exceptional-screen-recording-on-the-go-with-mobizen/"><u>[New] Comprehensive Guide to Exceptional Screen Recording on the Go with Mobizen</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/uide-to-equipment-selection-for-youtube-creators-for-2024/"><u>[New] Guide to Equipment Selection for YouTube Creators for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-pro-freefire-compiling-premier-gaming-vids-and-hashtags/"><u>[New] In 2024, Pro-FreeFire Compiling Premier Gaming Vids and Hashtags</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-unlock-your-youtube-potential-expert-tips-on-writing-video-outlines/"><u>[New] In 2024, Unlock Your YouTube Potential Expert Tips on Writing Video Outlines</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/new-unveiling-the-secrets-of-youtube-video-dimensions-and-resolution/"><u>[New] Unveiling the Secrets of YouTube Video Dimensions & Resolution</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-best-5-youtube-tag-generators-and-tips-to-tag-videos-properly-for-2024/"><u>[Updated] Best 5 YouTube Tag Generators & Tips to Tag Videos Properly for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-pause-unrequested-youtube-video-selections/"><u>[Updated] Pause Unrequested YouTube Video Selections</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-pixels-to-perfection-design-tips-for-captivating-banners/"><u>[Updated] Pixels to Perfection Design Tips for Captivating Banners</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-sound-fidelity-at-home-mastering-quality-recordings/"><u>[Updated] Sound Fidelity at Home Mastering Quality Recordings</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/approved-born-to-create-video-magic-mac-basics-for-beginners-on-youtube/"><u>2024 Approved Born to Create Video Magic Mac Basics for Beginners on YouTube</u></a></li>
+<li><a href="https://blog-min.techidaily.com/4-ways-to-transfer-music-from-realme-narzo-n55-to-iphone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>4 Ways to Transfer Music from Realme Narzo N55 to iPhone | Dr.fone</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/free-download-brother-mfc-9130cw-printer-drivers-and-software/"><u>Free Download: Brother MFC-9130CW Printer Drivers & Software</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/how-to-change-itel-a70-lock-screen-password-by-drfone-android/"><u>How To Change Itel A70 Lock Screen Password?</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/how-to-enable-dts-audio-for-your-preferred-speaker-or-headset/"><u>How to Enable DTS Audio for Your Preferred Speaker or Headset</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/razer-portal-for-gamers-a-comprehensive-seo-review-on-wi-fi-connectivity/"><u>Razer Portal for Gamers - A Comprehensive SEO Review on Wi-Fi Connectivity</u></a></li>
+</ul></div>
 

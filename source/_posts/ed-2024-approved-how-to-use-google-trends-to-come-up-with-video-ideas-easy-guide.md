@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  How to Use Google Trends to Come up with Video Ideas [Easy Guide]\""
-date: 2025-01-18T12:33:27.870Z
-updated: 2025-01-19T08:04:56.149Z
+date: 2025-01-21T06:23:41.087Z
+updated: 2025-01-24T23:12:58.719Z
 tags:
   - ai video
   - ai youtube
@@ -39,13 +39,13 @@ Google Trends is a completely free tool you can use to determine what’s trendi
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MPoakxUNf9o?si=S-ppSqzHzN9VrxC7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 1: Seeing The Big Picture
 
 ![Google Trends YouTube Ideas](https://images.wondershare.com/filmora/article-images/how-to-use-google-trends-to-come-up-with-video-seeing-big-picture.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/0pSRlspzW-A?si=A82G3Yxwj_31cKDq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 _You’ll need to be signed into your Google account to use Google Trends._
 
@@ -56,7 +56,7 @@ Unless you do news or political commentary on your channel these probably aren�
 To get information more relevant to your channel you’re going to have to do some filtering.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/H2cXnI9oOvM?si=3nz2sBB124ln-83T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/yDuvbv0QOYI?si=byottcEM_Rrvi4EL" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 2: Getting Results That Matter to You
@@ -68,10 +68,6 @@ Then click from 'Daily Search Trends' to 'Realtime Search Trends'.
 On top you will see two drop-down menus, one is for the category and one is for location.
 
 ![Google Trends Video Ideas](https://images.wondershare.com/filmora/article-images/google-trends-video-ideas.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fqBKCGAKHmA?si=OkoaI17nE5qNqTHj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Under **All categories** select the general theme your channel falls under.
 
@@ -107,9 +103,17 @@ What happens after you click **enter** is pretty much magic. Say I want to make 
 
 ![Google Trends YouTube Video Keywords](https://images.wondershare.com/filmora/article-images/google-trends-search-term.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/pRR3Oq03EuE?si=ZTy8-WH0AesA9zRh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 You can see near the top that this chart represents searches for the topic over the last 5 years, which isn’t necessarily useful (although it is sort of cool that you can see when Filmora was ‘born’). I’m going to narrow that down to results from the U.S in the last week.
 
 ![Google Trends YouTube Video Ideas Filmora](https://images.wondershare.com/filmora/article-images/google-trends-search-term-time-range.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/mK1lEBRm_1w?si=FSaM0OKO0XBCgjtT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 There, now I can see how the popularity of Filmora as a search term has spiked on specific days and times (if you hover over a spike it tells you the time and day) and plan to post my video at a time that capitalizes on these trends.
 
@@ -126,7 +130,7 @@ Although, when you do a comparison like this you should also go to YouTube and s
 ![YouTube search Filmora Keyword](https://images.wondershare.com/filmora/article-images/google-trends-youtube-keyword-search.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/1KKovVi9epE?si=EF7KA7b4KsEpWA-M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/htnQWyEOCgc?si=fy86hi8_hTtbWAnw" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 _If my view of YouTube looks different from yours it’s because I’m using the [VidIQ plugin for Chrome](https://chrome.google.com/webstore/detail/vidiq-vision-for-youtube/pachckjkecffpdphbpmfolblodfkgbhl?hl=en). It’s free and it gives you all kinds of extra info about videos and channels._
@@ -146,10 +150,6 @@ As one of the most widely used video editing software among YouTubers, Filmora p
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/xg3PHS_Ee80?si=fE_iGIqHjKvWFIN3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -172,20 +172,14 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://extra-hints.techidaily.com/new-ace-memes-top-template-compendium/"><u>[New] Ace Memes Top Template Compendium</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/new-effective-strategies-for-premiere-sound-transitioning-for-2024/"><u>[New] Effective Strategies for Premiere Sound-Transitioning for 2024</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/new-how-to-change-name-in-google-meet-on-laptop-and-mobile-devices/"><u>[New] How to Change Name in Google Meet on Laptop and Mobile Devices?</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/n-2024-quick-guide-extracting-specific-segments-from-youtube/"><u>[New] In 2024, Quick Guide Extracting Specific Segments From YouTube</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/n-2024-top-8-youtube-imagery-techniques-for-higher-engagement/"><u>[New] In 2024, Top 8 YouTube Imagery Techniques for Higher Engagement</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/olishing-your-youtube-projects-the-premiere-pro-way/"><u>[New] Polishing Your YouTube Projects The Premiere Pro Way</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/updated-2024-approved-tailored-treasure-troves-the-ultimate-list-of-online-box-sellers/"><u>[Updated] 2024 Approved Tailored Treasure Troves The Ultimate List of Online Box Sellers</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-2024-approved-youtube-shorts-earning-blueprint/"><u>[Updated] 2024 Approved Youtube Shorts Earning Blueprint</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-5-innovative-youtube-thumbnail-designers-for-aspiring-filmmakers/"><u>[Updated] 5 Innovative YouTube Thumbnail Designers for Aspiring Filmmakers</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-invaluable-resource-for-zero-cost-video-and-photo-providers/"><u>[Updated] Invaluable Resource for Zero-Cost Video and Photo Providers</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/a-guide-huawei-nova-y91-wireless-and-wired-screen-mirroring-drfone-by-drfone-android/"><u>A Guide Huawei Nova Y91 Wireless and Wired Screen Mirroring | Dr.fone</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/detailed-guide-of-ispoofer-for-pogo-installation-on-honor-v-purse-drfone-by-drfone-virtual-android/"><u>Detailed guide of ispoofer for pogo installation On Honor V Purse | Dr.fone</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/24-stumble-upon-substantial-comment-sections/"><u>In 2024, Stumble upon Substantial Comment Sections</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/24-the-complete-2023-youtubers-handbook-for-rotated-content/"><u>In 2024, The Complete 2023 Youtuber's Handbook for Rotated Content</u></a></li>
-<li><a href="https://fix-guide.techidaily.com/infinix-hot-40i-screen-unresponsive-heres-how-to-fix-it-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Infinix Hot 40i Screen Unresponsive? Heres How to Fix It | Dr.fone</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-in-2024-telegram-marketing-101-a-step-by-step-guide-for-starters/"><u>[New] In 2024, Telegram Marketing 101 A Step-by-Step Guide for Starters</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-maximizing-subscribers-youtubes-expansion-blueprint-for-2024/"><u>[Updated] Maximizing Subscribers YouTube's Expansion Blueprint for 2024</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-the-art-of-humor-in-video-tips-for-facebook-and-instagram-memes-for-2024/"><u>[Updated] The Art of Humor in Video Tips for Facebook and Instagram Memes for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/approved-mastery-in-migrating-youtube-videos-to-igtv-platform/"><u>2024 Approved Mastery in Migrating YouTube Videos to IGTV Platform</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/approved-strategies-for-captivating-end-moments/"><u>2024 Approved Strategies for Captivating End Moments</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ing-the-screens-top-10-most-popular-female-youtubers-for-2024/"><u>Breaking the Screens Top 10 Most Popular Female YouTubers for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/discover-the-top-yt-channels-for-gadget-enthusiasts-for-2024/"><u>Discover the Top YT Channels for Gadget Enthusiasts for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/tless-online-guide-youtube-video-to-gif-magic-no-download/"><u>Effortless Online Guide YouTube Video to GIF Magic (No Download)</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/how-to-change-lock-screen-wallpaper-on-vivo-y100-5g-by-drfone-android/"><u>How to Change Lock Screen Wallpaper on Vivo Y100 5G</u></a></li>
 </ul></div>
 

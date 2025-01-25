@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Binge on Christmas Classics  Enjoy 9 Whole-Film Flicks No Charge!\""
-date: 2025-01-15T16:00:03.849Z
-updated: 2025-01-19T16:00:37.924Z
+date: 2025-01-20T20:44:35.204Z
+updated: 2025-01-25T02:30:02.860Z
 tags:
   - ai video
   - ai youtube
@@ -31,16 +31,12 @@ If you are looking for Christmas entertainment this season you may be quick to l
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fo4lNZ84x9Q?si=WdcYPZp-9VJnZEnC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 1. The nutcracker 1990
 
 The Nutcracker is a holiday classic that many people seek out every year on the stage. This family ballet classic was filmed by the Pacific Northwest ballet in a huge and lavish version of the production in 1986\. This still stands as one of the best versions of the Nutcracker ever captured on film and you can watch it for free on YouTube. You can find the Nutcracker at :
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=M69YSY0Mk_gsdU0Q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GyfJUhsz_AY?si=x2HjoLX1B89oEPgZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 2. A smoky mountain Christmas
@@ -52,7 +48,7 @@ A Smoky Mountain Christmas is a film from 1986 directed by Harry Winkler and sta
 This film from 1989 features Jim Varney and his most famous character Ernest in a holiday Christmas movie that is an instant classic. This film is very funny and a favorite amongst some of the Ernest films for many. This Christmas movie from 1989 can be found at:
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/VxFUhesNCKo?si=Ti0ui6DXYP12sjSs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Dn-24B6AURY?si=ErES2KWVnintY6h9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 4. A Christmas story
@@ -68,7 +64,7 @@ In this film from 1998 we hear the story of the richest kid in the world on Chri
 This film stars the hulk Mark Ruffalo in one of his earlier roles as a store employee who catches a con woman trying to steal from a department store on Christmas. His character agrees to be responsible for the con woman and her niece over the holidays to prevent them from staying with social services. A romance develops! This 1997 film can be found at:
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/W5aJC8okA8s?si=L2rnYAp-gmGlLQSf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GBWcw6rXIdg?si=Tlue44bW-bPA4tH9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 7. Santa Who?
@@ -76,12 +72,16 @@ This film stars the hulk Mark Ruffalo in one of his earlier roles as a store emp
 Santa who is a film from the year 2000 starring Leslie Nielsen. In this holiday classic Santa suffers a severe case of amnesia on Christmas Eve and needs to recover for Christmas day in order to make it through and deliver presents to all of the good children of the world. See if Santa gets his Christmas memories back by watching Santa Who here:
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/vPGg53vbOsk?si=CkSEN5HFPS7vDuAa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Iz2LYWd8EqI?si=G_3CqFRAmeVPczjj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 8. A Christmas Carol
 
 In this film from 1984 George C Scott brings to life the role of Ebenezer Scrooge from the perspective of the Charles Dickens novel. This is heavily been regarded as one of the most accurate versions to the Charles Dickens story. Although it may not have all of the special effects of some of the other versions of a Christmas carol this is still one of the favored versions of the story out there. You can watch this 1984 film here:
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KdpTAZ9zonQ?si=5Nd5SPW1axA7GPuB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 9. Miracle on 34th street
 
@@ -110,17 +110,22 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-tips.techidaily.com/co-friendly-cities-redefining-urban-spaces-for-nature/"><u>[New] Eco-Friendly Cities Redefining Urban Spaces for Nature</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/new-strategic-brand-integrations-within-youtube-realms/"><u>[New] Strategic Brand Integrations Within YouTube Realms</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-in-2024-charting-new-territory-strategies-for-youtube-keyword-research/"><u>[Updated] In 2024, Charting New Territory Strategies for YouTube Keyword Research</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-in-2024-decoding-youtubes-revenue-model-for-video-clips/"><u>[Updated] In 2024, Decoding YouTube's Revenue Model for Video Clips</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/updated-optimal-techniques-for-capturing-ppt-sessions/"><u>[Updated] Optimal Techniques for Capturing PPT Sessions</u></a></li>
-<li><a href="https://win-solutions.techidaily.com/dread-hunger-game-fixes-solving-constant-pc-crashes/"><u>Dread Hunger Game Fixes: Solving Constant PC Crashes</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/basic-to-exceptional-a-step-by-step-thumbnail-guide/"><u>From Basic to Exceptional A Step-by-Step Thumbnail Guide</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/24-personalize-your-tune-list-a-step-by-step-guide-to-youtube-playlist-creation/"><u>In 2024, Personalize Your Tune List A Step-by-Step Guide to YouTube Playlist Creation</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/step-by-step-tutorial-repairing-your-built-in-camera-problems-on-a-windows-pc/"><u>Step-by-Step Tutorial: Repairing Your Built-In Camera Problems on a Windows PC</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/top-9-tecno-spark-10-pro-monitoring-apps-for-parental-controls-drfone-by-drfone-virtual-android/"><u>Top 9 Tecno Spark 10 Pro Monitoring Apps for Parental Controls | Dr.fone</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/er-the-best-12-flipscreen-vlogging-cameras-on-a-budget/"><u>Uncover the Best 12 Flipscreen Vlogging Cameras on a Budget</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/unlocking-user-generated-content-harnessing-community-influence-for-2024/"><u>Unlocking User-Generated Content Harnessing Community Influence for 2024</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/new-googles-goldmine-a-simplified-three-step-blueprint-for-calculating-subscriber-earning-potential-for-2024/"><u>[New] Google's Goldmine A Simplified Three-Step Blueprint for Calculating Subscriber Earning Potential for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-conceptualists-engineering-marvel-online-worlds/"><u>[New] In 2024, Conceptualists Engineering Marvel Online Worlds</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-unlock-your-youtube-personality-top-6-creator-categories/"><u>[New] In 2024, Unlock Your YouTube Personality Top 6 Creator Categories</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/treamlining-song-selection-for-youtube-playlist-curation/"><u>[New] Streamlining Song Selection for YouTube Playlist Curation</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-2024-approved-skyrocket-view-counts-with-youtube-short-creation-techniques/"><u>[Updated] 2024 Approved Skyrocket View Counts with YouTube Short Creation Techniques</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-2024-approved-speedy-pc-file-examination-guide/"><u>[Updated] 2024 Approved Speedy PC File Examination Guide</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-in-2024-amplifying-video-clarity-on-youtube/"><u>[Updated] In 2024, Amplifying Video Clarity on YouTube</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-in-2024-yt-bidirectional-navigating-the-queue-from-the-conclusion-backwards/"><u>[Updated] In 2024, YT Bidirectional Navigating the Queue From the Conclusion Backwards</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-the-ultimate-checklist-of-8-mirrorless-cameras-for-vloggers/"><u>[Updated] The Ultimate Checklist of 8 Mirrorless Cameras for Vloggers</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/approved-carryminati-unmasked-the-monetary-milestones/"><u>2024 Approved CarryMinati Unmasked The Monetary Milestones</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/craft-engaging-youtube-stays-strategies-to-shine-without-thousand-supporters-for-2024/"><u>Craft Engaging YouTube Stays Strategies to Shine without Thousand Supporters for 2024</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/experience-gaming-unbound-android-in-desktop-windows-with-google-play-service/"><u>Experience Gaming Unbound: Android in Desktop Windows with Google Play Service</u></a></li>
+<li><a href="https://win-special.techidaily.com/guia-facil-de-4-pasos-para-la-sincronizacion-en-tiempo-real-con-aomei-backupper/"><u>Guía Fácil De 4 Pasos Para La Sincronización en Tiempo Real Con AOMEI Backupper</u></a></li>
+<li><a href="https://android-frp.techidaily.com/in-2024-full-guide-to-bypass-poco-c51-frp-by-drfone-android/"><u>In 2024, Full Guide to Bypass Poco C51 FRP</u></a></li>
+<li><a href="https://smart-video-creator.techidaily.com/new-in-2024-bring-your-vision-to-life-best-1080p-video-editing-software-reviewed/"><u>New In 2024, Bring Your Vision to Life Best 1080P Video Editing Software Reviewed</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/screen-capture-in-depth-look-at-top-obs-tools-for-2024/"><u>Screen Capture In-Depth Look at Top OBS Tools for 2024</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/top-ranking-mini-computers-comprehensive-evaluation-by-tech-experts/"><u>Top-Ranking Mini Computers - Comprehensive Evaluation by Tech Experts</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "\"Apex Artists  YouTube's Most-Followed Sages for 2024\""
-date: 2024-08-08T11:47:17.404Z
-updated: 2024-08-09T11:47:17.404Z
+date: 2025-01-22T12:02:00.738Z
+updated: 2025-01-24T21:44:28.729Z
 tags:
   - ai video
   - ai youtube
@@ -18,9 +18,6 @@ thumbnail: https://thmb.techidaily.com/4b0cf62f8598176374094f1d5008db55cda943f9c
 
 # YouTube Subscriber Chart - 5 Most Subscribed YouTuber
 
-<!-- affiliate ads begin -->
-<a href="https://electronicx.pxf.io/c/5597632/1872456/14483" target="_top" id="1872456"><img src="//a.impactradius-go.com/display-ad/14483-1872456" border="0" alt="" width="500" height="375"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1872456/14483" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
@@ -53,12 +50,13 @@ In this article, we will take you through the 5 most popular creator channels on
 * [Smosh](#smosh)
 * [Fernanfloo](#fern)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2087264/19272" target="_top" id="2087264"><img src="//a.impactradius-go.com/display-ad/19272-2087264" border="0" alt="" width="336" height="280"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2087264/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### 1\.  PewDiePie
 
 ![PewDiePie](https://images.wondershare.com/filmora/article-images/pew-die-pie.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/58KlTPHv8dU?si=7ICagyNgrao7OkVO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 YouTube's most well-known superstar Felix Arvid Ulf Kjellberg was born 1989 in Gothenburg. PewDiePie’s channel has made this Swedish comedian, Vlogger, and gamer based in Brighton, England, a global celebrity whose videos have reached record audiences. Felix created his YouTube channel in 2010 and in only six short years the PewDiePie YouTube channel received over 16 billion views and it is currently among the most viewed channels ever.
 
@@ -72,6 +70,10 @@ At the age of 27, Germán Alejandro Garmendia Aranis is the owner of the second 
 
 The Chilean YouTube superstar uploaded his first YouTube video in 2011 and by October 2012 his channel has reached 1 million subscribers. Recently, German has lent his voice to a character in the Spanish version of Ice Age: Collision Course. He finds inspiration for his comic YouTube videos in everyday life and topics like ex-girlfriends, school, and phobias are frequently covered in videos published on the HolaSoyGerman channel. In 2014 and 2015 German won the 'Icon of the Year' prize from MTV Millennial Awards.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/epKTCSREjhI?si=Ez_hObK1FZrmEE7f" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ###  3\.  ElrubiusOMG
 
 ![ElrubiusOMG](https://images.wondershare.com/filmora/article-images/elrubius-omg.jpg)
@@ -81,14 +83,11 @@ More than 25 million subscribers who follow this gaming commentator. The El Rubi
 Based in Madrid, El Rubius OMG first became popular in Spanish-speaking countries, and as his fame increased he gained recognition throughout the world. During 2012 his channel became the most subscribed Spanish speaking channel, and on April 21, 2016, El Rubius received the 'YouTuber of the Year' award during the 1st Play Awards celebration in Palma De Mallorca. In addition to being one of the most popular YouTubers of all time, Rubén is also a published author whose first book 'The Troll Book' was the bestselling book in Spain for 8 weeks.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=38729081&QTY=1&AFFILIATE=108875&CART=1"><img src="https://website-prod.cache.wpscdn.com/img/wps-office-pdf-editor-1x.890dbda.png" border="0">
-WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KF793jv1LIc?si=fJOogQJ2f8JUfTzZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ###  4\.  Smosh
 
-<!-- affiliate ads begin -->
-<a href="https://zonlipartnershipprogram.pxf.io/c/5597632/1596691/17882" target="_top" id="1596691"><img src="//a.impactradius-go.com/display-ad/17882-1596691" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1596691/17882" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Smosh](https://images.wondershare.com/filmora/article-images/smosh.jpg)
 
 Originally, Smosh was a channel run by sketch comedy duo Ian Andrew Hecox and Anthony Padilla. They started the Smosh YouTube channel in 2005 and since then they have grown their team to include more creators, and their content to include animation and gaming. Smosh has become much more than two funny guys on YouTube – it is a wildly successful content company.
@@ -97,9 +96,6 @@ Most channels that have one viral video do not go on to have sustained success o
 
 In 2017, Anthony Padilla chose to leave Smosh to focus on his own solo YouTube channel.
 
-<!-- affiliate ads begin -->
-<a href="https://getlyla.pxf.io/c/5597632/1455723/15391" target="_top" id="1455723"><img src="//a.impactradius-go.com/display-ad/15391-1455723" border="0" alt="" width="336" height="280"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1455723/15391" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### 5\.  Fernanfloo
 
 ![Fernanfloo](https://images.wondershare.com/filmora/article-images/fernan-floo.jpg)
@@ -113,16 +109,18 @@ At the end of 2015, Alvarado launched the Fenanfloo mobile app that had 2.3 mill
 Looking for a live [YouTube subscriber chart](https://tools.techidaily.com/wondershare/filmora/download/)?
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068425/7443" target="_top" id="2068425"><img src="//a.impactradius-go.com/display-ad/7443-2068425" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068425/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/97ydpSmzTJw?si=tFcelmtQX4u-b3u5" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Edit YouTube Videos with Full-Featured Video Editing Software
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<a href="https://aidotcom.pxf.io/c/5597632/2086436/19576" target="_top" id="2086436"><img src="//a.impactradius-go.com/display-ad/19576-2086436" border="0" alt="" width="1500" height="400"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2086436/19576" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1CdWd06fCwc?si=wzg-68q0jAksPRXp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -130,14 +128,11 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -146,4 +141,22 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-efficient-content-curation-steps-towards-a-well-organized-watch-later-playlist/"><u>[New] In 2024, Efficient Content Curation Steps Towards a Well-Organized 'Watch Later' Playlist</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-six-best-film-alternates-ranked-7-picks/"><u>[New] In 2024, Six Best Film Alternates Ranked #7 Picks</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ackling-social-media-platforms-an-in-depth-look-at-igtv-and-youtube/"><u>[New] Tackling Social Media Platforms An In-Depth Look at IGTV and YouTube</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/updated-2024-approved-discord-live-stream-recording-guide/"><u>[Updated] 2024 Approved Discord Live Stream Recording Guide</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-2024-approved-unlock-video-potential-with-expert-chroma-techniques/"><u>[Updated] 2024 Approved Unlock Video Potential with Expert Chroma Techniques</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-proven-hashtags-for-youtube-audience-surge/"><u>[Updated] Proven #Hashtags for YouTube Audience Surge</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-the-future-of-tv-watching-a-closer-look-at-youtube-tv-for-2024/"><u>[Updated] The Future of TV Watching A Closer Look at YouTube TV for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/approved-earn-on-youtube-decoding-recent-policy-changes/"><u>2024 Approved Earn on YouTube Decoding Recent Policy Changes</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/approved-speedy-alteration-of-yt-vids-for-mac-screens/"><u>2024 Approved Speedy Alteration of YT Vids for Mac Screens</u></a></li>
+<li><a href="https://win-forum.techidaily.com/exploring-digital-networks-a-journey-through-facebook-twitter-instagram-and-youtube/"><u>Exploring Digital Networks: A Journey Through Facebook, Twitter, Instagram & YouTube</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/in-2024-dynamic-ppt-leveraging-voice-for-effective-delivery/"><u>In 2024, Dynamic PPT Leveraging Voice for Effective Delivery</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/speech-to-text-efficient-conversion-techniques-for-microsoft-word-users-for-2024/"><u>Speech to Text Efficient Conversion Techniques for Microsoft Word Users for 2024</u></a></li>
+<li><a href="https://buynow-help.techidaily.com/top-performing-processors-a-comprehensive-guide/"><u>Top-Performing Processors: A Comprehensive Guide</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/shing-potential-the-best-seo-practices-for-your-youtube-videos-for-2024/"><u>Unleashing Potential The Best SEO Practices for Your YouTube Videos for 2024</u></a></li>
+<li><a href="https://video-content-creator.techidaily.com/updated-in-2024-s-hottest-adobe-premiere-title-templates-free-download/"><u>Updated In 2024, S Hottest Adobe Premiere Title Templates - Free Download</u></a></li>
+</ul></div>
 

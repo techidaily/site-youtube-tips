@@ -1,7 +1,7 @@
 ---
 title: "[Updated] The Compact Guide to Creating Viral Music on YouTube for 2024"
-date: 2025-01-04T00:03:17.638Z
-updated: 2025-01-06T23:22:59.439Z
+date: 2025-01-22T07:27:52.062Z
+updated: 2025-01-24T23:59:16.624Z
 tags:
   - ai video
   - ai youtube
@@ -43,6 +43,10 @@ The entertainment industry is continually taking the world by storm. Lots of imp
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ASUEYpqSP5E?si=0KOZxrTVexTuUkRn" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## What are YouTube Shorts?
 
 YouTube Shorts is an app feature in YouTube that was introduced in 2020\. It has so far rolled out in more than 100 countries. It enables both artists and creators to compose short videos to express any feeling. It could be for entertainment or educational purposes. However, the videos are short, not exceeding 60 seconds, with a default length of 15 seconds. You also have the option to record your videos with music to add value to your video.
@@ -69,9 +73,164 @@ You may put across your message via Shorts but adding some music will help the v
 
 Music can stimulate actions, causing immediate attraction to the listener. Use YouTube Shorts music to emphasize the overall story.
 
+## YouTube Shorts Music - Things You Need to Know
+
+#### 1\. How to add music to your YouTube Shorts video?
+
+As a creator, it is ideal to know how to add music to your YouTube Shorts video. Follow these steps to add music using the YouTube Shorts creator tool camera.
+
+**Step 1.** First, select the Shorts video that you want to add music to.
+
+**Step 2.** Then click on the “YouTube Shorts creator camera” tool.
+
+**Step 3.** You’ll then be directed to your camera where you’ll find the “Add Music” option.
+
+**Step 4.** Then find a “Library of songs” from popular artists that you can use. Select the song you wish to use.
+
+**Step 5.** Finally, tap the “Use This Sound” option found at the bottom of the screen. Then just cue up what part of the song to use on your Shorts and go-ahead to record and upload the video.
+
+#### 2\. The sources of music for YouTube Shorts?
+
+You can use any music clip as long as it is not a copyrighted piece of music. Bellow are common sources where to find background music for YouTube Shorts video.
+
+YouTube Audio Library: This is the first place to source YouTube Shorts music. YouTube is free and contains tons of free songs. You can sort your selection by duration, genre, instrument, mood, etc. To access music, go to the “Creator Studio” > “Create” > “Audio Library” and select which music to use.
+
+Free Music Archive: This is another free site where you can discover an array of curated background music for any type of content. You’ll get more than 1,500 tracks at the tap of a button.
+
+SoundCloud: SoundCloud streaming music service lets you use its “Creative Commons” music as long as you follow the guidelines that are laid down by the artist.
+
+Converted music from your computer: You can also download and convert available songs from Spotify, Amazon Music, Tidal, among other streaming services. Just get a music converter tool that will remove encryption from the tracks to make it free for use forever.
+
+#### 3\. How to extend music on YouTube Shorts?
+
+Even though the typical duration for YouTube Shorts music is 15 seconds, you can make them longer up to 60 seconds. Just record multiple clips at 15 seconds intervals that add up to 60 seconds.
+
+#### 4\. Can I use my own audio in YouTube Shorts?
+
+Yes, you can use your audio in YouTube Shorts. Several converter apps are available for downloading and converting music to playable formats. Filmora is one available tool that will provide free music and let you edit your videos with minimal effort. More so, you can import and export your music in any format to make stunning YouTube Shorts videos.
+
+##### Key Features of Filmora
+
+* Edit and export your videos at a high resolution of up to 4K
+* Use it to add animated messages from the titles and text library
+* Easily adjust the audio of each music track on your timeline
+* Add any mood with its royalty-free songs and sound effects to YouTube Shorts videos
+
+##### How to add a music track to your video with Filmora
+
+1\. First, open up Filmora and go to “Project Settings” and select the “Change project aspect ratio” option.
+
+2\. From the aspect ratio, select “9:16” portrait.
+
+![how to use your own music on youtube shorts](https://images.wondershare.com/filmora/article-images/2021/aspect-ratio.png)
+
+3\. Then set the resolution according to your preference.
+
+4\. Next, select the “Frame rate” according to your existing video that you wish to convert into Shorts. Hit the “OK” button to save the settings.
+
+5\. Drag and drop your footage onto the timeline. Ensure you keep the project settings.
+
+6\. You can add text or music to your footage. To add music, first, download music from YouTube or other sources into your computer.
+
+7\. Then click on the “Audio” option from the “Menu” bar and choose music that’s already available on your PC.
+
+![choose audio to add to video](https://images.wondershare.com/filmora/article-images/2021/choose-audio.png)
+
+8\. Next, import the music to the video. Just click on the “File” > “Import File” > “Import Video Files” option.
+
+![add audio to youtube shorts](https://images.wondershare.com/filmora/article-images/2021/add-audio-to-video.png)
+
+9\. Click on the “+” icon to add the music to your video.
+
+10\. You’ll then have the song onto your project.
+
+[Try It Free](https://tools.techidaily.com/wondershare/filmora/download/)
+
+For Win 7 or later (64-bit)
+
+[Try It Free](https://tools.techidaily.com/wondershare/filmora/download/)
+
+For macOS 10.12 or later
+
+#### 5\. Do artists earn royalties from Shorts?
+
+Yes. Artists do receive some revenue from their music if creators use their songs in YouTube Short videos. Royalties come from ad revenue but it will depend on the type of ad on the video. So, more popular videos get higher rates than non-popular ones.
+
+#### 6\. What to post on YouTube Shorts?
+
+You can post several videos to YouTube Shorts which include:
+
+* **Tutorials:** teach your viewers via YouTube Shorts.
+* **Confessional videos:** This is when you speak to your viewers about what you are passionate about.
+* **Entertainment videos:** You can also entertain your viewers with funny videos.
+
+#### 7\. Can I promote my music on YouTube Shorts?
+
+YouTube Shorts is a perfect platform to promote your music if you are an artist. You can either hire an influencer or do it yourself as an artist. These tips will help you to successfully promote your brand.
+
+**Be precise:** Condense all the important details in your video and ensure the background music aligns with the theme.
+
+**Think widely:** Check at what others are adding to their Shorts. You can include memes and other entertaining clips.
+
+**Post videos more often:** Since YouTube Shorts are short videos that can’t accommodate so much information, try to post your videos more often so that your viewers follow up closely on what you are putting across.
+
+**Use catchy music:** It doesn’t mean that the latest singles are more catchy or viral. Songs from a few years ago can also be equally catchy.
+
+#### 8\. How are YouTube Shorts different from other short-form videos?
+
+YouTube streaming service is already a popular platform that provides tones of music and video clips. Encompassing Shorts just pushed it at the forefront. The userbase is readily available and any Shorts you post will be widely viewed in over 100 countries. More so, you can extract music from the platform for use on your Shorts videos.
+
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Un9G2_OdSRI?si=vAcGbco8DuWt4ypP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/l4R7_qNIQvY?si=2zJOPfEcm6_3udzn" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
+## Conclusion
+
+You can make a great milestone with **YouTube Shorts music** than if you didn’t use any. Music makes your videos catchy and interesting to viewers. Several platforms are available for sourcing music to use on your Shorts. More so, you can use the recommended app, Filmora, to add free music to your videos.
+
+[Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/)
+
+The entertainment industry is continually taking the world by storm. Lots of improvements are on the rise, especially online. Several apps are now at your fingertip, and you can access lots of videos and music right from your mobile phone. The social media platform has made it easy for millions of users to access information from other creators and editors. From Facebook, Instagram, WhatsApp, and the new kid in the block YouTube Shorts. And being that YouTube streaming service already harbors many users, Shorts has just come at the right time, with ready users at hand. Additionally, YouTube shorts music will spice up your listening experience like never before.
+
+![what is youtube shorts](https://images.wondershare.com/filmora/article-images/2021/youtube-shorts.png)
+
+#### In this article
+
+01 [What are YouTube Shorts?](#part1)
+
+02 [Which role does music play in YouTube Shorts?](#part2)
+
+03 [YouTube Shorts Music - Things You Need to Know](#part3)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HaM818fFKXQ?si=ZZLA4lFSHSgCpSE0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+## What are YouTube Shorts?
+
+YouTube Shorts is an app feature in YouTube that was introduced in 2020\. It has so far rolled out in more than 100 countries. It enables both artists and creators to compose short videos to express any feeling. It could be for entertainment or educational purposes. However, the videos are short, not exceeding 60 seconds, with a default length of 15 seconds. You also have the option to record your videos with music to add value to your video.
+
+YouTube Shorts has two main features; a platform to watch short videos and a tool you can use to compose your own short-form videos. To watch the clip, just go to the “Homepage” and find several thumbnails for popular Shorts. Then click on a video and land on the vertical video player to watch the video. Likewise, you can use the thumbs up or down to like or dislike the video. Additionally, you can pause the video and post a comment or share the Shorts with other fans.
+
+## Which role does music play in YouTube Shorts?
+
+Music is always soothing to the soul. And using YouTube shorts music is a quick way to boost your video performance. Check below the importance of using music in your Shorts.
+
+#### \- Generates important emotions
+
+Music creates a good mood, giving your audience a positive feeling towards your YouTube Shorts. Any sound will touch the listener, making the videos more interesting and beautiful.
+
+#### \- Music is memorable
+
+If you use a particular tune, then there is a way your listeners will think directly of you when they hear the tune. It gives more value to the Shorts. [Choosing the right music for your Shorts video is also important](https://tools.techidaily.com/wondershare/filmora/download/).
+
+#### \- Music represents who you are
+
+You may put across your message via Shorts but adding some music will help the viewer directly imagine your identity.
+
+#### \- For effective message
+
+Music can stimulate actions, causing immediate attraction to the listener. Use YouTube Shorts music to emphasize the overall story.
 
 ## YouTube Shorts Music - Things You Need to Know
 
@@ -137,7 +296,7 @@ Yes, you can use your audio in YouTube Shorts. Several converter apps are availa
 ![choose audio to add to video](https://images.wondershare.com/filmora/article-images/2021/choose-audio.png)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9Q8Feep0Rc0?si=YkPhRxXGvrRRMJtb" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/O7ChChlyX2o?si=7pMKdN1NZig1kYek" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 8\. Next, import the music to the video. Just click on the “File” > “Import File” > “Import Video Files” option.
@@ -195,7 +354,7 @@ The entertainment industry is continually taking the world by storm. Lots of imp
 ![what is youtube shorts](https://images.wondershare.com/filmora/article-images/2021/youtube-shorts.png)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aknYnDfODro?si=zONIVzA9FFq0rLOD" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/tPgf_wSdhS8?si=BHoH1ryaxmwk-8FV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 #### In this article
@@ -284,7 +443,7 @@ Yes, you can use your audio in YouTube Shorts. Several converter apps are availa
 ![how to use your own music on youtube shorts](https://images.wondershare.com/filmora/article-images/2021/aspect-ratio.png)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LlYIdWQc-jw?si=ZQ5809CbQGEar0vg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3AGmFrtBLHw?si=VhvpUaXHPBHl6OT6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 3\. Then set the resolution according to your preference.
@@ -302,6 +461,10 @@ Yes, you can use your audio in YouTube Shorts. Several converter apps are availa
 8\. Next, import the music to the video. Just click on the “File” > “Import File” > “Import Video Files” option.
 
 ![add audio to youtube shorts](https://images.wondershare.com/filmora/article-images/2021/add-audio-to-video.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Vca--yEhtdo?si=7ijqjyP-oi3LYze1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 9\. Click on the “+” icon to add the music to your video.
 
@@ -342,6 +505,10 @@ YouTube Shorts is a perfect platform to promote your music if you are an artist.
 #### 8\. How are YouTube Shorts different from other short-form videos?
 
 YouTube streaming service is already a popular platform that provides tones of music and video clips. Encompassing Shorts just pushed it at the forefront. The userbase is readily available and any Shorts you post will be widely viewed in over 100 countries. More so, you can extract music from the platform for use on your Shorts videos.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gMS5pm0SQlQ?si=gasOo6p2agrVlIb7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -388,7 +555,7 @@ You may put across your message via Shorts but adding some music will help the v
 Music can stimulate actions, causing immediate attraction to the listener. Use YouTube Shorts music to emphasize the overall story.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YZma8PBO0D8?si=9-qQgGVTuChYd27a" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/K7fATC_lI7o?si=UFotPJqflDRZr-mv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## YouTube Shorts Music - Things You Need to Know
@@ -442,6 +609,10 @@ Yes, you can use your audio in YouTube Shorts. Several converter apps are availa
 
 ![how to use your own music on youtube shorts](https://images.wondershare.com/filmora/article-images/2021/aspect-ratio.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Rxyki8-Y630?si=dHLkIxG59zdlZeN0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 3\. Then set the resolution according to your preference.
 
 4\. Next, select the “Frame rate” according to your existing video that you wish to convert into Shorts. Hit the “OK” button to save the settings.
@@ -497,177 +668,6 @@ YouTube Shorts is a perfect platform to promote your music if you are an artist.
 #### 8\. How are YouTube Shorts different from other short-form videos?
 
 YouTube streaming service is already a popular platform that provides tones of music and video clips. Encompassing Shorts just pushed it at the forefront. The userbase is readily available and any Shorts you post will be widely viewed in over 100 countries. More so, you can extract music from the platform for use on your Shorts videos.
-
-## Conclusion
-
-You can make a great milestone with **YouTube Shorts music** than if you didn’t use any. Music makes your videos catchy and interesting to viewers. Several platforms are available for sourcing music to use on your Shorts. More so, you can use the recommended app, Filmora, to add free music to your videos.
-
-[Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/)
-
-The entertainment industry is continually taking the world by storm. Lots of improvements are on the rise, especially online. Several apps are now at your fingertip, and you can access lots of videos and music right from your mobile phone. The social media platform has made it easy for millions of users to access information from other creators and editors. From Facebook, Instagram, WhatsApp, and the new kid in the block YouTube Shorts. And being that YouTube streaming service already harbors many users, Shorts has just come at the right time, with ready users at hand. Additionally, YouTube shorts music will spice up your listening experience like never before.
-
-![what is youtube shorts](https://images.wondershare.com/filmora/article-images/2021/youtube-shorts.png)
-
-#### In this article
-
-01 [What are YouTube Shorts?](#part1)
-
-02 [Which role does music play in YouTube Shorts?](#part2)
-
-03 [YouTube Shorts Music - Things You Need to Know](#part3)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/vQbNyknjJJ8?si=RGVIEWLdPbvRC_r6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
-## What are YouTube Shorts?
-
-YouTube Shorts is an app feature in YouTube that was introduced in 2020\. It has so far rolled out in more than 100 countries. It enables both artists and creators to compose short videos to express any feeling. It could be for entertainment or educational purposes. However, the videos are short, not exceeding 60 seconds, with a default length of 15 seconds. You also have the option to record your videos with music to add value to your video.
-
-YouTube Shorts has two main features; a platform to watch short videos and a tool you can use to compose your own short-form videos. To watch the clip, just go to the “Homepage” and find several thumbnails for popular Shorts. Then click on a video and land on the vertical video player to watch the video. Likewise, you can use the thumbs up or down to like or dislike the video. Additionally, you can pause the video and post a comment or share the Shorts with other fans.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qmQjRcnaq9g?si=jadcGtXemUAlKOTa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
-## Which role does music play in YouTube Shorts?
-
-Music is always soothing to the soul. And using YouTube shorts music is a quick way to boost your video performance. Check below the importance of using music in your Shorts.
-
-#### \- Generates important emotions
-
-Music creates a good mood, giving your audience a positive feeling towards your YouTube Shorts. Any sound will touch the listener, making the videos more interesting and beautiful.
-
-#### \- Music is memorable
-
-If you use a particular tune, then there is a way your listeners will think directly of you when they hear the tune. It gives more value to the Shorts. [Choosing the right music for your Shorts video is also important](https://tools.techidaily.com/wondershare/filmora/download/).
-
-#### \- Music represents who you are
-
-You may put across your message via Shorts but adding some music will help the viewer directly imagine your identity.
-
-#### \- For effective message
-
-Music can stimulate actions, causing immediate attraction to the listener. Use YouTube Shorts music to emphasize the overall story.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Xa2_mFu-obA?si=_xDGF1pv-dnuaDOr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
-## YouTube Shorts Music - Things You Need to Know
-
-#### 1\. How to add music to your YouTube Shorts video?
-
-As a creator, it is ideal to know how to add music to your YouTube Shorts video. Follow these steps to add music using the YouTube Shorts creator tool camera.
-
-**Step 1.** First, select the Shorts video that you want to add music to.
-
-**Step 2.** Then click on the “YouTube Shorts creator camera” tool.
-
-**Step 3.** You’ll then be directed to your camera where you’ll find the “Add Music” option.
-
-**Step 4.** Then find a “Library of songs” from popular artists that you can use. Select the song you wish to use.
-
-**Step 5.** Finally, tap the “Use This Sound” option found at the bottom of the screen. Then just cue up what part of the song to use on your Shorts and go-ahead to record and upload the video.
-
-#### 2\. The sources of music for YouTube Shorts?
-
-You can use any music clip as long as it is not a copyrighted piece of music. Bellow are common sources where to find background music for YouTube Shorts video.
-
-YouTube Audio Library: This is the first place to source YouTube Shorts music. YouTube is free and contains tons of free songs. You can sort your selection by duration, genre, instrument, mood, etc. To access music, go to the “Creator Studio” > “Create” > “Audio Library” and select which music to use.
-
-Free Music Archive: This is another free site where you can discover an array of curated background music for any type of content. You’ll get more than 1,500 tracks at the tap of a button.
-
-SoundCloud: SoundCloud streaming music service lets you use its “Creative Commons” music as long as you follow the guidelines that are laid down by the artist.
-
-Converted music from your computer: You can also download and convert available songs from Spotify, Amazon Music, Tidal, among other streaming services. Just get a music converter tool that will remove encryption from the tracks to make it free for use forever.
-
-#### 3\. How to extend music on YouTube Shorts?
-
-Even though the typical duration for YouTube Shorts music is 15 seconds, you can make them longer up to 60 seconds. Just record multiple clips at 15 seconds intervals that add up to 60 seconds.
-
-#### 4\. Can I use my own audio in YouTube Shorts?
-
-Yes, you can use your audio in YouTube Shorts. Several converter apps are available for downloading and converting music to playable formats. Filmora is one available tool that will provide free music and let you edit your videos with minimal effort. More so, you can import and export your music in any format to make stunning YouTube Shorts videos.
-
-##### Key Features of Filmora
-
-* Edit and export your videos at a high resolution of up to 4K
-* Use it to add animated messages from the titles and text library
-* Easily adjust the audio of each music track on your timeline
-* Add any mood with its royalty-free songs and sound effects to YouTube Shorts videos
-
-##### How to add a music track to your video with Filmora
-
-1\. First, open up Filmora and go to “Project Settings” and select the “Change project aspect ratio” option.
-
-2\. From the aspect ratio, select “9:16” portrait.
-
-![how to use your own music on youtube shorts](https://images.wondershare.com/filmora/article-images/2021/aspect-ratio.png)
-
-3\. Then set the resolution according to your preference.
-
-4\. Next, select the “Frame rate” according to your existing video that you wish to convert into Shorts. Hit the “OK” button to save the settings.
-
-5\. Drag and drop your footage onto the timeline. Ensure you keep the project settings.
-
-6\. You can add text or music to your footage. To add music, first, download music from YouTube or other sources into your computer.
-
-7\. Then click on the “Audio” option from the “Menu” bar and choose music that’s already available on your PC.
-
-![choose audio to add to video](https://images.wondershare.com/filmora/article-images/2021/choose-audio.png)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/-G7cU8dYvuI?si=JaKqRcW6qq9CDvty" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
-8\. Next, import the music to the video. Just click on the “File” > “Import File” > “Import Video Files” option.
-
-![add audio to youtube shorts](https://images.wondershare.com/filmora/article-images/2021/add-audio-to-video.png)
-
-9\. Click on the “+” icon to add the music to your video.
-
-10\. You’ll then have the song onto your project.
-
-[Try It Free](https://tools.techidaily.com/wondershare/filmora/download/)
-
-For Win 7 or later (64-bit)
-
-[Try It Free](https://tools.techidaily.com/wondershare/filmora/download/)
-
-For macOS 10.12 or later
-
-#### 5\. Do artists earn royalties from Shorts?
-
-Yes. Artists do receive some revenue from their music if creators use their songs in YouTube Short videos. Royalties come from ad revenue but it will depend on the type of ad on the video. So, more popular videos get higher rates than non-popular ones.
-
-#### 6\. What to post on YouTube Shorts?
-
-You can post several videos to YouTube Shorts which include:
-
-* **Tutorials:** teach your viewers via YouTube Shorts.
-* **Confessional videos:** This is when you speak to your viewers about what you are passionate about.
-* **Entertainment videos:** You can also entertain your viewers with funny videos.
-
-#### 7\. Can I promote my music on YouTube Shorts?
-
-YouTube Shorts is a perfect platform to promote your music if you are an artist. You can either hire an influencer or do it yourself as an artist. These tips will help you to successfully promote your brand.
-
-**Be precise:** Condense all the important details in your video and ensure the background music aligns with the theme.
-
-**Think widely:** Check at what others are adding to their Shorts. You can include memes and other entertaining clips.
-
-**Post videos more often:** Since YouTube Shorts are short videos that can’t accommodate so much information, try to post your videos more often so that your viewers follow up closely on what you are putting across.
-
-**Use catchy music:** It doesn’t mean that the latest singles are more catchy or viral. Songs from a few years ago can also be equally catchy.
-
-#### 8\. How are YouTube Shorts different from other short-form videos?
-
-YouTube streaming service is already a popular platform that provides tones of music and video clips. Encompassing Shorts just pushed it at the forefront. The userbase is readily available and any Shorts you post will be widely viewed in over 100 countries. More so, you can extract music from the platform for use on your Shorts videos.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/kiW7sLvL65k?si=IHSeRFsYCrfqpn2o" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -694,21 +694,20 @@ You can make a great milestone with **YouTube Shorts music** than if you didn’
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-tips.techidaily.com/harismatic-charm-of-moving-text-on-screen/"><u>[New] Charismatic Charm of Moving Text on Screen</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/new-in-2024-beginners-pathway-photos-transformed-into-videos-via-pixiz/"><u>[New] In 2024, Beginner's Pathway Photos Transformed Into Videos via Pixiz</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/n-2024-supercharge-your-content-key-seo-elements-for-youtube/"><u>[New] In 2024, Supercharge Your Content Key SEO Elements for YouTube</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/n-2024-unwind-the-clock-pioneering-techniques-for-youtube-video-reversal/"><u>[New] In 2024, Unwind the Clock Pioneering Techniques for YouTube Video Reversal</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/new-mediameld-mixer/"><u>[New] MediaMeld Mixer</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-in-2024-affiliate-allies-for-small-channels-an-easy-approach/"><u>[Updated] In 2024, Affiliate Allies for Small Channels An Easy Approach</u></a></li>
-<li><a href="https://extra-support.techidaily.com/updated-perfect-phone-match-up-for-samsungs-virtual-reality-dreams-update-2023/"><u>[Updated] Perfect Phone Match-Up for Samsung's Virtual Reality Dreams - Update 2023</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-top-youtube-growth-secrets-8-honestly-endorsed-methods/"><u>[Updated] Top Youtube Growth Secrets – 8 Honestly-Endorsed Methods</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/big-news-for-apple-developers-enhanced-ai-integration-with-no-cost-upgrade-your-code-skills/"><u>Big News for Apple Developers: Enhanced AI Integration with No Cost - Upgrade Your Code Skills!</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/re-the-10-most-inspiring-youtube-makeup-vloggers-ever/"><u>Explore the 10 Most Inspiring YouTube Makeup Vloggers Ever</u></a></li>
-<li><a href="https://program-issues.techidaily.com/fixing-game-crash-problems-on-pc-while-running-no-rest-for-the-wicked/"><u>Fixing Game-Crash Problems on PC While Running 'No Rest for the Wicked'</u></a></li>
-<li><a href="https://extra-information.techidaily.com/from-cut-to-connect-advanced-editing-with-kinemaster/"><u>From Cut to Connect Advanced Editing with Kinemaster</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/novice-to-expert-mastering-video-identity-on-youtube-for-2024/"><u>From Novice to Expert Mastering Video Identity on YouTube for 2024</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-remove-mdm-from-iphone-15-without-a-computer-by-drfone-ios-unlock-ios-unlock/"><u>How to Remove MDM from iPhone 15 without a computer?</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/in-2024-tongue-to-type-tools-a-guide-to-the-best-speech-to-text-software/"><u>In 2024, Tongue-to-Type Tools A Guide to the Best Speech-to-Text Software</u></a></li>
-<li><a href="https://fox-access.techidaily.com/in-2024-unique-identity-creation-accessible-logo-base-and-personal-customization-for-no-cost/"><u>In 2024, Unique Identity Creation Accessible Logo Base & Personal Customization for No-Cost</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/he-next-generation-of-video-communities-post-youtube/"><u>[New] The Next Generation of Video Communities Post-YouTube</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/updated-in-2024-amd-gpu-revival-suite/"><u>[Updated] In 2024, AMD GPU Revival Suite</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-in-2024-going-viral-guide-keyword-strategies-for-cut-to-the-chase-videos/"><u>[Updated] In 2024, Going Viral Guide Keyword Strategies for Cut-to-the-Chase Videos</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-in-2024-innovative-naming-solutions-for-channels/"><u>[Updated] In 2024, Innovative Naming Solutions for Channels</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-perfect-your-strategy-top-rated-techniques-for-video-marketing/"><u>[Updated] Perfect Your Strategy Top-Rated Techniques for Video Marketing</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/best-android-data-recovery-undelete-lost-music-from-infinix-smart-8-hd-by-fonelab-android-recover-music/"><u>Best Android Data Recovery - Undelete Lost Music from Infinix Smart 8 HD</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/hed-tv-experience-seamlessly-looping-online-content-for-2024/"><u>Enriched TV Experience Seamlessly Looping Online Content for 2024</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/how-to-install-idt-hd-audio-codec-on-your-windows-11-machine-a-step-by-step-solution/"><u>How to Install IDT HD Audio Codec on Your Windows 11 Machine - A Step-by-Step Solution</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/24-ethical-practices-for-accumulating-over-a-million-video-engagements/"><u>In 2024, Ethical Practices for Accumulating Over A Million Video Engagements</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-how-to-fix-my-vivo-v27-pro-location-is-wrong-drfone-by-drfone-virtual-android/"><u>In 2024, How to Fix My Vivo V27 Pro Location Is Wrong | Dr.fone</u></a></li>
+<li><a href="https://solve-howtos.techidaily.com/master-the-art-of-driver-updates-expert-advice-and-tips-by-yl-software-professionals/"><u>Master the Art of Driver Updates: Expert Advice & Tips by YL Software Professionals</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/still-using-pattern-locks-with-oppo-a56s-5g-tips-tricks-and-helpful-advice-by-drfone-android/"><u>Still Using Pattern Locks with Oppo A56s 5G? Tips, Tricks and Helpful Advice</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ower-of-pausing-incorporating-effective-chapters-in-your-youtube-series-for-2024/"><u>The Power of Pausing Incorporating Effective Chapters in Your YouTube Series for 2024</u></a></li>
+<li><a href="https://solve-howtos.techidaily.com/two-effective-methods-for-cloud-based-synology-nas-backup-a-step-by-step-guide/"><u>Two Effective Methods for Cloud-Based Synology NAS Backup: A Step-by-Step Guide</u></a></li>
+<li><a href="https://games-able.techidaily.com/ultimate-high-refresh-165hz-screens/"><u>Ultimate High Refresh 165Hz Screens</u></a></li>
 </ul></div>
 

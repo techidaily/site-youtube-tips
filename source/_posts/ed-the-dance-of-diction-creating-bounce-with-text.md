@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] The Dance of Diction  Creating Bounce with Text\""
-date: 2024-08-15T22:51:13.748Z
-updated: 2024-08-16T22:51:13.748Z
+date: 2025-01-21T20:24:42.364Z
+updated: 2025-01-25T06:35:23.495Z
 tags:
   - ai video
   - ai youtube
@@ -25,6 +25,10 @@ thumbnail: https://thmb.techidaily.com/0b6ddfcc355a034bc5a8feec71361dd4191fefb9c
  Mar 27, 2024• Proven solutions
 
 Earlier, you learned how to have a **[bounce text effect in Adobe After Effects](https://tools.techidaily.com/wondershare/filmora/download/)**. However, because AE is a complex application and has a steep learning curve, this section explains the two alternative ways to get the same effect on your existing video footage.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jjGL9wFdlbo?si=Vb1JgZqRXNc03UGG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Method 1: How to Create Bouncing Text in Filmora Video Editor?
 
@@ -56,11 +60,19 @@ You can customize the default effect by double-clicking the shake filter in the 
 
 ![Mild Shake filters adjust](https://images.wondershare.com/filmora/article-images/mild-shake-filter-adjust.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/W5aJC8okA8s?si=L2rnYAp-gmGlLQSf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Step 4: Export the Final Output**
 
 Click **EXPORT** from the top of the interface, go to the **Local** tab in the **Export** box, choose your preferred output format from the list in the left, make required customizations from the right pane, and click **EXPORT** from the bottom-right corner to export the video.
 
 ![Filmora9 Export Options](https://images.wondershare.com/filmora/article-images/export-filmora9-video.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/465CTOm8om0?si=63RxowNMCFA4fPUa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Now, you can add the bouncing text video and the background video to the timeline, and then place the bouncing text video above the background video track.
 
@@ -71,10 +83,9 @@ As explained before, Wondeshare Filmora makes the entire process of creating and
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=42296685&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2022/video-pp/ScreenshotSlider/Nero-Video-Advanced-editing.JPG" border="0">Simple and intuitive video editing
-🎬 Nero Video:
-The powerful video editing program for your Windows PC</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/f-yPCh24EsA?si=3z8FAd_lMZeAjug7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Method 2: Generate Animated Bouncing Texts Online
 
 If you don’t want any heavy and resource-intensive app on your PC merely for some special text effects, you can try any of the online solutions instead. The benefit of using any such web app is that all the processing is done on site’s server, and it is only a web browser and an Internet connection that you need to have at your side.
@@ -86,9 +97,6 @@ Some most trusted websites to generate **bounce text** are listed below:
 Website: <https://engfto.com/index/create%5Fanimated%5Fbouncing%5Ftext/0-26>
 
 ![Create Animated Bouncing Text with ENGFTO](https://images.wondershare.com/filmora/article-images/engfto-create-animated-bouncing-text.jpg)
-<!-- affiliate ads begin -->
-<a href="https://store.advancedwebranking.com/order/checkout.php?PRODS=4715051&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/14edc6ebfdae2e23bbed83d67f50e983/products/33_awr%20logo.png" border="0"></a>
-<!-- affiliate ads end -->
 
 You can follow the instructions given below to use Engfto to generate bouncing text for your footages:
 
@@ -115,9 +123,6 @@ Launch your favorite web browser and go to <https://loading.io/animation/text/>.
 **Step 2: Customize the Text and Choose Animation Effect**
 
 ![Create Animated Bouncing Text with Loading.io](https://images.wondershare.com/filmora/article-images/create-bouncing-text-with-loadingio.jpg)
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4631056&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/997e65474a248252883b485717f7d098/products/buy-windows.png" border="0">Allavsoft Batch Download Online Videos, Music Offline to MP4, MP3, MOV, etc format </a>
-<!-- affiliate ads end -->
 
 Use the options available on the webpage to type your text, and change its font, color, background, transparency level etc. Select **Bounce** (or any of its variants) from the **Animation** drop-down list, and adjust the speed using the **Speed** slider.
 
@@ -132,8 +137,9 @@ Click your preferred option from next to the **Download As** section to download
 Generating **bounce text** effect is much simpler when you use Wondershare Filmora or any of the online solutions as explained in Method 2\. While the former gives you more flexibility when it comes to customizations, the latter doesn’t require any app to be installed on your PC. In addition, many times the web apps offer their services for free, and therefore they are preferred by the novice users who are not much into post-production processes.
 
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
+
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4572700&QTY=1&AFFILIATE=108875&CART=1"><img src="	https://www.tubedigger.com/wp-content/uploads/2020/08/tubedigger-software-new.png" border="0">TubeDigger - online video downloader from mostly any site</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/OdlXe5RELW0?si=Iz1H1QnLQVw-Eu3e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Liza Brown
@@ -142,14 +148,11 @@ Liza Brown is a writer and a lover of all things video.
 
 Follow @Liza Brown
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -158,4 +161,24 @@ Follow @Liza Brown
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-webster.techidaily.com/024-approved-chart-your-course-to-partner-status-via-a-rapid-10000-views-journey/"><u>[New] 2024 Approved Chart Your Course to Partner Status via a Rapid 10,000 Views Journey</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/024-approved-dial-up-the-impact-with-50-free-branding-graphics/"><u>[New] 2024 Approved Dial Up the Impact with 50 FREE Branding Graphics!</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/024-approved-essential-edits-best-8-tools-for-linux-users/"><u>[New] 2024 Approved Essential Edits Best 8 Tools for Linux Users</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/024-approved-examining-the-income-mechanics-of-tseries-on-youtube/"><u>[New] 2024 Approved Examining the Income Mechanics of TSeries on YouTube</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/024-approved-navigating-the-path-to-youtube-video-co-creation-and-partnerships/"><u>[New] 2024 Approved Navigating the Path to YouTube Video Co-Creation & Partnerships</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/024-approved-quick-steps-to-quality-content-via-studio-editor/"><u>[New] 2024 Approved Quick Steps to Quality Content via Studio Editor</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/024-approved-step-by-step-guide-to-crafting-engaging-valorant-thumbnails/"><u>[New] 2024 Approved Step-by-Step Guide to Crafting Engaging Valorant Thumbnails</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/-step-by-step-approach-to-mastering-free-youtube-video-transcription-for-2024/"><u>[New] A Step-by-Step Approach to Mastering Free YouTube Video Transcription for 2024</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-in-2024-a-comprehensive-tutorial-changing-gender-in-social-media-images/"><u>[New] In 2024, A Comprehensive Tutorial Changing Gender in Social Media Images</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-prime-streaming-services-ranked-a-comparison-analysis-for-2024/"><u>[New] Prime Streaming Services Ranked A Comparison Analysis for 2024</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/10-excellent-4k-televisions-ranked-for-2024/"><u>10 Excellent 4K Televisions Ranked for 2024</u></a></li>
+<li><a href="https://howto.techidaily.com/9-solutions-to-fix-process-system-isnt-responding-error-on-oppo-a1-5g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>9 Solutions to Fix Process System Isnt Responding Error on Oppo A1 5G | Dr.fone</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/diving-deep-into-minecraft-playback-secrets-from-the-pros/"><u>Diving Deep Into Minecraft Playback Secrets From the Pros</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/micron-releases-powerful-256gb-ddr5-memory-modules-tailored-for-intel-xeon-6-series/"><u>Micron Releases Powerful 256GB DDR5 Memory Modules Tailored for Intel Xeon 6 Series</u></a></li>
+<li><a href="https://techtrends.techidaily.com/netflix-watch-party-setup-how-to-stream-together-in-real-time/"><u>Netflix Watch Party Setup: How to Stream Together in Real Time</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/-networking-smaller-bizs-video-strategies-for-2024/"><u>Niche Networking Smaller Biz's Video Strategies for 2024</u></a></li>
+<li><a href="https://win-special.techidaily.com/ripristina-i-tuoi-file-perduti-o-eliminati-guida-completa-per-wetransfer/"><u>Ripristina I Tuoi File Perduti O Eliminati: Guida Completa per WeTransfer</u></a></li>
+</ul></div>
 

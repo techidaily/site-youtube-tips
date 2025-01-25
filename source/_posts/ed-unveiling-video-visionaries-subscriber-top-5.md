@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Unveiling Video Visionaries  Subscriber Top 5\""
-date: 2024-08-08T11:45:16.275Z
-updated: 2024-08-09T11:45:16.275Z
+date: 2025-01-22T03:31:03.052Z
+updated: 2025-01-25T00:50:50.639Z
 tags:
   - ai video
   - ai youtube
@@ -51,8 +51,9 @@ In this article, we will take you through the 5 most popular creator channels on
 * [Fernanfloo](#fern)
 
 <!-- affiliate ads begin -->
-<a href="https://atezr.pxf.io/c/5597632/2018605/18496" target="_top" id="2018605"><img src="//a.impactradius-go.com/display-ad/18496-2018605" border="0" alt="" width="798" height="807"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2018605/18496" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/sXLLPY11of0?si=-3YNnpnO0wbc0K_-" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### 1\.  PewDiePie
 
 ![PewDiePie](https://images.wondershare.com/filmora/article-images/pew-die-pie.jpg)
@@ -65,15 +66,16 @@ The most common videos on Felix's channel are gaming videos in which he comments
 
 ![HolaSoyGerman](https://images.wondershare.com/filmora/article-images/hola-soy-german.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KdpTAZ9zonQ?si=5Nd5SPW1axA7GPuB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 At the age of 27, Germán Alejandro Garmendia Aranis is the owner of the second most subscribed channel on YouTube with more than 32 million subscribers. Furthermore, HolaSoyGerman’s channel is the most subscribed Spanish-speaking channel today. Germán's second YouTube channel JuegaGerman has made him the only YouTuber ever to receive two diamond play buttons for having over 40 million subscribers on his two channels.
 
 The Chilean YouTube superstar uploaded his first YouTube video in 2011 and by October 2012 his channel has reached 1 million subscribers. Recently, German has lent his voice to a character in the Spanish version of Ice Age: Collision Course. He finds inspiration for his comic YouTube videos in everyday life and topics like ex-girlfriends, school, and phobias are frequently covered in videos published on the HolaSoyGerman channel. In 2014 and 2015 German won the 'Icon of the Year' prize from MTV Millennial Awards.
 
 ###  3\.  ElrubiusOMG
 
-<!-- affiliate ads begin -->
-<a href="https://shop.copernic.com/order/checkout.php?PRODS=41033095&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8d30aa96e72440759f74bd2306c1fa3d/Copernic-2023-Affiliate-728x90-Advanced-3YR.png" border="0"></a>
-<!-- affiliate ads end -->
 ![ElrubiusOMG](https://images.wondershare.com/filmora/article-images/elrubius-omg.jpg)
 
 More than 25 million subscribers who follow this gaming commentator. The El Rubius OMG channel was created by Rubén Doblas Gundersen in December 2011 and by February 2013 it reached 1 million subscribers. However, Rubén has been producing videos for his Elrubius channel since 2006\. He simply became more dedicated to the frequent production of YouTube videos in 2011\. Even though the videos featured on the El Rubius OMG channel mostly cover video games, Rubén also produces comedy videos, vlogs, and other interesting and amusing content.
@@ -81,11 +83,16 @@ More than 25 million subscribers who follow this gaming commentator. The El Rubi
 Based in Madrid, El Rubius OMG first became popular in Spanish-speaking countries, and as his fame increased he gained recognition throughout the world. During 2012 his channel became the most subscribed Spanish speaking channel, and on April 21, 2016, El Rubius received the 'YouTuber of the Year' award during the 1st Play Awards celebration in Palma De Mallorca. In addition to being one of the most popular YouTubers of all time, Rubén is also a published author whose first book 'The Troll Book' was the bestselling book in Spain for 8 weeks.
 
 <!-- affiliate ads begin -->
-<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=4612444&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/pt-728x90.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jpdGEJJwMLY?si=eKgXOPpNeYvYKcel" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ###  4\.  Smosh
 
 ![Smosh](https://images.wondershare.com/filmora/article-images/smosh.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Jng92DT1n_Y?si=LvxQhsEJoymsM2iZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Originally, Smosh was a channel run by sketch comedy duo Ian Andrew Hecox and Anthony Padilla. They started the Smosh YouTube channel in 2005 and since then they have grown their team to include more creators, and their content to include animation and gaming. Smosh has become much more than two funny guys on YouTube – it is a wildly successful content company.
 
@@ -93,15 +100,13 @@ Most channels that have one viral video do not go on to have sustained success o
 
 In 2017, Anthony Padilla chose to leave Smosh to focus on his own solo YouTube channel.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4727541&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/5f4f7141b65a730b4efb0e0d51f63e94/products/copy_copy_forexrobotronbox.gif" border="0">Forex Robotron Gold Package</a>
-<!-- affiliate ads end -->
 ### 5\.  Fernanfloo
 
-<!-- affiliate ads begin -->
-<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=2069351&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-24_%282%29.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ![Fernanfloo](https://images.wondershare.com/filmora/article-images/fernan-floo.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DEqoiNArwjQ?si=oaL_lgnI-RxY5Qy_" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Yet another enormously popular YouTuber that comes from a Spanish speaking country whose channel attracted millions of subscribers. A 24-year-old Salvadoran named Luis Fernando Flores Alvarado is the man behind one of the most subscribed YouTube channels of all time. The Fernanfloo channel was created in 2011, and in February 2014 it had only 100,000 subscribers. By August 2014, Alvarado's channel reached 1 million subscribers, making him one of YouTube's biggest success stories. The videos featured on Feranfloo channel mostly cover gaming topics, but with a touch of comedy which makes Alvarado's videos unique.
 
@@ -111,14 +116,8 @@ At the end of 2015, Alvarado launched the Fenanfloo mobile app that had 2.3 mill
 
 Looking for a live [YouTube subscriber chart](https://tools.techidaily.com/wondershare/filmora/download/)?
 
-<!-- affiliate ads begin -->
-<a href="https://order.glarysoft.com/order/checkout.php?PRODS=4691139&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/SU-200-1.png" border="0">Software Update Pro - Check and update software installed on your computer. </a>
-<!-- affiliate ads end -->
 ## Edit YouTube Videos with Full-Featured Video Editing Software
 
-<!-- affiliate ads begin -->
-<a href="https://printrendy.pxf.io/c/5597632/1453720/17020" target="_top" id="1453720"><img src="//a.impactradius-go.com/display-ad/17020-1453720" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1453720/17020" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
@@ -129,14 +128,11 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -145,4 +141,20 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-knowledge.techidaily.com/new-2024-approved-the-essential-list-for-podcasters-mic-selection/"><u>[New] 2024 Approved The Essential List for Podcaster's Mic Selection</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-2024-approved-twirl-forge-instruments/"><u>[New] 2024 Approved Twirl Forge Instruments</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/avigating-video-aspects-on-youtube-perfect-size-and-quality-balance-for-2024/"><u>[New] Navigating Video Aspects on YouTube Perfect Size & Quality Balance for 2024</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/updated-2024-approved-ecstatic-clip-loader-rating/"><u>[Updated] 2024 Approved Ecstatic Clip Loader Rating</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-in-2024-earning-big-from-youtube-shorts-key-requirements-and-profit-prospects/"><u>[Updated] In 2024, Earning Big From YouTube Shorts Key Requirements and Profit Prospects</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-the-ultimate-12-selection-of-smart-flip-screen-vlog-cameras/"><u>[Updated] The Ultimate 12 Selection of Smart Flip-Screen Vlog Cameras</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-versatile-online-creations-simple-and-inclusive-ideas-for-your-first-videos-for-2024/"><u>[Updated] Versatile Online Creations Simple and Inclusive Ideas for Your First Videos for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/carolyn-everson-fires-off-new-resignation-post/"><u>Carolyn Everson Fires Off: New Resignation Post</u></a></li>
+<li><a href="https://techtrends.techidaily.com/complete-guide-resolving-any-and-all-troubles-with-windows-11-updates/"><u>Complete Guide: Resolving Any and All Troubles with Windows 11 Updates</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/how-to-find-muted-conversations-on-snapchat/"><u>How to Find Muted Conversations on Snapchat</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-top-12-prominent-xiaomi-redmi-note-12-5g-fingerprint-not-working-solutions-by-drfone-android/"><u>In 2024, Top 12 Prominent Xiaomi Redmi Note 12 5G Fingerprint Not Working Solutions</u></a></li>
+<li><a href="https://discover-bytes.techidaily.com/pc-gaming-made-easy-ultimate-tips-for-starting-and-excelling-at-raid-shadow-legends/"><u>PC Gaming Made Easy: Ultimate Tips for Starting and Excelling at Raid Shadow Legends</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-guide-to-digital-grief-handling-facebook-profiles-of-the-deceased/"><u>The Guide to Digital Grief: Handling Facebook Profiles of the Deceased</u></a></li>
+</ul></div>
 

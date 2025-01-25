@@ -1,7 +1,7 @@
 ---
 title: "[New] In 2024, Responding to Criticism with Confidence on YouTube"
-date: 2024-08-08T11:44:28.160Z
-updated: 2024-08-09T11:44:28.160Z
+date: 2025-01-22T23:41:16.808Z
+updated: 2025-01-24T20:17:37.289Z
 tags:
   - ai video
   - ai youtube
@@ -18,10 +18,6 @@ thumbnail: https://thmb.techidaily.com/cb7e8a3ea1400b28d57368d581f169474fb4983f5
 
 # How To Deal with YouTube Trolls and Negative Comments
 
-<!-- affiliate ads begin -->
-<a href="https://order.glarysoft.com/order/checkout.php?PRODS=35504869&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/1_FR-200-1.png" border="0">Glarysoft File Recovery Pro Annually -  Helps to recover your lost file/data, even permanently deleted data. 
-</a>
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
@@ -31,8 +27,9 @@ thumbnail: https://thmb.techidaily.com/cb7e8a3ea1400b28d57368d581f169474fb4983f5
  If you have put a lot of work into your YouTube videos then it only makes sense that you have an emotional investment in them. When someone leaves a mean, negative comment on one of your videos it will likely affect you. It may make you angry, hurt your feelings, or just leave you baffled over how someone could come away from your video with out-of-the-blue opinion the hater has posted. ‘Do not feed the trolls’ is a mantra that can be hard to abide by. This article will explain why you should not engage trolls and how to talk to them if you find yourself doing it anyways.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4727541&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/5f4f7141b65a730b4efb0e0d51f63e94/products/copy_copy_forexrobotronbox.gif" border="0">Forex Robotron Gold Package</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LW6wNx3XAj8?si=VaIuFIIx8MM_RhUR" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## How to Deal with Negative Comments on YouTube
 
 #### 1\. Identifying Trolls / When Is A Troll Not a Troll?
@@ -59,10 +56,11 @@ thumbnail: https://thmb.techidaily.com/cb7e8a3ea1400b28d57368d581f169474fb4983f5
 
  You will not get the troll to say they were wrong or apologize so that should never be your goal. What you can do is create a public record of the troll being corrected for others to judge for themselves. If you maintain a calm, unaffected, tone then the troll will find you boring.
 
-<!-- affiliate ads begin -->
-<a href="https://parisrhonecom.sjv.io/c/5597632/1896607/21553" target="_top" id="1896607"><img src="//a.impactradius-go.com/display-ad/21553-1896607" border="0" alt="" width="750" height="422"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1896607/21553" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YB7Ou4-iKVM?si=7Fq8iUwI8voccMLx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -70,14 +68,11 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -86,4 +81,21 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-helps.techidaily.com/new-2024-approved-interactive-vs-passive-entertainment-twitch-vs-youtube/"><u>[New] 2024 Approved Interactive vs Passive Entertainment Twitch vs YouTube</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-2024-approved-pushing-boundaries-with-vr-choosing-your-ultimate-game-platform/"><u>[New] 2024 Approved Pushing Boundaries with VR Choosing Your Ultimate Game Platform</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/hannel-size-independent-strategies-for-securing-sponsors/"><u>[New] Channel-Size-Independent Strategies for Securing Sponsors</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/s-an-annual-subscription-to-youtube-premium-justifiable/"><u>[New] Is an Annual Subscription to YouTube Premium Justifiable?</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-amplify-your-videos-impact-7-royalty-free-sounds/"><u>[Updated] In 2024, Amplify Your Video's Impact 7 Royalty-Free Sounds</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/updated-in-2024-capturing-life-in-motion-ipad-timelapse-guide/"><u>[Updated] In 2024, Capturing Life in Motion IPad Timelapse Guide</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-in-2024-expert-pick-websites-showcasing-hd-sky-shots/"><u>[Updated] In 2024, Expert Pick Websites Showcasing HD Sky Shots</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-in-2024-pixelpie-cutter/"><u>[Updated] In 2024, PixelPie Cutter</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-mastering-youtube-video-cuts-a-beginners-guide-for-2024/"><u>[Updated] Mastering YouTube Video Cuts A Beginner's Guide for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-unlocking-financial-potential-how-to-earn-with-youtube-shorts-for-2024/"><u>[Updated] Unlocking Financial Potential How to Earn with YouTube Shorts for 2024</u></a></li>
+<li><a href="https://win11.techidaily.com/adjusting-overheating-prevention-on-windows-pcs/"><u>Adjusting Overheating Prevention on Windows PCs</u></a></li>
+<li><a href="https://win-able.techidaily.com/1723007140503-are-you-experiencing-connectivity-issues-on-xbox-live-find-server-updates-here/"><u>Are You Experiencing Connectivity Issues on Xbox Live? Find Server Updates Here!</u></a></li>
+<li><a href="https://change-location.techidaily.com/how-and-where-to-find-a-shiny-stone-pokemon-for-vivo-v27e-drfone-by-drfone-virtual-android/"><u>How and Where to Find a Shiny Stone Pokémon For Vivo V27e? | Dr.fone</u></a></li>
+<li><a href="https://review-topics.techidaily.com/how-to-wipe-iphone-6s-data-permanently-stellar-by-stellar-data-recovery-ios-iphone-data-recovery/"><u>How to Wipe iPhone 6s Data Permanently? | Stellar</u></a></li>
+</ul></div>
 

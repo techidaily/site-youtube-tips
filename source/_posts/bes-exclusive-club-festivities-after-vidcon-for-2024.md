@@ -1,7 +1,7 @@
 ---
 title: "\"Youtube's Exclusive Club  Festivities After VidCon for 2024\""
-date: 2024-08-15T22:50:51.134Z
-updated: 2024-08-16T22:50:51.134Z
+date: 2025-01-21T18:32:07.187Z
+updated: 2025-01-25T02:23:47.775Z
 tags:
   - ai video
   - ai youtube
@@ -35,6 +35,10 @@ Want to meet your favorite creators? Or, do you want to become a better creator 
 5. [RTX (US/UK/Australia)](#rtx)
 6. [Amplify Live (Australia)](#amplify)
 7. [Summer in the City (UK)](#sitc)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6KXVWj6Ar1M?si=Cd_jktmoN3e9OzH3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **The Most Important YouTube Events**
 
@@ -79,6 +83,10 @@ You have a two-week window (usually the first half of May) to submit your choice
 **Washington DC:** September
 
 ![Playlistlive](https://images.wondershare.com/filmora/Playlistlive.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XVsiIO7hWOc?si=UvWnqxaI_yHwEr74" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Playlist Live is a YouTube event for creators and their supporters that has a particular focus on music. Where VidCon is advertised using images of sunshine, crowded convention halls, and speakers, Playlist Live is advertised with images of city skylines, concerts, and fireworks.
 
@@ -138,6 +146,10 @@ These events are customized to the wherever festival is visiting, so you’re al
 
 ![youtube-fanfest](https://images.wondershare.com/filmora/youtube-fanfest.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/NTQGoOOiJzs?si=zbZwflEfXgBY3qbs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 There is not a steady annual schedule for FanFests, but it has visited these cities in the past: Manila, Mumbai, Seoul, Toronto, Sao Paulo, Jakarta, Tokyo, Jeddah, Bangkok, Ho Chi Minh City, Hong Kong, and Washington, DC.
 
 #### 5. **[RTX](https://www.rtxaustin.com/)**
@@ -149,6 +161,10 @@ There is not a steady annual schedule for FanFests, but it has visited these cit
 Sydney, Australia: February
 
 ![rtx](https://images.wondershare.com/filmora/rtx.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/sn2STvYRVb8?si=Z-XhJJ1Mc-Em5Kqy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Brought to you by the creators behind Rooster Teeth, RTX is a celebration of internet culture and gaming. It includes exhibitors, live events, panels, and activities targeting gamers. Partners include Twitch and multiple gaming companies.
 
@@ -212,20 +228,21 @@ Have you ever attended an offline YouTube event? Which one, and how did you like
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qn1XkPJde9Y?si=i6ZJARXO8sJhy2FV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -234,8 +251,26 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-tips.techidaily.com/024-approved-7-insider-tips-to-make-money-quickly-on-youtube-shorts/"><u>[New] 2024 Approved 7 Insider Tips to Make Money Quickly on YouTube Shorts</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/024-approved-pro-video-essentials-selecting-superior-camera-lenses/"><u>[New] 2024 Approved Pro Video Essentials Selecting Superior Camera Lenses</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/024-approved-propel-your-youtube-presence-upwards-by-thousands/"><u>[New] 2024 Approved Propel Your YouTube Presence Upwards by Thousands</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/024-approved-strategies-for-youtube-music-fusions/"><u>[New] 2024 Approved Strategies for YouTube Music Fusions</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/024-approved-swift-circulation-of-playlists-on-youtube/"><u>[New] 2024 Approved Swift Circulation of Playlists on YouTube</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/-free-online-video-editors-for-youtube-for-2024/"><u>[New] 8 Free Online Video Editors for YouTube for 2024</u></a></li>
+<li><a href="https://article-helps.techidaily.com/new-iphones-finest-leading-cost-free-photo-layout-apps-ranked-for-2024/"><u>[New] IPhone's Finest Leading Cost-Free Photo Layout Apps Ranked for 2024</u></a></li>
+<li><a href="https://video-capture.techidaily.com/new-top-5-premium-hd-webcams-featuring-sound/"><u>[New] Top 5 Premium HD Webcams Featuring Sound</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/updated-2024-approved-free-video-wizardry-top-8-editing-programs-for-youtube-enthusiasts/"><u>[Updated] 2024 Approved Free Video Wizardry Top 8 Editing Programs for YouTube Enthusiasts</u></a></li>
+<li><a href="https://location-social.techidaily.com/change-location-on-yik-yak-for-your-infinix-hot-40i-to-enjoy-more-fun-drfone-by-drfone-virtual-android/"><u>Change Location on Yik Yak For your Infinix Hot 40i to Enjoy More Fun | Dr.fone</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/disabling-mouse-acceleration-in-macos-a-step-by-step-guide/"><u>Disabling Mouse Acceleration in macOS: A Step-by-Step Guide</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-mastering-android-device-manager-the-ultimate-guide-to-unlocking-your-samsung-galaxy-m14-4g-device-by-drfone-android/"><u>In 2024, Mastering Android Device Manager The Ultimate Guide to Unlocking Your Samsung Galaxy M14 4G Device</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/-steps-to-quality-content-via-studio-editor/"><u>Quick Steps to Quality Content via Studio Editor</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/-the-sound-mobile-beats-best-ripplers-for-2024/"><u>Shake the Sound Mobile Beats' Best Ripplers for 2024</u></a></li>
+<li><a href="https://windows11.techidaily.com/1719217852527-solve-low-brightness-woes-in-windows-11-easily/"><u>Solve Low-Brightness Woes in Windows 11 Easily!</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/-3d-intro-makers-for-youtube-videos/"><u>Top 5 3D Intro Makers for YouTube Videos</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/unleash-creativity-with-these-7-innovative-ai-apps-for-effortless-presentation-design/"><u>Unleash Creativity with These 7 Innovative AI Apps for Effortless Presentation Design</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/unlock-the-secrets-of-color-balance-in-gopro-videos/"><u>Unlock the Secrets of Color Balance in GoPro Videos</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/unveiling-the-art-of-instagram-video-filming-for-2024/"><u>Unveiling the Art of Instagram Video Filming for 2024</u></a></li>
+</ul></div>
 
-
-<!-- affiliate ads begin -->
-<a href="https://shop.emeditor.com/order/checkout.php?PRODS=4631722&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.emeditor.com/wp-content/uploads/2023/05/frontpage2-2048x588.webp" border="0">EmEditor Professional (Lifetime License, non-store app)</a>
-<!-- affiliate ads end -->

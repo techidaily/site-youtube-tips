@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] In 2024, Navigating Video Submission  From PC/Mobile Devices to YouTube Shorts\""
-date: 2025-01-16T16:03:33.931Z
-updated: 2025-01-19T16:03:48.018Z
+date: 2025-01-23T16:26:45.877Z
+updated: 2025-01-25T05:59:18.475Z
 tags:
   - ai video
   - ai youtube
@@ -35,10 +35,6 @@ With that said, the following sections explain the step-by-step process on **how
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LaWcXdTn5SE?si=QbxEkX-4a17J5RVs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Part 1: How to Upload Short Video on YouTube from PC?
 
 The fact is, if you are using a computer to upload short videos to YouTube, the process is identical to publishing your other, regular footage. However, there are a few guidelines that your clips must comply with so that the streaming platform could specifically identify them as YouTube Shorts. These norms include:
@@ -53,12 +49,16 @@ Once you have a video recorded using the first two guidelines from the above lis
 
 ![Upload YouTube Shorts Video to desktop](https://images.wondershare.com/filmora/article-images/upload-short-videos-on-youtube-pc.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qbuund2HKOQ?si=NaGHqIrx8hSL7gWV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Launch your favorite web browser on your PC, go to YouTube, make sure to sign in to your YouTube account, click the **Create** (**Camera**) icon from the top-right corner of the web page, click **SELECT FILES** on the **Upload videos** window, and locate, select, and upload a short video from your PC to the portal.
 
 ![Upload YouTube Shorts Video](https://images.wondershare.com/filmora/article-images/upload-short-videos-interface-on-youtube-pc.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qObsqoJB9LI?si=ppqxfXzP0UL4J6Tp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2Iv3DjT2Fyw?si=pR_z8ZDDVGF2MvKJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 #### Step 2: Mark the Video as Short
@@ -67,15 +67,15 @@ On the **Details** window that appears, add **#Shorts** in the **Title** or **De
 
 ![Mark YouTube Shorts Video in title and description](https://images.wondershare.com/filmora/article-images/mark-shorts-videos-on-youtube-pc.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9Jfq2Wx1Bcs?si=YQrYpTy0g4aV5QaO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 #### Step 3: Publish the Short Video
 
 On the **Visibility** window, choose your preferred radio button from under the **Save or publish** section or select **Schedule** to set a different time when the short video should be published automatically. Finally, click **SAVE** to publish the clip as a short video on YouTube from your computer.
 
 ![post YouTube Shorts Video  ](https://images.wondershare.com/filmora/article-images/publish-youtube-shorts-video-desktop.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=lhdUUVYMVQjzHXBh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 To sum up, uploading YouTube Shorts video from desktop has nothing different from uploading regular YouTube video besides the requirements listed at the beginning of this article. If you prefer to [edit videos](https://tools.techidaily.com/wondershare/filmora/download/) for YouTube Shortson a computer, I recommend you to try our video editor [Filmora](https://tools.techidaily.com/wondershare/filmora/download/), which is an ideal solution for YouTubers. Download the free trial version below and get started.
 
@@ -84,10 +84,6 @@ To sum up, uploading YouTube Shorts video from desktop has nothing different fro
 For Win 7 or later (64-bit)
 
 ![Filmora secure download](https://images.wondershare.com/filmora/images/store/secure.png) Secure Download
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/-0Ww1YIIUe4?si=cQ-Gkh9UCJABuPZU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/)
 
@@ -103,6 +99,10 @@ The process of **uploading YouTube Shorts** from the mobile app is fairly simple
 
 **Note:** The guidelines for creating and uploading short videos to YouTube remain the same, regardless of the platform or device you use.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XIUatTFH0Zw?si=ZCtoBtIy18y2F5Vc" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Method 1: Upload an Existing Short Video
 
 **Note:** Make sure to have the target video on the smartphone and that you have downloaded, installed, and signed in to the YouTube app before proceeding.
@@ -110,10 +110,6 @@ The process of **uploading YouTube Shorts** from the mobile app is fairly simple
 #### Step 1: Select a Video to Upload
 
 ![Select a Video to Upload as Shorts](https://images.wondershare.com/filmora/article-images/select-shorts-videos-to-upload-on-youtube.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/_O8m9KphYzs?si=jITthzeyX_Kmt9X2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 On your Android or iOS smartphone, launch the YouTube app, tap the **+** (**Create**) icon from the bottom, tap **Create a Short** from the **Create** box that pops up from the bottom, tap **Upload** from the bottom-right corner of the next screen, and select and upload a short, 60 seconds video recorded in portrait orientation from your device’s storage to the app.
 
@@ -126,6 +122,10 @@ On the next screen, tap **NEXT**, user the **Music** and **Text** icons at the b
 #### Step 3: Upload the Video
 
 Finally tap **UPLOAD** from the top-right corner to upload the short video on YouTube.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/epKTCSREjhI?si=Ez_hObK1FZrmEE7f" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Method 2: Record a Short Video and Upload
 
@@ -162,7 +162,7 @@ Learning the process of **how to post short videos on YouTube** is fairly simple
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/xg3PHS_Ee80?si=fE_iGIqHjKvWFIN3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2ipTu54inBo?si=gRegjvtVq5gm_PHo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -186,22 +186,24 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-tips.techidaily.com/024-approved-audiovisual-harmony-merging-audio-and-visual-elements-on-youtube/"><u>[New] 2024 Approved Audiovisual Harmony Merging Audio and Visual Elements on YouTube</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/024-approved-best-practices-in-youtube-keyword-selection/"><u>[New] 2024 Approved Best Practices in YouTube Keyword Selection</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/024-approved-effortlessly-add-youtube-videos-to-google-slate-decks/"><u>[New] 2024 Approved Effortlessly Add YouTube Videos to Google Slate Decks</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/024-approved-how-to-download-youtube-playlist-step-by-step/"><u>[New] 2024 Approved How to Download YouTube Playlist-Step by Step</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/024-approved-income-levels-of-mr-beast/"><u>[New] 2024 Approved Income Levels of Mr. Beast</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/024-approved-mastering-the-download-of-your-youtube-playlist-today/"><u>[New] 2024 Approved Mastering the Download of Your YouTube Playlist Today</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/024-approved-overcoming-non-displayed-thumbnails-youtube-shorts-guide/"><u>[New] 2024 Approved Overcoming Non-Displayed Thumbnails YouTube Shorts Guide</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/024-approved-the-ultimate-checklist-of-essential-equipment/"><u>[New] 2024 Approved The Ultimate Checklist of Essential Equipment</u></a></li>
-<li><a href="https://video-capture.techidaily.com/new-translate-speech-to-text-with-ultimate-accuracy-thanks-to-google/"><u>[New] Translate Speech to Text with Ultimate Accuracy, Thanks to Google</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/new-ultimate-list-best-ps5-external-storage-solutions/"><u>[New] Ultimate List Best PS5 External Storage Solutions</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/2024-approved-timing-duration-for-a-20mb-high-definition-video/"><u>2024 Approved Timing Duration for a 20Mb High-Definition Video</u></a></li>
-<li><a href="https://common-error.techidaily.com/deciphering-and-solving-the-chrome-plugin-load-failure-dilemma-in-windows-10/"><u>Deciphering and Solving the 'Chrome Plugin Load Failure' Dilemma in Windows 10</u></a></li>
-<li><a href="https://fox-within.techidaily.com/effizientes-kopieren-von-hdd-auf-ssd-unter-windows-ohne-vollstandige-neukonfiguration/"><u>Effizientes Kopieren Von HDD Auf SSD Unter Windows Ohne Vollständige Neukonfiguration</u></a></li>
-<li><a href="https://techtrends.techidaily.com/essential-sports-film-collection-the-best-to-watch-immediately/"><u>Essential Sports Film Collection - The Best to Watch Immediately</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/in-2024-essential-tips-for-using-switch-pro-controller-with-steam/"><u>In 2024, Essential Tips for Using Switch Pro Controller with Steam</u></a></li>
-<li><a href="https://article-tips.techidaily.com/in-2024-skullduggery-scribblers-den/"><u>In 2024, Skullduggery Scribbler's Den</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/1723208973359-unlock-your-pcs-wireless-potential-expert-tips-for-enabling-bluetooth-on-windows-woke-solved/"><u>Unlock Your PC's Wireless Potential: Expert Tips for Enabling Bluetooth on Windows Woke - Solved!</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-2024-approved-twitters-top-jokesters/"><u>[New] 2024 Approved Twitter's Top Jokesters</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/hannel-titles-that-shine-how-to-innovate/"><u>[New] Channel Titles That Shine How to Innovate</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ownload-mastery-11-key-youtube-extractors/"><u>[New] Download Mastery 11 Key YouTube Extractors</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-mastering-awesome-valorant-thumbnails-for-youtube-content/"><u>[New] In 2024, Mastering Awesome Valorant Thumbnails for YouTube Content</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-organize-soundtracks-on-youtube-the-playlist-guide/"><u>[New] In 2024, Organize Soundtracks on Youtube The Playlist Guide</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-masterclass-in-creativity-best-free-3d-text-psds-for-2024/"><u>[New] Masterclass in Creativity Best Free 3D Text PSDS for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-2024-approved-wander-in-wealthy-web-words-worlds/"><u>[Updated] 2024 Approved Wander in Wealthy Web Words Worlds</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-delicious-dynamos-youtubers-for-your-food-journey-for-2024/"><u>[Updated] Delicious Dynamos YouTubers for Your Food Journey for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-first-timers-manual-for-cool-mac-crafted-youtube-clips/"><u>[Updated] First-Timer's Manual for Cool, Mac-Crafted YouTube Clips</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-in-2024-cutting-edge-video-editing-in-youtube-studio-explained/"><u>[Updated] In 2024, Cutting-Edge Video Editing in YouTube Studio Explained</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-in-2024-youtube-marketing-boosted-by-free-downloadable-templates/"><u>[Updated] In 2024, YouTube Marketing Boosted by Free Downloadable Templates</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/updated-unlocking-potential-advanced-tactics-for-spotify-ads/"><u>[Updated] Unlocking Potential Advanced Tactics for Spotify Ads</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/2024-approved-top-windows-photo-inspector-fast-edition/"><u>2024 Approved Top Windows Photo Inspector, Fast Edition</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/tless-imovie-music-enhancement-using-youtube-songs-for-2024/"><u>Effortless iMovie Music Enhancement Using YouTube Songs for 2024</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/end-to-end-walkthrough-of-videoshows-24-upgrade/"><u>End-to-End Walkthrough of VideoShow's '24 Upgrade</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/in-2024-the-leading-virtual-reality-titles-for-your-smartphone/"><u>In 2024, The Leading Virtual Reality Titles for Your Smartphone</u></a></li>
+<li><a href="https://some-tips.techidaily.com/in-2024-the-pathway-to-perfect-pitches-insights-from-magix-maker/"><u>In 2024, The Pathway to Perfect Pitches Insights From Magix Maker</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ue-revolution-unlocking-online-income-through-youtube-monetization/"><u>Revenue Revolution Unlocking Online Income Through YouTube Monetization</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/solving-obs-fullscreen-glitches/"><u>Solving OBS Fullscreen Glitches</u></a></li>
 </ul></div>
 
