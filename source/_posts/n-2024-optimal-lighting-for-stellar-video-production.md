@@ -1,7 +1,7 @@
 ---
 title: "[New] In 2024, Optimal Lighting for Stellar Video Production"
-date: 2025-01-21T03:14:07.327Z
-updated: 2025-01-24T23:33:50.012Z
+date: 2025-02-01T03:23:28.929Z
+updated: 2025-02-05T11:21:50.737Z
 tags:
   - ai video
   - ai youtube
@@ -33,16 +33,12 @@ Going outside and using natural light is the cheapest way to get a lot of light 
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/-G7cU8dYvuI?si=JaKqRcW6qq9CDvty" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Video Lighting Basics: Three Point Lighting
 
 ![ Lighting for YouTube Video](https://images.wondershare.com/filmora/article-images/three-point-lighting.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/U_aNKnMTPjo?si=Og_mEt7NP3Fbsg2n" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JNxZ4Z6BVCg?si=522oz1OPSQDhNYWT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 The most common technique of lighting a scene is called **three-point lighting**. It involves three different sources of light in the shot and is used by portrait photographers, which is also a great method for lighting your vlog.
@@ -58,13 +54,13 @@ The **fill light** is less bright than the primary source of light and it is pla
 The final step to creating three point lighting is to set up another light behind you. This is your 'Backlight', and it will help you stand out from your background. **Backlight or Hair light** is always placed behind and above the subject to create separation between the subject in the shot and the background. This basic lighting technique can be applied in almost every scene you shoot, which is why it is important to keep an open mind and to continue experimenting with possible light setups.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fZTlPdOFNmo?si=Ym8p7ayV1gtNzzXj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/n-66V-LRK3Y?si=fNeB2pXCePeQli6E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Watch Video! Top Lighting Tips for Vlogging
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/E3yY7lZ-FKA?si=g8VEuExP8GH59B69" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oB9V7rZzotw?si=d4xrCbq1jKHXGAWN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Lightning Tips for Aspiring YouTube Videographers
@@ -100,7 +96,7 @@ If you are hosting a **beauty vlog** then you might consider a slightly differen
 ![lighting tips](https://images.wondershare.com/filmora/article-images/lighting-tips02.JPG)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/B2MlLvGxMwI?si=q_blGjXyJrGtzT8d" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6KXVWj6Ar1M?si=Cd_jktmoN3e9OzH3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 If you are using all of the lighting options available to you and your video still looks too dark then you can try brightening it by **opening up the aperture of your camera** lens/setting a lower f-stop. Letting more light into your camera can help your footage look brighter, although you also run the risk of making things look overexposed/ washed out if you are not careful.
@@ -108,6 +104,10 @@ If you are using all of the lighting options available to you and your video sti
 If you are stuck shooting in **low light conditions** it is best to use a lens with a wider aperture/lower f-stop. This will make the best of the light you do have.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YZma8PBO0D8?si=9-qQgGVTuChYd27a" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -130,21 +130,18 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-tips.techidaily.com/n-2024-navigating-the-mobile-film-world-thumbnail-creation-essentials/"><u>[New] In 2024, Navigating the Mobile Film World Thumbnail Creation Essentials</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/new-setting-the-mood-fading-to-black/"><u>[New] Setting the Mood Fading To Black</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-compile-of-the-most-beautiful-wedding-videos-youtube-and-vimeo-edition-for-2024/"><u>[Updated] Compile of the Most Beautiful Wedding Videos - Youtube & Vimeo Edition for 2024</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ed-elevate-your-media-content-via-youtube-studio-editing-skills-for-2024/"><u>[Updated] Elevate Your Media Content via YouTube Studio Editing Skills for 2024</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-in-2024-how-to-easily-add-subtitles-and-closed-captions-to-youtube-video/"><u>[Updated] In 2024, How to Easily Add Subtitles and Closed Captions to YouTube Video</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-in-2024-infographic-review-fifa-video-gains-on-social-platforms/"><u>[Updated] In 2024, Infographic Review FIFA Video Gains on Social Platforms</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-maximize-engagement-discover-the-right-youtube-thumbnail-size/"><u>[Updated] Maximize Engagement Discover the Right YouTube Thumbnail Size</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/updated-the-dynamic-world-of-digital-gifts-a-complete-guide-to-snapchat-gifs-for-2024/"><u>[Updated] The Dynamic World of Digital Gifts A Complete Guide to Snapchat Gifs for 2024</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ing-up-black-screens-in-youtube-playback-for-2024/"><u>Clearing Up Black Screens in YouTube Playback for 2024</u></a></li>
-<li><a href="https://win-data.techidaily.com/effective-strategies-for-securely-backing-up-hyper-v-virtual-machines-with-activebackup/"><u>Effective Strategies for Securely Backing Up Hyper-V Virtual Machines with ActiveBackup</u></a></li>
-<li><a href="https://change-location.techidaily.com/how-to-get-the-dragon-scale-and-evolution-enabled-pokemon-on-vivo-g2-drfone-by-drfone-virtual-android/"><u>How to get the dragon scale and evolution-enabled pokemon On Vivo G2? | Dr.fone</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/how-to-remove-screen-lock-pin-on-oppo-a1-5g-like-a-pro-5-easy-ways-by-drfone-android/"><u>How To Remove Screen Lock PIN On Oppo A1 5G Like A Pro 5 Easy Ways</u></a></li>
-<li><a href="https://fake-location.techidaily.com/looking-for-a-location-changer-on-realme-narzo-60-pro-5g-look-no-further-drfone-by-drfone-virtual-android/"><u>Looking For A Location Changer On Realme Narzo 60 Pro 5G? Look No Further | Dr.fone</u></a></li>
-<li><a href="https://audio-shaping.techidaily.com/new-in-2024-essential-tips-for-aspiring-music-video-editors/"><u>New In 2024, Essential Tips for Aspiring Music Video Editors</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ng-youtube-influence-a-comprerancial-guide-to-creator-studios-potential/"><u>Scaling YouTube Influence A Comprerancial Guide to Creator Studio's Potential</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ore-kit-video-equipment-every-creator-needs-for-2024/"><u>The Core Kit Video Equipment Every Creator Needs for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ffordable-gear-for-aspiring-content-creators/"><u>[New] Affordable Gear for Aspiring Content Creators</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ullscreen-partnership-how-to-choose-an-mcn/"><u>[New] Fullscreen Partnership How to Choose An MCN</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-decoding-youtube-premium-complete-information-inside/"><u>[New] In 2024, Decoding YouTube Premium Complete Information Inside</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/new-in-depth-look-at-cybercam-capturer-for-2024/"><u>[New] In-Depth Look at CyberCam Capturer for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-in-2024-pixel-paradise-100plus-game-havens-explored/"><u>[Updated] In 2024, Pixel Paradise 100+ Game Havens Explored</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-unveiling-the-secret-of-affordable-video-ad-creation-on-youtube/"><u>[Updated] Unveiling the Secret of Affordable Video Ad Creation on YouTube</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/2024-approved-expert-review-of-ios-screenshot-software/"><u>2024 Approved Expert Review of iOS Screenshot Software</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/a-step-by-step-approach-to-fixing-the-0x80070570-problem-in-windows/"><u>A Step-by-Step Approach to Fixing the '0X80070570' Problem in Windows</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/raw-footage-to-final-cut-youtube-studio-edition/"><u>From Raw Footage to Final Cut YouTube Studio Edition</u></a></li>
+<li><a href="https://location-social.techidaily.com/how-to-change-your-honor-x50i-location-on-twitter-drfone-by-drfone-virtual-android/"><u>How to Change your Honor X50i Location on Twitter | Dr.fone</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-simple-and-effective-ways-to-change-your-country-on-youtube-app-of-your-itel-a60-drfone-by-drfone-virtual-android/"><u>In 2024, Simple and Effective Ways to Change Your Country on YouTube App Of your Itel A60 | Dr.fone</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/ps4-broadcasting-basics-with-a-focus-on-obs-integration/"><u>PS4 Broadcasting Basics with a Focus on OBS Integration</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ndependent-creators-playbook-earning-big-without-ads-on-youtube/"><u>The Independent Creator’s Playbook Earning Big Without Ads on YouTube</u></a></li>
 </ul></div>
 

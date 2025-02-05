@@ -1,7 +1,7 @@
 ---
 title: "\"[New] In 2024, Disable Non-Specific YouTube Video Alerts\""
-date: 2024-08-08T11:40:19.213Z
-updated: 2024-08-09T11:40:19.213Z
+date: 2025-01-30T01:25:58.261Z
+updated: 2025-02-05T06:49:39.370Z
 tags:
   - ai video
   - ai youtube
@@ -18,9 +18,6 @@ thumbnail: https://thmb.techidaily.com/60aeb73e6646ca7cba89b069f503754c9115c11cb
 
 # YouTube Recommended Videos - Block the Videos I Don't Like
 
-<!-- affiliate ads begin -->
-<a href="https://godlikehost.sjv.io/c/5597632/1920054/21774" target="_top" id="1920054"><img src="//a.impactradius-go.com/display-ad/21774-1920054" border="0" alt="" width="320" height="100"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1920054/21774" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
@@ -41,12 +38,17 @@ Here’s what you can do about it:
 2. [**Tell YouTube You Aren’t Interested**](#notinterested)
 3. [**But Why Does It Recommend Stuff I Don’t Like?**](#butwhy)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/n4cc4BSqJls?si=Hkd9vwQDqeCGN7XG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Manage Your Watch History
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087394/7443" target="_top" id="2087394"><img src="//a.impactradius-go.com/display-ad/7443-2087394" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087394/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Manage Watch History](https://images.wondershare.com/filmora/article-images/manage-watch-history.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aoMiYpYiFZs?si=qvYvGytDD17fvSXO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Scroll to the bottom of any page on YouTube and you will see a button marked **History** with an hourglass icon. To access this feature using a mobile device, go to the **Account** tab and tap **History**.
 
@@ -55,13 +57,11 @@ You will be able to completely clear your watch history, remove specific videos 
 If you are being recommended more things you aren’t interested in than things you are, you might want to clear your history completely and start fresh. Maybe your tastes have changed since YouTube started keeping track of them.
 
 <!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BBusiness%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/business-970x90.gif" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/C3cJe7Wgn6I?si=EckDFML-VJ_2sYz8" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Tell YouTube You Aren’t Interested
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082532/7443" target="_top" id="2082532"><img src="//a.impactradius-go.com/display-ad/7443-2082532" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082532/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Tell YouTube Not Interested](https://images.wondershare.com/filmora/article-images/tell-youtube-not-interested.jpg)
 
 Based on your watch history, YouTube knows what you like. However, they have no way of automatically collecting data on what kinds of videos you’d rather not see.
@@ -71,6 +71,10 @@ What they do have is a system for you to flag recommendations you don’t like.
 Hover over the thumbnail of a video you don’t want to be recommended to you and a small icon that looks like three stacked dots will appear next to the title. Click on that, and then click **Not Interested**.
 
 When you tell YouTube you aren’t interested in certain videos they use that data to adjust what they recommend for you.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/K4lRBnNnd9k?si=5e0MbdOz-fF6Ry_k" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## But Why Does It Recommend Stuff I Don’t Like?
 
@@ -84,16 +88,14 @@ The only way to stop certain types of videos from being recommended for you is t
 
  Are you usually happy with YouTube's recommended videos?
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/iOVkXoUxLf4?si=QfC18T2cb5OkiaXo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## What video editing software did YouTube suggested videos are used?
 
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1657397/16446" target="_top" id="1657397"><img src="//a.impactradius-go.com/display-ad/16446-1657397" border="0" alt="" width="336" height="280"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1657397/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<a href="https://estore.macxdvd.com/order/checkout.php?PRODS=4526659&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.macxdvd.com/affiliate/new-banner/vcp-500x500.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 Richard Bennett
@@ -102,14 +104,11 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -118,4 +117,21 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-tips.techidaily.com/erfect-and-unique-youtube-channel-names-for-professional-filmmakers-and-vloggers-no-more-than-156-characters-for-2024/"><u>[New] Perfect & Unique Youtube Channel Names for Professional Filmmakers & Vloggers (No More than 156 Characters) for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-streaming-audio-directly-into-slides-for-2024/"><u>[New] Streaming Audio Directly Into Slides for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-optimal-voice-modification-software-for-video-makers/"><u>[Updated] Optimal Voice Modification Software for Video Makers</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-the-blueprint-for-successful-valorant-thumbnails-on-social-media-platforms/"><u>[Updated] The Blueprint for Successful Valorant Thumbnails on Social Media Platforms</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-your-first-steps-for-youtube-earning-8-methods-for-2024/"><u>[Updated] Your First Steps for YouTube Earning - 8 Methods for 2024</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/boosting-yield-strategies-for-successful-money-making-on-mobile-youtube/"><u>Boosting Yield Strategies for Successful Money-Making on Mobile YouTube</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ing-copyright-compliance-in-youtube-to-mp4/"><u>Ensuring Copyright Compliance in Youtube-to-MP4</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/google-wireless-nest-doorbell-a-comprehensive-review-for-battery-operated-models/"><u>Google Wireless Nest Doorbell - A Comprehensive Review for Battery-Operated Models</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/in-2024-a-novices-introduction-to-av1-codec/"><u>In 2024, A Novice's Introduction to AV1 Codec</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/24-live-follower-tracker-software/"><u>In 2024, Live Follower Tracker Software</u></a></li>
+<li><a href="https://win11.techidaily.com/restoring-superuser-functionality-in-terminal/"><u>Restoring Superuser Functionality in Terminal</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/unlock-your-boost-mobile-iphone-14-pro-max-before-the-plan-expires-by-drfone-ios/"><u>Unlock Your Boost Mobile iPhone 14 Pro Max Before the Plan Expires</u></a></li>
+<li><a href="https://smart-video-editing.techidaily.com/updated-2024-approved-flip-it-how-to-reverse-your-tiktok-videos-like-a-pro/"><u>Updated 2024 Approved Flip It! How to Reverse Your TikTok Videos Like a Pro</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ng-the-game-with-a-strong-video-game-youtube-presence/"><u>Winning the Game with a Strong Video Game Youtube Presence</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Beauty Blogging Beginnings  Crafting a Captivating YouTube Channel\""
-date: 2024-08-08T11:42:31.970Z
-updated: 2024-08-09T11:42:31.970Z
+date: 2025-02-04T10:49:50.182Z
+updated: 2025-02-04T17:45:56.672Z
 tags:
   - ai video
   - ai youtube
@@ -18,9 +18,6 @@ thumbnail: https://thmb.techidaily.com/aad91a6ecd7769da95953b80a90f8da974d1c7ad6
 
 # How To Be A Beauty Guru on YouTube: Beauty Vlogger Set Up
 
-<!-- affiliate ads begin -->
-<a href="https://bluetties.sjv.io/c/5597632/2039292/17094" target="_top" id="2039292"><img src="//a.impactradius-go.com/display-ad/17094-2039292" border="0" alt="BLUETTI NEW LAUNCH AC240" width="954" height="1020"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2039292/17094" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
@@ -30,19 +27,20 @@ thumbnail: https://thmb.techidaily.com/aad91a6ecd7769da95953b80a90f8da974d1c7ad6
 Beauty Vlogs are some of the most popular channels on YouTube. These vlogs are all about aesthetics, so it is important that the videos themselves are beautiful. When you are giving out tips on makeup or hair you want to use a setup that will make your results look their very best.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=30901410&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/copy_1_copy_vMixCallScreenshot1-large.jpg" border="0"> vMix Pro - Software based live production. vMix Pro includes everything in vMix 4K plus 8 channels of Replay and 8 vMix Call 
-This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Dn-24B6AURY?si=ErES2KWVnintY6h9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## YouTube Beauty Vlogger Set Up
 
 It’s easy to put together your own Beauty Vlog setup. There are four main elements; lighting, beauty supplies, backgrounds, and audio. Here are some tips on building your beauty guru set:
 
 #### 1\. Light It Up
 
-<!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BBusiness%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/business-970x90.gif" border="0"></a>
-<!-- affiliate ads end -->
 ![beauty vlog01](https://images.wondershare.com/filmora/article-images/beauty-vlog01.JPG)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6X24fPKs6AE?si=YtQy-8zy7GifgfA7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Beauty Vlogs need to have great lighting so that everyone can clearly see what you are doing and how amazing it looks. Make sure you have even light over your whole face by ‘front lighting’ your vlog. Front lighting means having a light source right in front of you.
 
@@ -72,10 +70,11 @@ You have a lot to say, so make sure people can hear you. Most cameras do not hav
 
 If you do not have access to an external mic then you may be able to get by without one for a while using software. Make sure there is no background noise competing with your voice, and download a free audio editing program called Audacity from Audacityteam.org. Using Audacity you will be able to improve a mediocre audio recording from your camera and make it usable. This is a popular option among YouTube gamers who record both video and audio from their webcams, but there is no reason it should not be useful for beauty gurus too.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082538/7443" target="_top" id="2082538"><img src="//a.impactradius-go.com/display-ad/7443-2082538" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082538/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Un9G2_OdSRI?si=vAcGbco8DuWt4ypP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -83,14 +82,11 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -99,4 +95,18 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-tips.techidaily.com/he-game-plan-for-creating-a-hit-youtube-introduction-trailer-for-2024/"><u>[New] The Game Plan for Creating a Hit YouTube Introduction Trailer for 2024</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/updated-2024-approved-unveiling-the-most-effective-obs-studio-edits-methods/"><u>[Updated] 2024 Approved Unveiling the Most Effective OBS Studio Edits Methods</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/updated-harnessing-onscreen-power-expert-tips-on-cropping-images/"><u>[Updated] Harnessing Onscreen Power Expert Tips on Cropping Images</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-mastering-the-basics-of-asmr-video-content/"><u>[Updated] Mastering the Basics of ASMR Video Content</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-navigating-through-time-the-finest-history-youtube-sources-for-students-for-2024/"><u>[Updated] Navigating Through Time The Finest History YouTube Sources for Students for 2024</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/updated-streamline-your-screencast-the-best-obs-tools-insider-tips-for-2024/"><u>[Updated] Streamline Your Screencast The Best OBS Tools Insider Tips for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/approved-maximizing-income-mastering-short-video-markets/"><u>2024 Approved Maximizing Income Mastering Short Video Markets</u></a></li>
+<li><a href="https://blog-min.techidaily.com/6-ways-to-transfer-contacts-from-asus-rog-phone-7-to-iphone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>6 Ways To Transfer Contacts From Asus ROG Phone 7 to iPhone | Dr.fone</u></a></li>
+<li><a href="https://discover-exclusive.techidaily.com/resolving-device-overheating-problems-expert-solutions-by-yl-computing/"><u>Resolving Device Overheating Problems: Expert Solutions by YL Computing</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/soundscapes-for-vimeo-a-compreayers-manual/"><u>Soundscapes for Vimeo A Compreayer's Manual</u></a></li>
+<li><a href="https://fox-that.techidaily.com/troubleshooting-your-iphones-broken-nearness-detection-feature/"><u>Troubleshooting Your iPhone's Broken Nearness Detection Feature</u></a></li>
+</ul></div>
 

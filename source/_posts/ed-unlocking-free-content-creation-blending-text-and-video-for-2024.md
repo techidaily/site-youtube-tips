@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Unlocking Free Content Creation  Blending Text & Video for 2024\""
-date: 2024-08-08T11:42:52.876Z
-updated: 2024-08-09T11:42:52.876Z
+date: 2025-01-30T06:50:28.484Z
+updated: 2025-02-05T06:45:59.303Z
 tags:
   - ai video
   - ai youtube
@@ -18,9 +18,6 @@ thumbnail: https://thmb.techidaily.com/773bcb287706a7e5add3e76fb4807bc2dd418c60c
 
 # How to Add Video to Text
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=2067133&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pearlmountainsoft.com/n_img/product/gcb/banScrn.jpg" border="0">Greeting Card Builder</a>
-<!-- affiliate ads end -->
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
 
 ##### Liza Brown
@@ -41,52 +38,47 @@ You should start by creating a new slide and adding a textbox to it. Proceed to 
 
 Head over to the Insert tab, select Rectangle from the Shapes menu, and create a rectangular shape over the entire slide. Right-click on the slide and choose the Send to Back option from the menu. In this manner, you will position the rectangle you created behind the textbox.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4718730&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/copy_vMixCallScreenshot1-large.jpg" border="0">vMix HD - Software based live production. vMix HD includes everything in vMix Basic HD plus 1000 inputs, Video List, 4 Overlay Channels, and 1 vMix Call 
-This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
-<!-- affiliate ads end -->
 ![Add video to text - Powerpoint- insert shape](https://images.wondershare.com/filmora/article-images/insert-rectangle-shape.jpg)
 
 The next step you will have to take is to create the cut-out of the text within the rectangle. Select both the text and shape you placed in the background before clicking on the Format tab that is located near the end of PowerPoint’s ribbon.
 
 Find the Insert Shape option and choose Subtract from the Merge Shapes drop-down menu. The shape of the text in the textbox will be applied to the object in the background, which enables you to add a video to that text.
 
-<!-- affiliate ads begin -->
-<a href="https://sentrypc.7eer.net/c/5597632/398457/3022" target="_top" id="398457"><img src="//a.impactradius-go.com/display-ad/3022-398457" border="0" alt="www.sentrypc.com" width="980" height="120"/></a><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/398457/3022" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Add video to text - Powerpoint- substract](https://images.wondershare.com/filmora/article-images/subtract-from-merge-shapes.jpg)
 
 Click on the Insert tab, and then choose the Video option from the Media menu. You can [insert a video](https://tools.techidaily.com/wondershare/filmora/download/) that is stored on a local hard drive or the Internet to PowerPoint. The video will cover the entire slide, so you must right-click on it and select the Send to Back option.
 
 You can then fine-tune the video playback settings from the Playback tab. Preview the results before you move on to the next slide in your presentation, and make necessary adjustments if you don’t like how the video merged with the text.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-G7cU8dYvuI?si=JaKqRcW6qq9CDvty" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 2: Adding Video to Text in Filmora
 
 Besides presentation software, you can also use video editing software products to add a video to text. Filmora lets you add a video to text in just a few simple steps. You can first make a text video with animation first, and then use the picture in picture feature to add the video to text. Here are the detailed information about how to add a video to text in Filmora.
 
-<!-- affiliate ads begin -->
-<h3 id="200610"><a href="https://sentrypc.7eer.net/c/5597632/200610/3022">Parental Control Software</a></h3>
-<span class="text-ad-content">
-	#1 Rated Parental Control Software.<br/>
-	Monitor & Control all PC Activity!<br/>
-		<cite style="color:green">sentrypc.com/parental-controls/</cite>
-	</span><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/200610/3022" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aa6vSdt1elM?si=qPhmO-hoWVIPBnnC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 You should start by creating a new project in Filmora and importing the video you want to add to the text into the project. Click on the Titles tab, and choose the title that matches the visual style of your project.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3727260&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.aiseesoft.com/avangate/30p/banner.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ![Add video to text - Filmora9](https://images.wondershare.com/filmora/article-images/add-title-effects.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/O7ChChlyX2o?si=7pMKdN1NZig1kYek" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Set the preferred duration of the title by dragging one of its ends to the left or right after you place it on the timeline, and then double-click on it to customize it. Click on the Advanced button once the Text tab opens and insert the text into the Input Text box.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620780&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/728__90banner.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ![Add video to text - Filmora9 Advanced Editing](https://images.wondershare.com/filmora/article-images/make-text-video-advanced-text-edit.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/it8VkxDUdAc?si=ef6VZWR7kW4P9ikh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Proceed to select a font and adjust the text size before deciding if you want to [animate the text](https://tools.techidaily.com/wondershare/filmora/download/). When done, you should export the title as a video file, and then import it back into your project.
 
@@ -106,20 +98,21 @@ Merging text with video is equally easy in PowerPoint and Filmora, so you just h
 
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qv4Qm7kpeMs?si=9fv5SOS5a2DvixTK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Liza Brown
 
 Liza Brown is a writer and a lover of all things video.
 
 Follow @Liza Brown
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -128,4 +121,22 @@ Follow @Liza Brown
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-tips.techidaily.com/ed-2024-approved-ideal-mp4-slicer-for-mac-boost-your-vlog-game/"><u>[Updated] 2024 Approved Ideal MP4 Slicer for Mac Boost Your Vlog Game</u></a></li>
+<li><a href="https://article-helps.techidaily.com/updated-2024-approved-reinstate-your-airdrop-linkages-simple-fixes-for-iosmacos-issues/"><u>[Updated] 2024 Approved Reinstate Your AirDrop Linkages Simple Fixes for iOS/macOS Issues</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-2024-approved-stream-youtube-in-the-background-using-iphone-and-android/"><u>[Updated] 2024 Approved Stream YouTube in the Background Using iPhone & Android</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-essential-xbox-x-screens-find-your-perfect-match-now/"><u>[Updated] Essential Xbox X Screens Find Your Perfect Match Now</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-unlock-creative-potentials-youtube-trailers-with-filmora-for-2024/"><u>[Updated] Unlock Creative Potentials YouTube Trailers with Filmora for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-youtube-success-starts-here-best-tutorials-for-starters/"><u>[Updated] YouTube Success Starts Here Best Tutorials for Starters</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-youtubes-top-12-choices-in-gamers-introductory-videos-freepaid-for-2024/"><u>[Updated] YouTube's Top 12 Choices in Gamers' Introductory Videos (Free/Paid) for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ing-continuous-viewing-pleasure-on-television-for-2024/"><u>Creating Continuous Viewing Pleasure on Television for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ce-your-channels-voice-dive-into-the-world-of-banner-makers-apps-for-2024/"><u>Enhance Your Channel's Voice Dive Into the World of Banner Makers (Apps) for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/c-video-titles-youtubes-most-watched-lore/"><u>Iconic Video Titles YouTube's Most-Watched Lore</u></a></li>
+<li><a href="https://techtrends.techidaily.com/losungen-fur-haufig-auftretende-probleme-mit-dvds-wenn-sie-nicht-funktionieren/"><u>Lösungen Für Häufig Auftretende Probleme Mit DVDs: Wenn Sie Nicht Funktionieren</u></a></li>
+<li><a href="https://facebook.techidaily.com/1719148143401-the-biggest-tech-updates-that-have-been-underestimated-and-forgotten/"><u>The Biggest Tech Updates That Have Been Underestimated and Forgotten</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/the-emotive-algorithmic-enigma-can-ai-feel-recognize-understand/"><u>The Emotive Algorithmic Enigma: Can AI Feel, Recognize, Understand?</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/the-role-of-wireless-operators-in-telecommunications-explained/"><u>The Role of Wireless Operators in Telecommunications Explained</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/vvtvli-systems-variable-valve-timing-and-lift-systems-adjust-the-opening-and-closing-of-intake-and-exhaust-valves-improving-engine-breathing-for-better-powe206/"><u>VVT/VLI Systems: Variable Valve Timing and Lift Systems Adjust the Opening and Closing of Intake and Exhaust Valves, Improving Engine Breathing for Better Power and Efficiency Across Different Speeds and Loads</u></a></li>
+</ul></div>
 

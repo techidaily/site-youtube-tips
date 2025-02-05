@@ -1,7 +1,7 @@
 ---
 title: "The Complete Manual to Perfect Proportions in YouTube Videos/Shorts/Ads for 2024"
-date: 2025-01-23T21:26:23.329Z
-updated: 2025-01-24T19:26:08.434Z
+date: 2025-02-01T07:30:20.791Z
+updated: 2025-02-05T09:30:15.603Z
 tags:
   - ai video
   - ai youtube
@@ -40,7 +40,7 @@ Aspect ratio is simply the width to the height ratio for the screen. But it hold
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/XS1nQCe95LU?si=A2dhdFkSAI61_nKA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/mK1lEBRm_1w?si=FSaM0OKO0XBCgjtT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 1 Aspect Ratio for YouTube Videos
@@ -48,10 +48,6 @@ Aspect ratio is simply the width to the height ratio for the screen. But it hold
 YouTube is the platform that demands perfection, not in terms of the content of the video only, but there are some other aspects that one needs to consider. So, what could be the right approach while dealing with YouTube Video or Photo size? Thinking what could that be? Well, friends, it is the YouTube Video Ratio or, in simple terms, YouTube Aspect Ratio that tells a lot about the visual representation of the video. If YouTube Video dimension size is not as per the required parameter or according to the device screen, it is so. Then YouTube itself makes adjustments to the rest of the video corners filled with either white or grey bar, which is not the right approach for an appropriate user experience. For that, you must be aware of the required width and height of YouTube Video, that is, YouTube Video Aspect Ratio. Below are covered prime devices with their YouTube Aspect Ratio and related information. Go through them to get the basic idea:
 
 ![youtube aspect ratio](https://images.wondershare.com/filmora/article-images/2021/youtube-aspect-ratio.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LlVkEwpjKKo?si=hXi-mchMaJvbnIzM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 **Note:** YouTube Video Player can adjust the video size automatically to make it fit into the screen. Sometimes, doing so results in a bar's white or grey/black area along the edges.
 
@@ -71,7 +67,15 @@ Let’s take the example of Vertical Video display in YouTube Screen:
 
 ![vertical video example](https://images.wondershare.com/filmora/article-images/2021/vertical-video-example.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RAnyQ0uj9Yg?si=Es4_ulcdM_-LuDcq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Also, by selecting the Expand option, the video will adjust itself to fill the entire screen.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/q4-YQ9Wjtfg?si=6afn1fydg_Wb9B8z" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 2 YouTube Shorts Aspect Ratio
 
@@ -96,7 +100,7 @@ If you want to monetize from your video or Shorts, use YouTube Ads to generate a
 ![youtube-ads-aspect-ratio](https://images.wondershare.com/filmora/article-images/2021/youtube-ads-aspect-ratio.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Vfq0vw0Spz8?si=2EAk6hW-Gb-o33_L" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/E1ax-vnGdeo?si=bgTkOhOEwDTlRQE3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Now, you might be wondering, what would be the possible YouTube Outro size or YouTube Video Aspect Ratio for YouTube Ads? Check here:
@@ -108,10 +112,6 @@ Aspect Ratio for Desktop Ads: 16:9
 Sponsor Card Ads Ratio: 1:1
 
 True View Discovery Ads Ratio: 16:9 or 4:3
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qmQjRcnaq9g?si=jadcGtXemUAlKOTa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Part 4 Think More about YouTube Aspect Ratio
 
@@ -135,11 +135,11 @@ Get started easily with Filmora's powerful performance, intuitive interface, and
 
 ![filmora box](https://images.wondershare.com/filmora/banner/filmora-latest-product-box-right-side.png)
 
-![wondershare filmora](https://images.wondershare.com/filmora/article-images/2021/filmora-video.png)
-
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Rxyki8-Y630?si=dHLkIxG59zdlZeN0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LlYIdWQc-jw?si=ZQ5809CbQGEar0vg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
+![wondershare filmora](https://images.wondershare.com/filmora/article-images/2021/filmora-video.png)
 
 There is another option also, after launching the software, upload your project video. Then, under Project settings, change and set the required aspect ratio.
 
@@ -168,20 +168,17 @@ Aspect ratio is simply the width to the height ratio for the screen. But it hold
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-tips.techidaily.com/n-2024-pioneering-visibility-on-youtube-through-proven-methods/"><u>[New] In 2024, Pioneering Visibility on YouTube Through Proven Methods</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/n-2024-top-10-strategies-for-youtube-shorts-that-make-an-impact/"><u>[New] In 2024, Top 10 Strategies for Youtube Shorts That Make an Impact</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-avoiding-pitfalls-understanding-youtube-standards/"><u>[Updated] 2024 Approved Avoiding Pitfalls Understanding YouTube Standards</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/updated-decoding-facebooks-status-vids-download-process-explained-for-2024/"><u>[Updated] Decoding Facebook's Status Vids Download Process Explained for 2024</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-from-raw-footage-to-final-cut-youtube-studio-edition-for-2024/"><u>[Updated] From Raw Footage to Final Cut YouTube Studio Edition for 2024</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/updated-google-viewerscape-vs-samsung-virtual-world-for-2024/"><u>[Updated] Google Viewerscape Vs. Samsung Virtual World for 2024</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-secrets-of-hosting-no-cost-seminars-on-the-worlds-largest-video-platform-for-2024/"><u>[Updated] Secrets of Hosting No-Cost Seminars on the World’s Largest Video Platform for 2024</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-viral-video-legends-youtubed-for-millions/"><u>[Updated] Viral Video Legends YouTubed for Millions</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-youtube-videography-essentials-7-free-audio-choices-for-2024/"><u>[Updated] YouTube Videography Essentials - 7 Free Audio Choices for 2024</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/broadcast-your-games-with-professional-skill-for-2024/"><u>Broadcast Your Games with Professional Skill for 2024</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ng-your-voice-on-youtube-a-guide-to-selective-audiences/"><u>Finding Your Voice on YouTube A Guide to Selective Audiences</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/free-frameworks-for-every-movie-epilogue-you-dream-for-2024/"><u>Free Frameworks for Every Movie Epilogue You Dream for 2024</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/24-enhancing-watchability-adding-time-stamps-to-youtube-videos/"><u>In 2024, Enhancing Watchability Adding Time Stamps to YouTube Videos</u></a></li>
-<li><a href="https://win-able.techidaily.com/top-5-solutions-for-resolving-zoom-unable-to-play-videos/"><u>Top 5 Solutions for Resolving 'Zoom Unable to Play Videos'</u></a></li>
-<li><a href="https://solve-outstanding.techidaily.com/unlocking-content-how-to-safely-disable-drm-protection-on-kindle-devices/"><u>Unlocking Content: How to Safely Disable DRM Protection on Kindle Devices</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/new-immediate-capture-in-zoom-conferences-via-snap-for-2024/"><u>[New] Immediate Capture in Zoom Conferences via Snap for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-in-2024-youtube-earnings-exploration-breakdown-of-adsense-payouts-per-kv-watcher/"><u>[Updated] In 2024, Youtube Earnings Exploration Breakdown of AdSense Payouts Per KV Watcher</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-master-the-art-of-youtube-success-with-premier-rank-tools/"><u>[Updated] Master the Art of YouTube Success with Premier Rank Tools</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-navigating-best-options-expert-picks-from-top-9-free-logomakers/"><u>[Updated] Navigating Best Options Expert Picks From Top 9 Free Logomakers</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-quietly-stream-youtube-on-iphone-and-android-for-2024/"><u>[Updated] Quietly Stream YouTube on iPhone & Android for 2024</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/updated-ultimate-scene-seizing-exploration/"><u>[Updated] Ultimate Scene Seizing Exploration</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-unleashing-auditory-brilliance-without-a-mic-in-sight/"><u>[Updated] Unleashing Auditory Brilliance without a Mic in Sight</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-youtubes-highest-income-stream-successors/"><u>[Updated] YouTube's Highest Income Stream Successors</u></a></li>
+<li><a href="https://fox-info.techidaily.com/2024-approved-hack-the-airwaves-mastering-a-viral-solo-podcast/"><u>2024 Approved Hack the Airwaves Mastering a Viral Solo Podcast</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/al-divas-top-ten-gamers-on-youtube/"><u>Digital Divas Top Ten Gamers on YouTube</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/downloading-samfw-frp-tool-30-for-infinix-note-30i-by-drfone-android/"><u>Downloading SamFw FRP Tool 3.0 for Infinix Note 30i</u></a></li>
+<li><a href="https://win-tips.techidaily.com/free-online-converter-easily-change-png-images-into-jpeg-format-with-movavi/"><u>Free Online Converter: Easily Change PNG Images Into JPEG Format with Movavi</u></a></li>
 </ul></div>
 

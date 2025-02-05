@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Setting Up Personalized Video Shots on YouTube"
-date: 2025-01-18T11:28:41.095Z
-updated: 2025-01-25T03:04:24.759Z
+date: 2025-02-01T11:56:06.553Z
+updated: 2025-02-04T22:50:00.329Z
 tags:
   - ai video
   - ai youtube
@@ -37,7 +37,7 @@ A big part of being a YouTuber involves talking to the camera. How you set up yo
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Rxyki8-Y630?si=dHLkIxG59zdlZeN0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9wiIVztRIqQ?si=GBgdwQ78k5hbeFDv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How to Set Up Your Talking Heads Shots for YouTube Video \[Infographic\]
@@ -47,7 +47,7 @@ We’ve summarized the key points about setting up talking head style video shot
 ![ Setting up Talking Heads Video Shots for YouTube](https://images.wondershare.com/filmora/article-images/talking-heads-youtube-video-shots-set-up.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qNrOsjUdRz0?si=xGzhmNmtgxNTsRxN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0Kr7Dpw0HuM?si=05wWDXdPgmC-oBBE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How to Set Up Your Talking-Head Shots for YouTube \[4 Ways\]
@@ -80,10 +80,6 @@ You can see from how even the background and couch looks across the entire camer
 
 It appears that, to the right of deadmau5 (camera left), there is a key light and to his left (camera right) there may be a fill light for additional lighting. Behind the couch, there’s also a background uplight to create depth between the subject and the background. At the 1:30 mark of this trailer video, you can briefly see how the Masterclass camera crew set up their shot.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fHWdQw1gRyI?si=ve9wZnPupiooLThG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 3.  Two Person Vlog Set-Up
 
 If your talking-head shot has got to include two people, you can use a similar set-up as the medium vlog set-up detailed above.
@@ -91,6 +87,10 @@ If your talking-head shot has got to include two people, you can use a similar s
 If you look back at the 39-second mark of deadmau5’s Masterclass trailer, you can see that there’s a lot of space to the left and right of deadmau5\. Now imagine the same shot but with two people.
 
 With two people, though, you’ll want to set up your mic slightly differently. Rather than using a directional shotgun mic with a narrow area of sensitivity, you’ll want to use a directional mic with a wider area of sensitivity.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gMS5pm0SQlQ?si=gasOo6p2agrVlIb7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 4.  Long Teleprompter Vlog Set-Up
 
@@ -115,13 +115,13 @@ To make a talking-head video more interesting, you can add some background music
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9hsPbiic0O8?si=58mZ2Cu6wicQfsUP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/umvX4ZdWbxk?si=tPXL0-Kzf9SQaY8z" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/6nvb0775GOM?si=peBB_Mo_4zcZFuci" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/NC0rdKEQ98o?si=HYgqC8CxF_WTO5if" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -145,18 +145,22 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://win-howtos.techidaily.com/kernel-troubleshoot-fix-dll-in-win/"><u>[Kernel Troubleshoot] Fix DLL in Win</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/n-2024-step-by-step-guide-to-crafting-exciting-mobile-intros/"><u>[New] In 2024, Step-By Step Guide to Crafting Exciting Mobile Intros</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/aximizing-youtube-clicks-with-imagery/"><u>[New] Maximizing YouTube Clicks with Imagery</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/updated-in-2024-best-practices-sourcing-background-beats-for-boxings/"><u>[Updated] In 2024, Best Practices Sourcing Background Beats for Boxings</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-the-definitive-guide-to-proportion-perfection-in-youtube-for-2024/"><u>[Updated] The Definitive Guide to Proportion Perfection in YouTube for 2024</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-top-thumbnail-dimensions-for-online-success-for-2024/"><u>[Updated] Top Thumbnail Dimensions for Online Success for 2024</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/2024-approved-optimal-spectrum-adjuster/"><u>2024 Approved Optimal Spectrum Adjuster</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/3-solutions-to-hard-reset-vivo-y100t-phone-using-pc-drfone-by-drfone-reset-android-reset-android/"><u>3 Solutions to Hard Reset Vivo Y100t Phone Using PC | Dr.fone</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/1722864098916-continuous-monitoring-during-induction-is-critical-for-the-safety-of-both-mother-and-baby/"><u>Continuous Monitoring During Induction Is Critical for the Safety of Both Mother and Baby</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/effective-techniques-for-merging-cells-across-rows-and-columns-using-microsoft-excel/"><u>Effective Techniques for Merging Cells Across Rows and Columns Using Microsoft Excel</u></a></li>
-<li><a href="https://fake-location.techidaily.com/in-2024-5-easy-ways-to-change-location-on-youtube-tv-on-gionee-f3-pro-drfone-by-drfone-virtual-android/"><u>In 2024, 5 Easy Ways to Change Location on YouTube TV On Gionee F3 Pro | Dr.fone</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-data-after-switching-from-xiaomi-14-to-latest-samsung-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Data After Switching From Xiaomi 14 to Latest Samsung | Dr.fone</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/in-2024-instant-best-picture-viewer-pro/"><u>In 2024, Instant Best Picture Viewer Pro</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/rafting-the-perfect-panel-of-playback-with-youtube/"><u>[New] Crafting the Perfect Panel of Playback with YouTube</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-effortless-text-insertion-on-visuals-explained-for-2024/"><u>[New] Effortless Text Insertion on Visuals Explained for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/dentifying-creator-types-six-intriguing-youtube-categorization-tests/"><u>[New] Identifying Creator Types Six Intriguing YouTube Categorization Tests</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-no-barriers-only-creativity-learn-cost-free-background-substitution-with-4-youtube-pros/"><u>[New] In 2024, No Barriers, Only Creativity Learn Cost-Free Background Substitution with 4 YouTube Pros</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-premier-selector-exclusive-app-selection-for-your-videos/"><u>[New] In 2024, Premier Selector Exclusive App Selection for Your Videos</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/urning-traffic-into-cash-calculating-the-essential-youtube-number-for-2024/"><u>[New] Turning Traffic Into Cash Calculating the Essential Youtube Number for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-the-ultimate-guide-to-filming-for-virality-on-youtube/"><u>[Updated] 2024 Approved The Ultimate Guide to Filming for Virality on YouTube</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-a-practical-approach-to-incorporate-youtube-playlists-online/"><u>[Updated] A Practical Approach to Incorporate YouTube Playlists Online</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/updated-guide-to-equipment-selection-for-youtube-creators-for-2024/"><u>[Updated] Guide to Equipment Selection for YouTube Creators for 2024</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/updated-the-auditory-nexus-studio-mac-essentials/"><u>[Updated] The Auditory Nexus Studio Mac Essentials</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-the-prime-list-cutting-through-the-noise-to-find-top-9-free-tools-for-2024/"><u>[Updated] The Prime List Cutting Through the Noise to Find Top 9 FREE Tools for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/approved-how-to-convert-youtube-videos-to-mp3-songs-on-mac/"><u>2024 Approved How to Convert YouTube Videos to MP3 Songs on Mac</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ing-steps-to-access-your-channels-eyeballs-for-2024/"><u>Decoding Steps to Access Your Channel's Eyeballs for 2024</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/in-2024-elite-display-decoded-examining-samsungs-ue590-monitor/"><u>In 2024, Elite Display Decoded Examining Samsung's UE590 Monitor</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/remove-the-lock-screen-fingerprint-of-your-motorola-edge-40-pro-by-drfone-android/"><u>Remove the Lock Screen Fingerprint Of Your Motorola Edge 40 Pro</u></a></li>
+<li><a href="https://some-tips.techidaily.com/top-5-intelligent-climate-controllers-the-ultimate-guide-featuring-zdnets-picks/"><u>Top 5 Intelligent Climate Controllers: The Ultimate Guide - Featuring ZDNET's Picks</u></a></li>
+<li><a href="https://win-blog.techidaily.com/troubleshooting-steps-for-successful-age-of-empires-iv-setup-via-microsoft-marketplace/"><u>Troubleshooting Steps for Successful Age of Empires IV Setup via Microsoft Marketplace</u></a></li>
 </ul></div>
 
