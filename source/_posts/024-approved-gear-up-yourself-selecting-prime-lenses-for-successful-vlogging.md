@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Gear Up Yourself  Selecting Prime Lenses for Successful Vlogging\""
-date: 2024-08-15T22:44:16.376Z
-updated: 2024-08-16T22:44:16.376Z
+date: 2025-03-02T23:01:05.766Z
+updated: 2025-03-04T20:04:00.353Z
 tags:
   - ai video
   - ai youtube
@@ -83,15 +83,9 @@ As telephoto lenses are even more zoomed in, you’ll need to be even further aw
 Focal lengths in camera lenses are measured in millimeters. You can vlog yourself handheld with a 24mm lens on a camera with a full-frame sensor (the sensor is the piece of hardware inside your camera that turns the light it receives into a digital image). But if you use a 24mm lens on a camera with a smaller sensor, like an APS-C sensor or even smaller Micro 4/3 sensor, more of you will get cropped out (see below).
 
  ![Crop Factor](https://images.wondershare.com/filmora/article-images/camera-lenses-crop-factor.jpg)
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4709458&QTY=1&AFFILIATE=108875&CART=1"><img src="https://3d-kstudio.com/wp-content/uploads/2019/10/Project-Manager-version-3-1600x900-768x419.jpg" border="0">Project Manager - Asset Browser for 3Ds Max</a>
-<!-- affiliate ads end -->
 
  In order to make up for the cropping that occurs, you will need to use a wider lens on cameras with smaller sensors to get the same shot you’d get with a full-frame camera.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4721564&QTY=1&AFFILIATE=108875&CART=1">Power Tools add-on for Google Sheets, 12-month subscription</a>
-<!-- affiliate ads end -->
 ### Focal Length Equivalency Table
 
 This table shows you the focal lengths needed to achieve the same shot between cameras with different sensor sizes. In order to take a shot as wide as the shot I took of myself with the 24mm lens on my full-frame camera, I would need a 15mm lens on an APS-C sensor camera or a 12mm lens on a micro 4/3 camera.
@@ -107,9 +101,6 @@ This table shows you the focal lengths needed to achieve the same shot between c
 | Telephoto                   | 100mm      | 63mm  | 50mm      |
 | Telephoto                   | 200mm      | 125mm | 100mm     |
 
-<!-- affiliate ads begin -->
-<a href="https://store.bitdefender.com/affiliate.php?ACCOUNT=BITLATIN&AFFILIATE=108875&PATH=http%3A%2F%2Fwww.bitdefender.com%2Fbusiness%3FAFFILIATE%3D108875%26RESOURCE%3D30%2525%2BOff%2Ball%2BGravityZone%2BProducts"><img src="https://www.bitdefender.com/content/dam/bitdefender/business/campaign/1200X628.png" border="0"></a>
-<!-- affiliate ads end -->
 ### Aperture
 
  ![Camera lenses Aperture](https://images.wondershare.com/filmora/article-images/camera-lenses-aperture.jpg)
@@ -117,9 +108,6 @@ This table shows you the focal lengths needed to achieve the same shot between c
  The next thing to consider when you’re looking for a lens is the aperture, the hole (often adjustable) within the lens that lets light in. Aperture for camera lenses is measured in f-stops (f/1.4, f/1.8, f/2.0) - the smaller the f-stop number, the larger the aperture (bigger hole letting even more light in).
 
  ![Camera lenses Aperture Range](https://images.wondershare.com/filmora/article-images/camera-lenses-aperture-range.png)
-<!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BEducational%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/educational-970x90.gif" border="0"></a>
-<!-- affiliate ads end -->
 
  Because larger aperture lenses let more light in, they need a shorter time for cameras to compose an image. This is why larger aperture lenses are also called “fast” lenses.
 
@@ -127,9 +115,6 @@ Fast lenses are more expensive because they cost more to produce. There’s a lo
 
 But do you even need a fast lens?
 
-<!-- affiliate ads begin -->
-<a href="https://turbotech.pxf.io/c/5597632/1450763/17212" target="_top" id="1450763"><img src="//a.impactradius-go.com/display-ad/17212-1450763" border="0" alt="" width="2560" height="1440"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1450763/17212" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Vlogging With a Fast Lens
 
 #### Pros of Vlogging With a Fast Lens
@@ -157,18 +142,6 @@ If, however, you are shooting most of your vlogs on a tripod, you won’t need a
  Looking for ways to set up your talking-head shot for YouTube with any of these lenses? Check out our post on [4 Ways To Set Up Your Talking-Head Shots For YouTube](https://tools.techidaily.com/wondershare/filmora/download/).
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
-<!-- affiliate ads begin -->
-<span id="1997795">
-					<video width="250" height="250" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1997795.jpeg"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/23621-1997795">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1997795.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:250px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fproteahair.pxf.io%2Fc%2F5597632%2F1997795%2F23621'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1997795/23621" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -176,14 +149,11 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -192,6 +162,26 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-tips.techidaily.com/024-approved-incredible-mobile-photography-and-videography-apps-for-iosandroid/"><u>[New] 2024 Approved Incredible Mobile Photography & Videography Apps for iOS/Android</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/new-brief-snippet-analysis-for-beginners/"><u>[New] Brief Snippet Analysis for Beginners</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-discover-the-best-8-mirrorless-cameras-that-transform-vlogging/"><u>[New] In 2024, Discover the Best 8 Mirrorless Cameras That Transform Vlogging</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-online-broadcast-battle-facebook-vs-youtube-and-twitspaces/"><u>[New] In 2024, Online Broadcast Battle FACEbook Vs. YOUTube & TWITSpaces</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-revolutionize-marketing-top-tools-for-perfectly-timed-video-tags/"><u>[New] In 2024, Revolutionize Marketing Top Tools for Perfectly Timed Video Tags</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/nseen-horizons-the-top-3-non-youtube-video-havens/"><u>[New] Unseen Horizons The Top 3 Non-Youtube Video Havens</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-2024-approved-prime-recorder-devices-for-livestreaming-pros-on-youtube/"><u>[Updated] 2024 Approved Prime Recorder Devices for Livestreaming Pros on YouTube</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-2024-approved-professional-portrait-maker-for-passports-desktop-and-online-access-only/"><u>[Updated] 2024 Approved Professional Portrait Maker for Passports – Desktop & Online Access Only</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-instrument-innovations-see-the-top-15-music-tech-tutorials-on-youtube/"><u>[Updated] Instrument Innovations See the Top 15 Music Tech Tutorials on YouTube</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/updated-pixelpilot-photovideo-slide-show-for-macos/"><u>[Updated] PixelPilot Photovideo Slide Show for macOS</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/updated-secure-recording-methods-for-sensitive-whatsapp-discussions-for-2024/"><u>[Updated] Secure Recording Methods for Sensitive WhatsApp Discussions for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-unveil-the-ultimate-list-of-live-streaming-apps-for-youtube-excellence-iosandroid-for-2024/"><u>[Updated] Unveil The Ultimate List of Live Streaming Apps for YouTube Excellence (iOS/Android) for 2024</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/2024-approved-swift-shadowing-in-1-minute/"><u>2024 Approved Swift Shadowing in 1 Minute</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/a-step-further-in-animation-innovative-techniques-using-movie-maker-for-2024/"><u>A Step Further in Animation Innovative Techniques Using Movie Maker for 2024</u></a></li>
+<li><a href="https://discover-exclusive.techidaily.com/avoiding-paper-jam-issues-in-your-printouts-tips-and-tricks-by-yl-software-experts/"><u>Avoiding Paper Jam Issues in Your Printouts: Tips and Tricks by YL Software Experts</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/discover-chatgpts-funniest-and-funnier-games/"><u>Discover ChatGPT's Funniest & Funnier Games</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/tial-video-gear-the-ultimate-12-camera-guide/"><u>Essential Video Gear The Ultimate 12 Camera Guide</u></a></li>
+<li><a href="https://win-online.techidaily.com/how-to-fix-windows-11-ssd-underreporting-maximum-storage-space-issue/"><u>How to Fix Windows 11 SSD Underreporting Maximum Storage Space Issue</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/revolutionary-single-run-3d-printing-process-produces-operable-prosthetic-hands-paving-the-way-for-personalized-limb-fabrication-at-home/"><u>Revolutionary Single-Run 3D Printing Process Produces Operable Prosthetic Hands, Paving the Way for Personalized Limb Fabrication at Home</u></a></li>
+</ul></div>
 

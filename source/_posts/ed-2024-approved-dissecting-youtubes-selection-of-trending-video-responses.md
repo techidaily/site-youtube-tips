@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Dissecting YouTube's Selection of Trending Video Responses\""
-date: 2025-02-11T08:12:00.758Z
-updated: 2025-02-16T01:13:38.514Z
+date: 2025-02-28T07:24:39.622Z
+updated: 2025-03-05T06:28:53.744Z
 tags:
   - ai video
   - ai youtube
@@ -59,27 +59,15 @@ For instance, you may want to check the following links. The 2 URLs lead you to 
 
 Notice the name "lc" in the first URL- that stands for linked comment. YouTube might include this additional parameter. If a reply comment (HR) gets highlighted, the parent comment gets raised to the top.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LdVT_-3gESA?si=_HfjpbUEHSRKTXjt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Part 2: What Does The Highlighted Comment Look Like?
 
 YouTube has been working on improving the navigation of the comment section for videos, and highlighted comments are one of them. These comments appear even above the pinned comments on a video. The label of a highlighted comment is displayed above the commentator's name in a light grey shade.
 
 ![YouTube Highlighted Comments](https://images.wondershare.com/filmora/article-images/youtube-highlighted-comments.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/3C51hzX46eY?si=o5qiDSkT7mXUGm3F" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 YouTube labels comment replies as well and call it "Highlighted Reply." You can see this tag above the replier's name in the same color tone.
 
 ![YouTube Highlighted Reply](https://images.wondershare.com/filmora/article-images/youtube-highlighted-reply.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/_7AYCS7zBU0?si=7R9oIpE4hyEbtk3x" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Part 3: How to Make My Comment Highlighted?
 
@@ -97,10 +85,6 @@ Suppose you are a viewer who is going through the comments section of a video. I
 
 ![YouTube Highlighted Comments](https://images.wondershare.com/filmora/article-images/youtube-highlighted-comments.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/_dOmuXhsV6Y?si=aT6vgPbDx4ajjvdr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 On the other hand, for a YouTuber, getting access to the comment URL is relatively straightforward. The host will get a notification on his or her registered email-id when a viewer publishes a comment on their posted video. You will find the link to the highlighted comment in the notification
 
 ## Part 5: How to Reply to Highlighted Comments?
@@ -110,10 +94,6 @@ Replying to "highlighted comments" on your YouTube channel is pretty easy since 
 If you click the notification bell icon, whenever a viewer drops a new comment on one of your videos, YouTube will send you a notification via email. On opening the email, you will find a clickable "Reply" option. Or else, if you follow the comment section in the YouTube Dashboard, you can directly view or reply to highlighted comments from here as well.
 
 Have you ever wondered why a highlighted comment always shows at the top of the comment list? Both the above options will lead you to the comment thread on YouTube. To help you find the new activity easily, it appears with the highlight tag on it. The purpose is to remind you that you are here for that specific comment.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/td3ojuzhloY?si=N_maQNiJWrJp7XZl" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Part 6: How to Remove Highlighted Comments?
 
@@ -180,18 +160,24 @@ Follow @Liza Brown
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://vimeo-videos.techidaily.com/new-in-2024-streamlining-vimeo-uploads-from-moviemaker-projects/"><u>[New] In 2024, Streamlining Vimeo Uploads From Moviemaker Projects</u></a></li>
-<li><a href="https://extra-support.techidaily.com/new-selecting-the-superior-cloud-storage-hub/"><u>[New] Selecting the Superior Cloud Storage Hub</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/aried-ideas-for-daily-vlogging-talks/"><u>[New] Varied Ideas for Daily Vlogging Talks</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-breakthrough-techniques-in-youtube-content-creation-for-2024/"><u>[Updated] Breakthrough Techniques in YouTube Content Creation for 2024</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-chilling-yet-heating-top-5-winter-scenes-for-vids-for-2024/"><u>[Updated] Chilling Yet Heating Top 5 Winter Scenes for Vids for 2024</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/updated-exploring-the-refinements-of-sonys-s6500-bdp-model/"><u>[Updated] Exploring the Refinements of Sony's S6500 BDP Model</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-mastering-yourselfie-instagrams-verification-essentials-for-2024/"><u>[Updated] Mastering Yourselfie Instagram's Verification Essentials for 2024</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-the-ultimate-collection-of-youtube-beauty-icons-to-admire-for-2024/"><u>[Updated] The Ultimate Collection of YouTube Beauty Icons to Admire for 2024</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/approved-avoiding-poverty-earning-in-beauty-media/"><u>2024 Approved Avoiding Poverty Earning in Beauty Media</u></a></li>
-<li><a href="https://vimeo-videos.techidaily.com/2024-approved-climbing-the-popularity-ladder-with-staff-chosen-videos-at-vimeo/"><u>2024 Approved Climbing the Popularity Ladder with Staff-Chosen Videos at Vimeo</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/approved-stepwise-strategy-for-transforming-your-youtube-videos-with-imovie/"><u>2024 Approved Stepwise Strategy for Transforming Your YouTube Videos with iMovie</u></a></li>
-<li><a href="https://android-frp.techidaily.com/how-to-bypass-motorola-moto-g-stylus-5g-2023-frp-in-3-different-ways-by-drfone-android/"><u>How To Bypass Motorola Moto G Stylus 5G (2023) FRP In 3 Different Ways</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/24-budget-friendly-bundles-startup-channels-for-newcomers/"><u>In 2024, Budget-Friendly Bundles Startup Channels for Newcomers</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/new-breaking-the-silence-crafting-powerful-film-dialogues-for-2024/"><u>[New] Breaking the Silence Crafting Powerful Film Dialogues for 2024</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/new-sky-archives-reimagined-exploring-the-best-cloud-vaults-of-2024/"><u>[New] Sky Archives Reimagined Exploring the Best Cloud Vaults of 2024</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/new-the-ultimate-guide-to-iphone-landscape-photography-excellence/"><u>[New] The Ultimate Guide to iPhone Landscape Photography Excellence</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-2024-approved-professional-insights-top-10-capture-cards-for-youtube-enthusiasts/"><u>[Updated] 2024 Approved Professional Insights Top 10 Capture Cards for YouTube Enthusiasts</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-effortless-media-incorporation-youtube-to-slides-for-2024/"><u>[Updated] Effortless Media Incorporation YouTube to Slides for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-principles-of-filming-inspirational-daily-living-documentaries-for-2024/"><u>[Updated] Principles of Filming Inspirational Daily Living Documentaries for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-streamer-profitability-analysis-and-verification/"><u>[Updated] Streamer Profitability Analysis and Verification</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-streamlining-visual-storytelling-with-youtube-videos-for-2024/"><u>[Updated] Streamlining Visual Storytelling with YouTube Videos for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/approved-achieving-youtube-financial-goals-via-viewer-statistics/"><u>2024 Approved Achieving Youtube Financial Goals via Viewer Statistics</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/best-free-mac-pdf-editor-software-top-10-recommendations/"><u>Best Free Mac PDF Editor Software: Top 10 Recommendations</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ring-top-notch-audio-without-microphone-dependency-for-2024/"><u>Capturing Top-Notch Audio Without Microphone Dependency for 2024</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-5-ways-to-track-oppo-a1-5g-without-app-drfone-by-drfone-virtual-android/"><u>In 2024, 5 Ways to Track Oppo A1 5G without App | Dr.fone</u></a></li>
+<li><a href="https://apple-account.techidaily.com/in-2024-forgot-your-apple-id-password-and-email-from-apple-iphone-14-pro-heres-the-best-fixes-by-drfone-ios/"><u>In 2024, Forgot Your Apple ID Password and Email From Apple iPhone 14 Pro? Heres the Best Fixes</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/in-depth-analysis-of-the-latest-apple-tv-4k-series-6-model/"><u>In-Depth Analysis of the Latest Apple TV 4K Series 6 Model</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/seamless-channel-transitions-with-customized-end-screens-for-2024/"><u>Seamless Channel Transitions with Customized End Screens for 2024</u></a></li>
+<li><a href="https://discover-data.techidaily.com/simple-steps-for-seamless-backups-on-google-cloud-storage/"><u>Simple Steps for Seamless Backups on Google Cloud Storage</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/cket-views-with-these-essential-youtube-seo-hacks/"><u>Skyrocket Views with These Essential YouTube SEO Hacks</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/-videos-compiling-free-youtube-channel-frames-for-2024/"><u>Vogue Videos Compiling FREE YouTube Channel Frames for 2024</u></a></li>
+<li><a href="https://video-creation-software.techidaily.com/2024mkvtop5/"><u>オススメの2024年最新MKV再生ソフトウェアTOP5</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Masterclass for Viral Talent\""
-date: 2024-08-15T22:45:27.228Z
-updated: 2024-08-16T22:45:27.228Z
+date: 2025-02-27T11:02:46.175Z
+updated: 2025-03-05T11:04:23.459Z
 tags:
   - ai video
   - ai youtube
@@ -59,9 +59,6 @@ _Tess takes you to some of her favorite places in Dumbo._
 
 Dumbo is home to an interesting mix of ‘past’ and ‘future’. The creators who attended the summit probably had a lot of fun exploring it.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068425/7443" target="_top" id="2068425"><img src="//a.impactradius-go.com/display-ad/7443-2068425" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068425/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## 2\. Post Cards
 
 One of the major benefits of attending this summit would have been networking with other creators, but because of how busy everyone was and how awkward it can be to arrange ‘bumping into’ someone YouTube created a way for creators to send each other notes. All they had to do was write a note on one of the postcards YouTube provided them with and stick it in one of the red mailboxes at the event. YouTube took care of making sure the person it was addressed to got it.
@@ -70,9 +67,6 @@ One of the major benefits of attending this summit would have been networking wi
 
 S’well bottles are stainless steel beverage containers that keep drinks hot or cold. They retail for around $45\. YouTubers invited to the Creator Summit received ones with YouTube branding on them. A good water bottle is a convention/conference essential, so this was a very practical gift.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BSysTools%2BPDF%2BUnlocker"><img src="https://www.systoolsgroup.com/box/pdf-unlocker.png" border="0"></a>
-<!-- affiliate ads end -->
 ## 4\. Branded slippers
 
 To help them relax after long days at the summit, YouTube provided creators with YouTube-branded slippers. They look pretty comfy. Plus, now every time these YouTubers look down at their feet they’ll be reminded to go make some videos.
@@ -81,30 +75,10 @@ To help them relax after long days at the summit, YouTube provided creators with
 
 _thinknoodles wearing his YouTube slippers._
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4693127&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.videosoftdev.com/images/video_editor/screenshots/1.jpg" border="0">
-VSDC Pro Video Editor is a light professional non-linear video editing suite for creating a movie of any complexity. It supports the most popular video/audio formats and codecs, including 4K, HD and GoPro videos. Preconfigured profiles make the creation of videos for various multimedia and mobile devices absolutely hassle-free.
-
-Key features:
-
-•	Import from any devices and cams, including GoPro and drones. All formats supported. Сurrently the only free video editor that allows users to export in a new H265/HEVC codec, something essential for those working with 4K and HD.
-•	Everything for hassle-free basic editing: cut, crop and merge files, add titles and favorite music
-•	Visual effects, advanced color correction and trendy Instagram-like filters   
-•	All multimedia processing done from one app: video editing capabilities reinforced by  a video converter, a screen capture, a video capture, a disc burner and a YouTube uploader
-•	Non-linear editing: edit several files with simultaneously 
-•	Easy export to social networks: special profiles for YouTube, Facebook, Vimeo, Twitter and Instagram
-•	High quality export – no conversion quality loss, double export speed even of HD files due to hardware acceleration
-•	Stabilization tool will turn shaky or jittery footage into a more stable video automatically. 
-•	Essential toolset for professional video editing: blending modes, Mask tool, advanced multiple-color Chroma Key  
-</a>
-<!-- affiliate ads end -->
 ## 5\. Pins, pins, pins
 
 There were numerous custom pins available at different events at the summit. Aside from a complementary Brooklyn and 1 Hotel Brooklyn Bridge (the hotel the creators were staying at) pins, the creators did not receive these in their swag boxes – they had to collect them.
 
-<!-- affiliate ads begin -->
-<a href="https://modlily.sjv.io/c/5597632/2072819/17059" target="_top" id="2072819"><img src="//a.impactradius-go.com/display-ad/17059-2072819" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2072819/17059" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## 6\. Denim jacket
 
 A denim jacket with a play button on it was also in the box. The idea was that creators would collect pins and display them on their new jackets. At the end of the week, they would have a great souvenir reminding them of every event they attended at the summit.
@@ -118,14 +92,8 @@ Most creators here on Filmora are still trying to grow their channels, but one d
 Want to join the YouTube Creator Summit in the future? We all know that there is a long way to go, but we can start making good YouTube videos now. Remember to use [Filmora](https://tools.techidaily.com/wondershare/filmora/download/) with the templates and effects to touch up your YouTube videos.
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4537546&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4b0a0290ad7df100b77e86839989a75e/products/7_copy_2_2_hdpro.png" border="0">HD Video Converter Factory Pro</a>
-<!-- affiliate ads end -->
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
-<!-- affiliate ads begin -->
-<a href="https://natural-cycles.sjv.io/c/5597632/2072199/17885" target="_top" id="2072199"><img src="//a.impactradius-go.com/display-ad/17885-2072199" border="0" alt="" width="300" height="300"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2072199/17885" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -133,14 +101,11 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -149,6 +114,26 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-tips.techidaily.com/024-approved-crafting-easy-youtube-animation-subscribe-bars-in-filmora/"><u>[New] 2024 Approved Crafting Easy YouTube Animation Subscribe Bars in Filmora</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ow-to-make-a-playlist-on-youtube-for-2024/"><u>[New] How to Make a Playlist on YouTube for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/n-2024-navigate-your-way-to-partner-status-via-a-quick-10k-view-achievement/"><u>[New] In 2024, Navigate Your Way to Partner Status via a Quick 10K View Achievement</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-youtube-versus-dailymention-identifying-key-gaps/"><u>[New] In 2024, YouTube Versus DailyMention Identifying Key Gaps</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/he-ultimate-youtube-calendar-events-beyond-vidcon-for-2024/"><u>[New] The Ultimate Youtube Calendar Events Beyond VidCon for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-2024-approved-comparative-content-crusade-analyzing-your-videos-against-others/"><u>[Updated] 2024 Approved Comparative Content Crusade Analyzing Your Videos Against Others'</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/updated-radiant-reality-tiles-photographic-collages-that-sparkle/"><u>[Updated] Radiant Reality Tiles Photographic Collages That Sparkle</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-seamless-google-meet-integration-for-youtube-enthusiasts-for-2024/"><u>[Updated] Seamless Google Meet Integration for YouTube Enthusiasts for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-the-growth-odyssey-of-ajey-nagar-on-youtube-for-2024/"><u>[Updated] The Growth Odyssey of Ajey Nagar on YouTube for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-video-fabrication-suite-for-2024/"><u>[Updated] Video Fabrication Suite for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-youtube-studio-editor-unveiled-ultimate-editing-companion-for-2024/"><u>[Updated] YouTube Studio Editor Unveiled Ultimate Editing Companion for 2024</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/4-pro-strategies-to-record-facebook-calls-professionally/"><u>4 Pro Strategies to Record Facebook Calls Professionally</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/acer-wifi-driver-free-download-quickly-and-easily/"><u>Acer WiFi Driver | Free Download | Quickly & Easily</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/expert-evaluation-why-ring-video-doorbell-2-reigns-supreme-in-home-safety/"><u>Expert Evaluation: Why Ring Video Doorbell 2 Reigns Supreme in Home Safety</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/harmony-through-communication-multilingual-relationship-guide/"><u>Harmony Through Communication: Multilingual Relationship Guide</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/how-to-enable-usb-debugging-on-a-locked-tecno-camon-30-pro-5g-phone-by-drfone-android/"><u>How To Enable USB Debugging on a Locked Tecno Camon 30 Pro 5G Phone</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/in-2024-tech-tools-for-distance-podcasting/"><u>In 2024, Tech Tools for Distance Podcasting</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-top-apps-and-online-tools-to-track-poco-c51-phone-withwithout-imei-number-by-drfone-android/"><u>In 2024, Top Apps and Online Tools To Track Poco C51 Phone With/Without IMEI Number</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/the-truth-about-the-rattling-sounds-from-noctuas-new-nh-d15-g2-air-cooler-a-comprehensive-look/"><u>The Truth About the Rattling Sounds From Noctua's New NH-D15 G2 Air Cooler - A Comprehensive Look</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Luminous Techniques for Engaging Vlogs\""
-date: 2024-08-08T11:37:24.725Z
-updated: 2024-08-09T11:37:24.725Z
+date: 2025-02-26T17:51:54.142Z
+updated: 2025-03-05T02:25:49.660Z
 tags:
   - ai video
   - ai youtube
@@ -18,9 +18,6 @@ thumbnail: https://thmb.techidaily.com/8605278b5d648a8e727674b42f156215fdccc4c56
 
 # Lighting Tips for Vlogging: How to Light
 
-<!-- affiliate ads begin -->
-<a href="https://imp.i110150.net/c/5597632/924299/11305" target="_top" id="924299"><img src="//a.impactradius-go.com/display-ad/11305-924299" border="0" alt="" width="520" height="100"/></a>
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
@@ -33,9 +30,6 @@ Going outside and using natural light is the cheapest way to get a lot of light 
 
 ## Video Lighting Basics: Three Point Lighting
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=2067133&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pearlmountainsoft.com/n_img/product/gcb/banScrn.jpg" border="0">Greeting Card Builder</a>
-<!-- affiliate ads end -->
 ![Lighting for YouTube Video](https://images.wondershare.com/filmora/article-images/three-point-lighting.jpg)
 
 The most common technique of lighting a scene is called **three-point lighting**. It involves three different sources of light in the shot and is used by portrait photographers, which is also a great method for lighting your vlog.
@@ -50,14 +44,8 @@ The **fill light** is less bright than the primary source of light and it is pla
 
 The final step to creating three point lighting is to set up another light behind you. This is your 'Backlight', and it will help you stand out from your background. **Backlight or Hair light** is always placed behind and above the subject to create separation between the subject in the shot and the background. This basic lighting technique can be applied in almost every scene you shoot, which is why it is important to keep an open mind and to continue experimenting with possible light setups.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075471/7443" target="_top" id="2075471"><img src="//a.impactradius-go.com/display-ad/7443-2075471" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075471/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Watch Video! Top Lighting Tips for Vlogging
 
-<!-- affiliate ads begin -->
-<a href="https://natural-cycles.sjv.io/c/5597632/2072199/17885" target="_top" id="2072199"><img src="//a.impactradius-go.com/display-ad/17885-2072199" border="0" alt="" width="300" height="300"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2072199/17885" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Lightning Tips for Aspiring YouTube Videographers
 
 Becoming the master of light will take some time and practice, so it is crucial to remain curious and anxious to learn new tricks throughout that process if you want to continually become better. These tips will help you make the first steps on that journey.
@@ -88,18 +76,12 @@ If your strong main light is too hard on your eyes then you can use a translucen
 
 If you are hosting a **beauty vlog** then you might consider a slightly different set up. Instead of having your main light off to one side set it up directly in front of you so your entire face is lit evenly. It is still a good idea to use fill lights in this set up to give you some dimension, and a backlight is even more essential for helping you stand out from the background. The even light hitting your face will also make you look flat if you do not use a backlight.
 
-<!-- affiliate ads begin -->
-<a href="https://store.bitdefender.com/affiliate.php?ACCOUNT=BITLATIN&AFFILIATE=108875&PATH=http%3A%2F%2Fwww.bitdefender.com%2Fbusiness%3FAFFILIATE%3D108875%26RESOURCE%3D30%2525%2BOff%2Ball%2BGravityZone%2BProducts"><img src="https://www.bitdefender.com/content/dam/bitdefender/business/campaign/1200X628.png" border="0"></a>
-<!-- affiliate ads end -->
 ![lighting tips](https://images.wondershare.com/filmora/article-images/lighting-tips02.JPG)
 
 If you are using all of the lighting options available to you and your video still looks too dark then you can try brightening it by **opening up the aperture of your camera** lens/setting a lower f-stop. Letting more light into your camera can help your footage look brighter, although you also run the risk of making things look overexposed/ washed out if you are not careful.
 
 If you are stuck shooting in **low light conditions** it is best to use a lens with a wider aperture/lower f-stop. This will make the best of the light you do have.
 
-<!-- affiliate ads begin -->
-<a href="https://order.glarysoft.com/order/checkout.php?PRODS=4535075&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/GU-500_672.png" border="0">Glary Utilities PRO -  Premium all-in-one utility to clean, speed up, maintain and protect your PC</a>
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 Richard Bennett
@@ -108,14 +90,11 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -124,6 +103,22 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-tips.techidaily.com/irect-music-upload-top-tools-for-turning-spotify-into-youtube-listings-for-2024/"><u>[New] Direct Music Upload Top Tools for Turning Spotify Into YouTube Listings for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-efficiently-upload-and-render-youtube-videos-with-precision/"><u>[New] In 2024, Efficiently Upload and Render YouTube Videos with Precision</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-2024-approved-improving-zoom-hd-quality-quick-fixes/"><u>[Updated] 2024 Approved Improving Zoom HD Quality Quick Fixes</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-in-2024-master-the-art-of-cutting-a-video-editors-handbook-for-instagram/"><u>[Updated] In 2024, Master the Art of Cutting A Video Editor's Handbook for Instagram</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-in-2024-master-the-art-of-youtube-thumbnails-in-minutes/"><u>[Updated] In 2024, Master the Art of YouTube Thumbnails in Minutes</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/approved-cut-the-boring-watch-these-15-hilarious-youtube-bites/"><u>2024 Approved Cut the Boring, Watch These 15 Hilarious YouTube Bites</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/2024-approved-dial-up-dislikes-flip-the-script-with-square-content-creation/"><u>2024 Approved Dial Up Dislikes? Flip the Script with Square Content Creation</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/2024-approved-humorous-craftsmanship-access-without-expense/"><u>2024 Approved Humorous Craftsmanship Access Without Expense</u></a></li>
+<li><a href="https://howto.techidaily.com/7-solutions-to-fix-chrome-crashes-or-wont-open-on-nokia-c12-pro-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>7 Solutions to Fix Chrome Crashes or Wont Open on Nokia C12 Pro | Dr.fone</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/-but-impactful-which-social-platform-leads-for-short-video-content-for-2024/"><u>Brief but Impactful Which Social Platform Leads for Short Video Content for 2024</u></a></li>
+<li><a href="https://apple-account.techidaily.com/icloud-separation-how-to-disconnect-iphone-15-pro-max-and-ipad-by-drfone-ios/"><u>iCloud Separation How To Disconnect iPhone 15 Pro Max and iPad</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-how-to-use-special-features-virtual-location-on-tecno-pova-6-pro-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How To Use Special Features - Virtual Location On Tecno Pova 6 Pro 5G? | Dr.fone</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/in-2024-your-path-to-a-unique-auditory-experience-customizing-ringtone-and-sound-on-android/"><u>In 2024, Your Path to a Unique Auditory Experience Customizing Ringtone & Sound on Android</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/navigational-tools-for-locating-program-storage-on-pc/"><u>Navigational Tools for Locating Program Storage on PC</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/s-best-short-videos-download-now-free-for-2024/"><u>World's Best Short Videos – Download Now! (Free) for 2024</u></a></li>
+</ul></div>
 

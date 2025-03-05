@@ -1,7 +1,7 @@
 ---
 title: "\"[New] In 2024, Self-Animated Wonders  Cutting Edge Techniques for You\""
-date: 2025-02-09T09:06:13.180Z
-updated: 2025-02-16T00:41:27.567Z
+date: 2025-02-26T02:14:54.754Z
+updated: 2025-03-05T04:40:09.325Z
 tags:
   - ai video
   - ai youtube
@@ -51,17 +51,9 @@ In this post, we’re going to kick things up a bit. Here is a list of places wh
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/HtM7d4dpN1I?si=2vN_xgVGD4eYGORu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **[Mt. Mograph](https://www.youtube.com/channel/UCSUSgx9qc%5FNydrOL59xbJIA)**
 
 On this YouTube channel, motion graphics specialist Matt offers free animation tutorials using a variety of programs including Adobe After Effects and Cinema 4D. His lessons are for a range of skill levels, from beginner to advanced. If you are just starting out then Mt.Mograph is a great resource.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/it8VkxDUdAc?si=ef6VZWR7kW4P9ikh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **[Richard Harrington on Lynda](https://www.lynda.com/Rich-Harrington/120-1.html)**
 
@@ -69,27 +61,15 @@ Lynda isn’t free, but the 10-day free trial period is definitely long enough f
 
 What’s great about this course is that it assumes you have no animation experience, and it walks you through the main thing a lot of YouTubers want to learn animation for – creating an animated logo.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/8dH3yHH9IX8?si=geiW5KbIljSFT9pz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **[Bloop Animation](https://www.bloopanimation.com/)**
 
  Most of the video animation courses on this site are paid, but they have a lot of cool free tutorials as well. The focus is more on animating figures/cartoons than video effects, but if you have any interest in animation more generally then this is a great place to start learning. They even have a free ebook you can download which is targeted at beginners.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/dKjioJQaUh8?si=Ls_AeuvGsSyL5ny2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **[Video Copilot](http://www.videocopilot.net/)**
 
 This site has a huge number of free After Effects tutorials. There are basic introductory lessons, and really advanced classes on creating custom cinematic FX, like explosions. There’s even a playlist on title design, which will be useful for anyone looking to create an intro sequence for their videos.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aIx71tPaWKg?si=lG5OiUe-M6eBJf5b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -112,22 +92,20 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://video-capture.techidaily.com/new-capturing-unrooted-audio-4-easy-steps-for-android-for-2024/"><u>[New] Capturing Unrooted Audio 4 Easy Steps for Android for 2024</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/nhancing-video-appeal-mac-thumbnails-tutorial/"><u>[New] Enhancing Video Appeal Mac Thumbnails Tutorial</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/n-2024-monetizing-with-youtube-avg-revenue-from-an-ad/"><u>[New] In 2024, Monetizing with Youtube Avg Revenue From An Ad?</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/n-2024-turning-tides-creative-methods-to-flip-your-youtube-video/"><u>[New] In 2024, Turning Tides Creative Methods to Flip Your YouTube Video</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/updated-2024-approved-acethinker-screen-recorder-review/"><u>[Updated] 2024 Approved AceThinker Screen Recorder Review</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-avoiding-blur-techniques-for-hand-held-stability/"><u>[Updated] Avoiding Blur Techniques for Hand-Held Stability</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-boosting-narrative-pace-in-vlogging-through-jump-cuts/"><u>[Updated] Boosting Narrative Pace in Vlogging Through Jump Cuts</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-deconstructing-the-revenue-stream-of-tseries-in-youtube-economy-for-2024/"><u>[Updated] Deconstructing the Revenue Stream of TSeries in YouTube Economy for 2024</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-in-2024-the-infographic-yearbook-of-2017s-youtube-insights-and-trends/"><u>[Updated] In 2024, The Infographic Yearbook of 2017'S Youtube Insights & Trends</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-the-beauty-bard-in-depth-gear-and-tutorial-roundups/"><u>[Updated] The Beauty Bard In-Depth Gear & Tutorial Roundups</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/approved-quick-tips-for-easy-youtube-thumbnail-acquisition-zero-price/"><u>2024 Approved Quick Tips for Easy YouTube Thumbnail Acquisition – Zero Price</u></a></li>
-<li><a href="https://sound-issues.techidaily.com/effective-techniques-to-restore-airpods-mic-functionality-in-windows-10/"><u>Effective Techniques to Restore AirPods Mic Functionality in Windows 10</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/explore-10-prime-video-editing-apps-for-android-and-pc-for-2024/"><u>Explore 10 Prime Video Editing Apps for Android and PC for 2024</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/how-to-skip-essential-complications-in-win10win11-system/"><u>How to Skip 'Essential' Complications in Win10/Win11 System</u></a></li>
-<li><a href="https://article-tips.techidaily.com/top-10-easy-to-use-drones-kids-edition/"><u>Top 10 Easy-to-Use Drones - Kids Edition</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/top-picks-must-watch-lgbt-films-streaming-on-netflix-in-july-2024/"><u>Top Picks: Must-Watch LGBT Films Streaming on Netflix in July 2024</u></a></li>
-<li><a href="https://techtrends.techidaily.com/what-to-do-when-skype-isnt-working/"><u>What to Do When Skype Isn't Working</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-masterclass-on-uploading-youtube-vids-to-fb-groups/"><u>[New] In 2024, Masterclass on Uploading YouTube Vids to FB Groups</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-in-2024-wisdom-waves-prime-ed-channels-online/"><u>[Updated] In 2024, Wisdom Waves Prime Ed Channels Online</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-in-2024-youtube-shorts-success-top-10-steps-to-stand-out/"><u>[Updated] In 2024, Youtube Shorts Success - Top 10 Steps to Stand Out</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-the-professionals-path-expert-strategies-for-360-youtube-live-broadcasting-for-2024/"><u>[Updated] The Professional's Path Expert Strategies for 360° Youtube Live Broadcasting for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-unlocking-the-mysteries-behind-youtube-wealth-ajey-nagar-edition-for-2024/"><u>[Updated] Unlocking the Mysteries Behind YouTube Wealth - Ajey Nagar Edition for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/approved-personalize-your-youtube-watch-experience-with-alerts-and-notes/"><u>2024 Approved Personalize Your Youtube Watch Experience with Alerts & Notes</u></a></li>
+<li><a href="https://howto.techidaily.com/7-fixes-for-unfortunately-phone-has-stopped-on-samsung-galaxy-m14-5g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>7 Fixes for Unfortunately, Phone Has Stopped on Samsung Galaxy M14 5G | Dr.fone</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ning-distinctive-denouements/"><u>Designing Distinctive Denouements</u></a></li>
+<li><a href="https://howto.techidaily.com/fixes-for-apps-keep-crashing-on-poco-x6-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Fixes for Apps Keep Crashing on Poco X6 | Dr.fone</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-recommended-best-applications-for-mirroring-your-honor-90-screen-drfone-by-drfone-android/"><u>In 2024, Recommended Best Applications for Mirroring Your Honor 90 Screen | Dr.fone</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/in-2024-unleashing-your-creativity-in-podcast-naming-a-comprehensive-guide-plus-examples/"><u>In 2024, Unleashing Your Creativity in Podcast Naming A Comprehensive Guide + Examples</u></a></li>
+<li><a href="https://buynow-help.techidaily.com/most-comfortable-vertical-gaming-and-office-mice-in-asterisk-2024/"><u>Most Comfortable Vertical Gaming and Office Mice in Asterisk 2024</u></a></li>
+<li><a href="https://techtrends.techidaily.com/troubleshooting-msodll-solutions-for-missing-or-inaccessible-files/"><u>Troubleshooting Mso.dll: Solutions for Missing or Inaccessible Files</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/twittrek-toolkit-a-comprehensive-approach-to-saving-tweets-visuals-for-2024/"><u>TwitTrek Toolkit A Comprehensive Approach to Saving Tweets' Visuals for 2024</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/upcoming-autumn-releases-in-depth-look-at-apples-newest-additions-to-iphone-ipad-mac-and-integration-of-ai-features-insights-from-zdnet/"><u>Upcoming Autumn Releases: In-Depth Look at Apple's Newest Additions to iPhone, iPad, Mac & Integration of AI Features - Insights From ZDNet</u></a></li>
 </ul></div>
 

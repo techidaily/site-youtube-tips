@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Step-by-Step  Changing the State of Your YouTube Comments\""
-date: 2024-08-08T11:37:13.358Z
-updated: 2024-08-09T11:37:13.358Z
+date: 2025-03-03T23:27:53.151Z
+updated: 2025-03-05T12:41:40.519Z
 tags:
   - ai video
   - ai youtube
@@ -56,10 +56,6 @@ To turn on comments on **all the videos on your YouTube channel**, you can follo
 
 Use the method explained above to get to the channel’s **Advanced settings** box. Select the **No, set this channel as not made for kids. I never upload content that’s made for kids** radio button. Click **SAVE** to save the changes.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=30901410&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/copy_1_copy_vMixCallScreenshot1-large.jpg" border="0"> vMix Pro - Software based live production. vMix Pro includes everything in vMix 4K plus 8 channels of Replay and 8 vMix Call 
-This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
-<!-- affiliate ads end -->
 ![Turn on YouTube Channel Comments](https://images.wondershare.com/filmora/article-images/turn-on-channel-comments-advanced-settings.jpg)
 
 #### 2\. Define Acceptable Comment Types
@@ -72,9 +68,6 @@ Click the **Settings** icon from the bottom of the left pane one more time. On t
 
 Back on the **YouTube Studio** page, click **Content** from the left pane. From the right section, check the **Video** box at the top of the list to select all the videos the channel has. Click **Edit** from the column header, and click **Comments** from the menu that comes up. From the **New value** drop-down list, choose your preferred allowance option for the comments, click **UPDATE VIDEOS** from the upper-right area, check the **I understand the implications of this action** box, and click **UPDATE VIDEOS** to allow comments on all the videos of the channel.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4940317&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/333ac5d90817d69113471fbb6e531bee/sps-partnership-728x90eng.png" border="0"></a>
-<!-- affiliate ads end -->
 ![Turn on or off YouTube content commnets settings](https://images.wondershare.com/filmora/article-images/turn-on-off-channel-content-comments-settings.jpg)
 
 #### **Additional Info about Comments Options**
@@ -97,9 +90,6 @@ Selecting this option holds all the comments from all the users, and waits for y
 
 When this option is selected, no one can post a comment to the video(s) whatsoever.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4708689&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/uppic/audible-converter-interface.png" border="0">Epubor Audible Converter for Win： Download and convert Audible AAXC/AA/AAX to MP3 with 100% original quality preserved.</a>
-<!-- affiliate ads end -->
 ## Part 2: Turn on or Turn off Comments for Specific Videos
 
 As you might have noticed, any video that is marked as ‘Made for kids’ doesn’t allow users to post comments. You can exploit this feature to enable or disable commenting on specific YouTube videos as well.
@@ -118,9 +108,6 @@ Hover the mouse over the target video in the right window, and click the **Detai
 
 From under the **Audience** section in the right window of the **Video details** page, select the **No, it’s not made for kids** radio button. Next, click **SHOW MORE**, scroll down to the **Comments and ratings** section, and choose your preferred privacy option from the **Comment visibility** drop-down list. Click **SAVE** from the upper-right area to save the changes.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082532/7443" target="_top" id="2082532"><img src="//a.impactradius-go.com/display-ad/7443-2082532" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082532/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Turn on or turn off comments for specific youtube video](https://images.wondershare.com/filmora/article-images/turn-on-off-comments-for-specific-youtube-video.jpg)
 
 **Note:** To learn **how to disable comments on YouTube** for specific video, you can repeat the above steps, and choose the **Yes, it’s made for kids** radio button from the **Audience** section when you are on the **Video details** page.
@@ -139,9 +126,6 @@ At the time of this writing, YouTube doesn’t allow anyone to post a comment on
 
 You can go to **YouTube Studio** \> **Settings** \> **Community**, and on the **Automated Filters** tab in the right window, add the words to block in the **Blocked words** field. You can add multiple words by separating them with commas. To block the comments with links, check the **Block links** box. Click **SAVE** to save the changes.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4530091&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pearlmountainsoft.com/n_img/product/cit_win/banScrn.jpg" border="0">CollageIt Pro</a>
-<!-- affiliate ads end -->
 ![Block YouTube   commnets](https://images.wondershare.com/filmora/article-images/block-users-youtube-comment.jpg)
 
 #### 4\. If I turn comments off and back on again, will the old comments come back?
@@ -156,9 +140,6 @@ That depends on the nature of the comments. For instance, if you modify the sett
 
 It is easy to understand **how to turn on comments on YouTube**. The best thing is, the comments are enabled by default, and if you don’t need them, you can simply disable them by configuring the videos or the entire channel as ‘Made for kids’. If the comments on any video were enabled previously, and are disabled later on, the existing comments automatically disappear. They reappear when the comments on the video are reenabled.
 
-<!-- affiliate ads begin -->
-<a href="https://purchase.swifdoo.com/order/checkout.php?PRODS=40002580&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8b932759a5a04ddb34bf79e3f9072e4b/products/3_Product%20box%20white-1024x1024.png" border="0">SwifDoo PDF 2-Year Plan</a>
-<!-- affiliate ads end -->
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
 
 Liza Brown
@@ -167,14 +148,11 @@ Liza Brown is a writer and a lover of all things video.
 
 Follow @Liza Brown
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -183,6 +161,26 @@ Follow @Liza Brown
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-links.techidaily.com/new-frosty-frontiers-highlighting-the-2022-olympic-games/"><u>[New] Frosty Frontiers Highlighting the 2022 Olympic Games</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-in-2024-reddit-poster-canvas-ratio/"><u>[New] In 2024, Reddit Poster Canvas Ratio</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-the-art-of-youtube-editing-a-compreenasive-guidebook/"><u>[New] In 2024, The Art of YouTube Editing A Compreenasive Guidebook</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/nnovators-intertwining-video-with-melodious-images-for-2024/"><u>[New] Innovators Intertwining Video with Melodious Images for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/nap-in-hours-stars-quick-hit-video-winners/"><u>[New] Snap-in-Hours Stars Quick Hit Video Winners</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-2024-approved-charting-the-course-to-prodigy-status-for-ajey-carryminati/"><u>[Updated] 2024 Approved Charting the Course to Prodigy Status for Ajey (CarryMinati)</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-2024-approved-easy-path-from-spotify-to-youtube-discover-the-best-playlist-tools/"><u>[Updated] 2024 Approved Easy Path From Spotify to YouTube Discover the Best Playlist Tools</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-exploring-video-marketing-youtube-or-tiktok-in-2024/"><u>[Updated] Exploring Video Marketing YouTube or TikTok, In 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-the-best-value-for-money-11-no-cost-name-creation-tips/"><u>[Updated] In 2024, The Best Value for Money 11 No-Cost Name Creation Tips</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-quick-growing-yt-sources-sparking-mental-flourish/"><u>[Updated] Quick-Growing YT Sources Sparking Mental Flourish</u></a></li>
+<li><a href="https://data-wizards.techidaily.com/data-redemption-demystified-insights-from-a-leading-expert-singh/"><u>Data Redemption Demystified: Insights From a Leading Expert, Singh</u></a></li>
+<li><a href="https://driver-download.techidaily.com/download-logitech-wireless-mouse-software-compatible-with-windows/"><u>Download Logitech Wireless Mouse Software Compatible with Windows</u></a></li>
+<li><a href="https://network-issues.techidaily.com/fixing-disoriented-windows-screen-placement/"><u>Fixing Disoriented Window's Screen Placement</u></a></li>
+<li><a href="https://driver-download.techidaily.com/1722975115691-gigabyte-ethernet-driver-installation-guide-secure-it-today/"><u>Gigabyte Ethernet Driver Installation Guide – Secure It Today</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/-substitutes-to-explore-top-7-choices/"><u>Movie Substitutes to Explore - Top 7 Choices</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/navigating-the-realm-of-sponsorships-on-instagram-influencer-edition/"><u>Navigating the Realm of Sponsorships on Instagram Influencer Edition</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/next-gen-ai-synergy-googles-palm-2-and-bard-upgrade/"><u>Next-Gen AI Synergy: Google's PaLM 2 & Bard Upgrade</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ing-for-starred-youtube-conversations/"><u>Scouting for Starred YouTube Conversations</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/top-5-from-vivo-y56-5g-to-iphone-contacts-transfer-apps-and-software-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>Top 5 from Vivo Y56 5G to iPhone Contacts Transfer Apps and Software | Dr.fone</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "[Updated] The Simple Way to Control Comment Functionality in YouTube"
-date: 2025-02-08T23:48:48.591Z
-updated: 2025-02-15T16:54:00.410Z
+date: 2025-02-28T23:01:11.453Z
+updated: 2025-03-05T04:03:14.295Z
 tags:
   - ai video
   - ai youtube
@@ -45,10 +45,6 @@ Use your favorite web browser to go to YouTube and sign in to your Google accoun
 
 ![ Find YouTube Studio options](https://images.wondershare.com/filmora/article-images/find-youtube-studio-option.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/pRR3Oq03EuE?si=ZTy8-WH0AesA9zRh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 #### Step 2: Go to Channel’s Advanced Settings
 
 From the bottom of the left pane, click the **Settings** icon, click **Channel** from the **Settings** box that comes up next, and go to **Advanced settings** from the right window.
@@ -66,10 +62,6 @@ To turn on comments on **all the videos on your YouTube channel**, you can follo
 Use the method explained above to get to the channel’s **Advanced settings** box. Select the **No, set this channel as not made for kids. I never upload content that’s made for kids** radio button. Click **SAVE** to save the changes.
 
 ![  Turn on YouTube Channel Comments](https://images.wondershare.com/filmora/article-images/turn-on-channel-comments-advanced-settings.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/0Kr7Dpw0HuM?si=05wWDXdPgmC-oBBE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 #### 2\. Define Acceptable Comment Types
 
@@ -103,10 +95,6 @@ Selecting this option holds all the comments from all the users, and waits for y
 
 When this option is selected, no one can post a comment to the video(s) whatsoever.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/ME5-sAQJVE4?si=ZfcvJSnhQevWtjI0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Part 2: Turn on or Turn off Comments for Specific Videos
 
 As you might have noticed, any video that is marked as ‘Made for kids’ doesn’t allow users to post comments. You can exploit this feature to enable or disable commenting on specific YouTube videos as well.
@@ -128,10 +116,6 @@ From under the **Audience** section in the right window of the **Video details**
 ![ Turn on or turn off comments for specific youtube video](https://images.wondershare.com/filmora/article-images/turn-on-off-comments-for-specific-youtube-video.jpg)
 
 **Note:** To learn **how to disable comments on YouTube** for specific video, you can repeat the above steps, and choose the **Yes, it’s made for kids** radio button from the **Audience** section when you are on the **Video details** page.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/S3Th6oa_isA?si=TTQ013BB9beUM4x6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## FAQs About YouTube Comments
 
@@ -163,10 +147,6 @@ It is easy to understand **how to turn on comments on YouTube**. The best thing 
 
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/OdlXe5RELW0?si=Iz1H1QnLQVw-Eu3e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Liza Brown
 
 Liza Brown is a writer and a lover of all things video.
@@ -188,18 +168,20 @@ Follow @Liza Brown
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-tips.techidaily.com/ndless-viewing-with-iphone-writes-of-video/"><u>[New] Endless Viewing with iPhone' Writes of Video</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ssential-asmr-apps-android-and-ios-edition/"><u>[New] Essential ASMR Apps Android & iOS Edition</u></a></li>
-<li><a href="https://article-files.techidaily.com/new-in-2024-giggle-your-way-comedy-tones-downloads-hubs/"><u>[New] In 2024, Giggle Your Way Comedy Tones Downloads Hubs</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-boosting-traffic-with-smart-youtube-title-and-tag-use-for-2024/"><u>[Updated] Boosting Traffic with Smart YouTube Title & Tag Use for 2024</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/updated-top-4-marvel-intro-makers-online/"><u>[Updated] Top 4 Marvel Intro Makers Online</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-unleashing-video-potential-the-imovie-blueprint-for-youtube-editors/"><u>[Updated] Unleashing Video Potential The iMovie Blueprint for YouTube Editors</u></a></li>
-<li><a href="https://video-capture.techidaily.com/2024-approved-voice-over-strategies-for-powerpoint-success-stories/"><u>2024 Approved Voice-Over Strategies for PowerPoint Success Stories</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ners-guide-to-video-making-mastering-10-straightforward-youtube-concepts-for-2024/"><u>Beginner's Guide to Video Making Mastering 10 Straightforward YouTube Concepts for 2024</u></a></li>
-<li><a href="https://fake-location.techidaily.com/how-to-change-google-play-location-on-htc-u23-pro-drfone-by-drfone-virtual-android/"><u>How to Change Google Play Location On HTC U23 Pro | Dr.fone</u></a></li>
-<li><a href="https://youtube-stream.techidaily.com/in-2024-making-everyday-moments-memorable-on-youtube/"><u>In 2024, Making Everyday Moments Memorable on YouTube</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/24-the-5-best-ways-to-make-money-on-youtube-shorts-today/"><u>In 2024, The 5 Best Ways to Make Money on YouTube Shorts Today</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/transform-your-words-across-languages-utilizing-chatgpt-for-effective-translation-solutions/"><u>Transform Your Words Across Languages: Utilizing ChatGPT for Effective Translation Solutions</u></a></li>
-<li><a href="https://win-rankings.techidaily.com/yl-software-tutorial-easy-steps-for-acquiring-your-first-crypto-assets/"><u>YL Software Tutorial: Easy Steps for Acquiring Your First Crypto Assets</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/024-approved-overcome-artificial-watches-for-natural-views/"><u>[New] 2024 Approved Overcome Artificial Watches for Natural Views</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-expert-tips-for-youtube-channel-aesthetics-finding-optimal-sizes/"><u>[New] In 2024, Expert Tips for YouTube Channel Aesthetics Finding Optimal Sizes</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-in-2024-fcps-ultimate-editing-aid-best-10-plug-ins/"><u>[New] In 2024, FCP's Ultimate Editing Aid Best 10 Plug-Ins</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/onetizing-popularity-pay-per-million-views-for-2024/"><u>[New] Monetizing Popularity Pay Per Million Views for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-crafting-masterpieces-top-meme-templates/"><u>[Updated] Crafting Masterpieces Top Meme Templates</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-in-2024-spark-inspiration-free-soundtracks-to-enhance-projects/"><u>[Updated] In 2024, Spark Inspiration - Free Soundtracks to Enhance Projects!</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-step-by-step-guide-to-elevating-your-channel-brand-growth-in-viewers-for-2024/"><u>[Updated] Step-by-Step Guide to Elevating Your Channel Brand, Growth in Viewers for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/sing-your-subscriber-details-directly-for-2024/"><u>Accessing Your Subscriber Details Directly for 2024</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/exploring-the-dilemma-how-do-we-ensure-ai-adheres-to-our-ethical-standards/"><u>Exploring the Dilemma: How Do We Ensure AI Adheres to Our Ethical Standards?</u></a></li>
+<li><a href="https://howto.techidaily.com/fix-cant-take-screenshot-due-to-security-policy-on-vivo-s18-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Fix Cant Take Screenshot Due to Security Policy on Vivo S18 | Dr.fone</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/in-2024-addressing-ios-and-android-issues-with-fb-messages-video-sharing/"><u>In 2024, Addressing iOS and Android Issues with FB Message's Video Sharing</u></a></li>
+<li><a href="https://blog-min.techidaily.com/mkv-video-in-reihe-umwandeln-schneller-und-einfach-mit-dem-kostenlosen-macx-mkv-codec-umwandler/"><u>MKV-Video in Reihe Umwandeln: Schneller Und Einfach Mit Dem Kostenlosen MacX MKV-Codec-Umwandler</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/proven-ways-to-fix-there-was-a-problem-parsing-the-package-on-samsung-galaxy-a15-5g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Proven Ways to Fix There Was A Problem Parsing the Package on Samsung Galaxy A15 5G | Dr.fone</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ng-channel-growth-with-optimal-video-hashes/"><u>Surging Channel Growth with Optimal Video Hashes</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/unlock-the-full-content-masterful-techniques-to-download-igtv-videos/"><u>Unlock the Full Content Masterful Techniques to Download IGTV Videos</u></a></li>
 </ul></div>
 

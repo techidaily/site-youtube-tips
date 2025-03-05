@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Incorporating Visual Media Into Free Writings\""
-date: 2024-08-15T22:45:00.207Z
-updated: 2024-08-16T22:45:00.207Z
+date: 2025-03-01T17:08:03.603Z
+updated: 2025-03-04T23:10:57.733Z
 tags:
   - ai video
   - ai youtube
@@ -50,41 +50,25 @@ Click on the Insert tab, and then choose the Video option from the Media menu. Y
 
 You can then fine-tune the video playback settings from the Playback tab. Preview the results before you move on to the next slide in your presentation, and make necessary adjustments if you don’t like how the video merged with the text.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.emeditor.com/order/checkout.php?PRODS=4610657&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.emeditor.com/wp-content/uploads/2024/06/emeditor_chat_ai.png" border="0">
-EmEditor is a fast, lightweight, yet extensible, easy-to-use text editor, code editor, CSV editor, and large file viewer for Windows. Both native 64-bit and 32-bit builds are available, and moreover, the 64-bit includes separate builds for SSE2 (128-bit), AVX-2 (256-bit), and AVX-512 (512-bit) instruction sets. New versions support AI-assisted writing.</a>
-<!-- affiliate ads end -->
 ## Part 2: Adding Video to Text in Filmora
 
 Besides presentation software, you can also use video editing software products to add a video to text. Filmora lets you add a video to text in just a few simple steps. You can first make a text video with animation first, and then use the picture in picture feature to add the video to text. Here are the detailed information about how to add a video to text in Filmora.
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082529/7443" target="_top" id="2082529"><img src="//a.impactradius-go.com/display-ad/7443-2082529" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082529/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 You should start by creating a new project in Filmora and importing the video you want to add to the text into the project. Click on the Titles tab, and choose the title that matches the visual style of your project.
 
 ![Add video to text - Filmora9](https://images.wondershare.com/filmora/article-images/add-title-effects.jpg)
-<!-- affiliate ads begin -->
-<a href="https://vapordna.pxf.io/c/5597632/1494880/17238" target="_top" id="1494880"><img src="//a.impactradius-go.com/display-ad/17238-1494880" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1494880/17238" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Set the preferred duration of the title by dragging one of its ends to the left or right after you place it on the timeline, and then double-click on it to customize it. Click on the Advanced button once the Text tab opens and insert the text into the Input Text box.
 
 ![Add video to text - Filmora9 Advanced Editing](https://images.wondershare.com/filmora/article-images/make-text-video-advanced-text-edit.jpg)
-<!-- affiliate ads begin -->
-<a href="https://zonlipartnershipprogram.pxf.io/c/5597632/1821134/17882" target="_top" id="1821134"><img src="//a.impactradius-go.com/display-ad/17882-1821134" border="0" alt="" width="320" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1821134/17882" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Proceed to select a font and adjust the text size before deciding if you want to [animate the text](https://tools.techidaily.com/wondershare/filmora/download/). When done, you should export the title as a video file, and then import it back into your project.
 
 Now it’s time to add the text video and the background video to the project media library, and then place the two videos one above the other. Since we’re adding video to text, the text video should be placed above the background video.
 
 ![Add video to text - Filmora9 Compositing](https://images.wondershare.com/filmora/article-images/compositing-video-9.jpg)
-<!-- affiliate ads begin -->
-<a href="https://boody-eco-wear.pxf.io/c/5597632/1572622/13846" target="_top" id="1572622"><img src="//a.impactradius-go.com/display-ad/13846-1572622" border="0" alt="" width="1000" height="1298"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1572622/13846" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Click on the video that contains text to gain access to the Video tab of the Editor panel and then expand the Compositing menu. Change the Blending Mode to Multiply, and the text in the overlaying video should be filled with the parts of the footage from the video below it.
 
@@ -97,13 +81,6 @@ There are so many different ways to create visually striking content, and adding
 Merging text with video is equally easy in PowerPoint and Filmora, so you just have to choose which software better suits your needs and select the materials that fit the style of your project. Learning how to add a video to text won’t take too much of your time, as this process can be completed in just a few quick steps. Which software are you using to add a video to text? Leave a comment below and let us know.
 
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
-<!-- affiliate ads begin -->
-<a href="https://secure.textstudio.com/order/checkout.php?PRODS=35633309&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/d6eb8222c9718486bdabce8b897380f7/products/3_premium-icon.png" border="0"> Take advantage of PREMIUM features for 12 months. 
-Create your texts / logos without any limitation. 
-No attribution required when downloading. 
-No advertising on the website. 
- TextStudio.com  PREMIUM - Yearly Membership</a>
-<!-- affiliate ads end -->
 
 Liza Brown
 
@@ -111,14 +88,11 @@ Liza Brown is a writer and a lover of all things video.
 
 Follow @Liza Brown
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -127,6 +101,22 @@ Follow @Liza Brown
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-cloud.techidaily.com/new-boost-your-cinematography-game-essential-iphone-gear/"><u>[New] Boost Your Cinematography Game Essential iPhone Gear</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-editing-elegance-into-news-summations/"><u>[New] In 2024, Editing Elegance Into News Summations</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-swift-transformation-video-aspects-to-mac-standard/"><u>[New] In 2024, Swift Transformation Video Aspects to Mac Standard</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/erfect-your-strategy-top-rated-techniques-for-video-marketing/"><u>[New] Perfect Your Strategy Top-Rated Techniques for Video Marketing</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/reeminent-audience-alteration-tools-for-content-casters/"><u>[New] Preeminent Audience Alteration Tools for Content Casters</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/op-talents-merging-photography-and-sound-in-videos-for-2024/"><u>[New] Top Talents Merging Photography & Sound in Videos for 2024</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-2024-approved-streamline-your-podcasts-effective-editing-tips-for-garageband-users/"><u>[Updated] 2024 Approved Streamline Your Podcasts Effective Editing Tips for GarageBand Users</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-enhancing-engagement-essential-video-formats-for-youtube-viewers/"><u>[Updated] Enhancing Engagement Essential Video Formats for YouTube Viewers</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/updated-how-many-seconds-is-a-20mb-video/"><u>[Updated] How Many Seconds Is a 20Mb Video</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/updated-setup-made-simple-installing-vrecorder-for-2024/"><u>[Updated] Setup Made Simple Installing VRecorder for 2024</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/foremost-dialogue-maker-hub/"><u>Foremost Dialogue Maker Hub</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/how-to-use-google-assistant-on-your-lock-screen-of-htc-u23-pro-phone-by-drfone-android/"><u>How to Use Google Assistant on Your Lock Screen Of HTC U23 Pro Phone</u></a></li>
+<li><a href="https://data-safeguard.techidaily.com/mac-compatible-stellar-eraser-app-easy-effective-mobile-deletion-procedure/"><u>Mac-Compatible Stellar Eraser App: Easy, Effective Mobile Deletion Procedure</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ring-short-form-trimming-videos-for-youtube-for-2024/"><u>Mastering Short-Form Trimming Videos for YouTube for 2024</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/solutions-to-spy-on-honor-v-purse-with-and-without-jailbreak-drfone-by-drfone-virtual-android/"><u>Solutions to Spy on Honor V Purse with and without jailbreak | Dr.fone</u></a></li>
+</ul></div>
 

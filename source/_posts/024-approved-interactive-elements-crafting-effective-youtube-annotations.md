@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Interactive Elements  Crafting Effective YouTube Annotations\""
-date: 2024-08-15T22:46:47.350Z
-updated: 2024-08-16T22:46:47.350Z
+date: 2025-02-28T08:57:21.034Z
+updated: 2025-03-05T06:33:06.251Z
 tags:
   - ai video
   - ai youtube
@@ -67,9 +67,6 @@ YouTube **Cards** are similar to annotations but more interactive. They allow th
 
 * Apply changes and exit
 
-<!-- affiliate ads begin -->
-<a href="https://ursime.pxf.io/c/5597632/2048972/16384" target="_top" id="2048972"><img src="//a.impactradius-go.com/display-ad/16384-2048972" border="0" alt="" width="1200" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2048972/16384" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## How to add YouTube annotations
 
 YouTube Annotation is addition of a text layer, link or hotspots over your video. They add interactive boxes which link to other websites or videos (any link you want).
@@ -79,21 +76,11 @@ YouTube Annotation is addition of a text layer, link or hotspots over your video
 * Click on the "End screen & Annotation" tab
 
 ![](https://images.wondershare.com/filmora/article-images/add-annotations-to-youtube-video.jpg)
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075482/7443" target="_top" id="2075482"><img src="//a.impactradius-go.com/display-ad/7443-2075482" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075482/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 * On the right panel click on "+ Add Element" and select the kind of annotation you want to add
 * Adjust the position of Annotation, you can drag the rectangle to locate it at any position of the video, move the slide to set the start and end time of the annotation
 
 ![](https://images.wondershare.com/filmora/article-images/add-annotation-to-youtube-1.jpg)
-<!-- affiliate ads begin -->
-<a href="https://secure.textstudio.com/order/checkout.php?PRODS=35633309&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/d6eb8222c9718486bdabce8b897380f7/products/3_premium-icon.png" border="0"> Take advantage of PREMIUM features for 12 months. 
-Create your texts / logos without any limitation. 
-No attribution required when downloading. 
-No advertising on the website. 
- TextStudio.com  PREMIUM - Yearly Membership</a>
-<!-- affiliate ads end -->
 
 * Apply changes
 
@@ -132,9 +119,6 @@ The best outros also include a subscribe button, which can be created using anno
 No matter what kind of annotations you are using, you should never use more than two of them at a time anywhere except for your outro. You should also never place annotations at the very top of your screen, or in the middle at the bottom. If your video is embedding on a separate website then the player will cover annotations at the top of the screen, and ads might cover annotations placed in the bottom-middle of the screen. Keep in mind when using annotations that they will not be visible to users watching your videos on mobile devices. If mobile traffic is very important to you then consider using YouTube Cards.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
-<!-- affiliate ads begin -->
-<a href="https://shop.incomedia.eu/order/checkout.php?PRODS=12730965&QTY=1&AFFILIATE=108875&CART=1"><img src="https://incomedia.eu/files/images/affiliates/w5/03_WBSX5_728x90_red_CTA.jpg" border="0"></a>
-<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -142,14 +126,11 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -158,6 +139,22 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-tips.techidaily.com/deal-watchlist-for-asmr-fans-for-2024/"><u>[New] Ideal Watchlist for ASMR Fans for 2024</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-in-2024-installing-snapchat-efficiently-on-your-mac/"><u>[New] In 2024, Installing Snapchat Efficiently on Your Mac</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-rhythms-riches-the-ultimate-dj-templates-collection/"><u>[New] In 2024, Rhythm's Riches The Ultimate DJ Templates Collection</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/new-the-perplexing-case-of-unexpected-video-aspects-in-instagram-for-2024/"><u>[New] The Perplexing Case of Unexpected Video Aspects in Instagram for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-in-2024-how-to-maintain-a-shadowy-presence-on-instagram-livestreams/"><u>[Updated] In 2024, How to Maintain a Shadowy Presence on Instagram Livestreams</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-mastering-youtube-monetization-minimum-required-views-to-profit/"><u>[Updated] Mastering YouTube Monetization Minimum Required Views to Profit</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/2024-approved-building-a-broadcast-brand-with-youtube-twitch-and-obs/"><u>2024 Approved Building a Broadcast Brand with YouTube, Twitch and OBS</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/2024-approved-how-to-correct-fisheye-lens-distortion-from-gopro-footage/"><u>2024 Approved How to Correct Fisheye (Lens Distortion) From GoPro Footage</u></a></li>
+<li><a href="https://fake-location.techidaily.com/can-life360-track-you-when-your-motorola-g24-power-is-off-drfone-by-drfone-virtual-android/"><u>Can Life360 Track You When Your Motorola G24 Power is off? | Dr.fone</u></a></li>
+<li><a href="https://some-tips.techidaily.com/choosing-your-ideal-smart-assistant-a-comparison-of-amazons-echo-pop-and-echo-dot-devices/"><u>Choosing Your Ideal Smart Assistant: A Comparison of Amazon's Echo Pop and Echo Dot Devices</u></a></li>
+<li><a href="https://facebook.techidaily.com/dissecting-the-purpose-and-effect-of-fbcta/"><u>Dissecting the Purpose and Effect of FBCTA</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/o-be-a-beauty-guru-on-youtube-beauty-vlogger-set-up-for-2024/"><u>How To Be A Beauty Guru on YouTube Beauty Vlogger Set Up for 2024</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/top-15-apps-to-hack-wifi-password-on-nubia-red-magic-9-pro-by-drfone-android/"><u>Top 15 Apps To Hack WiFi Password On Nubia Red Magic 9 Pro</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/5-youtube-openings-elevate-your-contents-impact-for-2024/"><u>Top 15 YouTube Openings Elevate Your Content's Impact for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ling-the-best-cinematic-love-top-8-premium-wedding-videos-online/"><u>Unveiling the Best Cinematic Love Top 8 Premium Wedding Videos Online</u></a></li>
+</ul></div>
 

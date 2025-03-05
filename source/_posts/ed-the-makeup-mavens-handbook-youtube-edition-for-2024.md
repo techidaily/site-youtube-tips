@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] The Makeup Maven’s Handbook  YouTube Edition for 2024\""
-date: 2025-02-12T05:22:59.698Z
-updated: 2025-02-16T08:45:31.823Z
+date: 2025-02-28T09:10:46.555Z
+updated: 2025-03-04T18:18:52.870Z
 tags:
   - ai video
   - ai youtube
@@ -121,10 +121,6 @@ Here are 4 tips for getting free products for review:
 Make sure to link to your channel so they can verify what you say (do not hide your subscriber count).  
 Emphasize what value you could provide the brand with (i.e. ‘I’ve had a lot of success with videos on managing acne and I’m sure my subscribers would love to see a review of your cream’) and outline what kind of video you’d like to make (i.e. a five-minute review focusing on the product, or a short feature in a longer makeup tutorial).
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/htnQWyEOCgc?si=fy86hi8_hTtbWAnw" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **Simple Camera Setup for Beauty Vloggers**
 
 There are a lot of different ways to set up your camera for a ‘talking head’ video (anything that is primarily you talking to the camera). Keep reading to learn about a popular ring-light setup for beauty videos, or [click here to learn 4 different camera setups](https://www.filmora.io/community-blog/4-ways-to-set-up-your-talking-head-shots-for-youtube-431.html).
@@ -150,10 +146,6 @@ You might want to experiment with sitting at different distances to see how the 
 
 ![tilt down your camera](https://images.wondershare.com/filmora/article-images/tilt-down-camera1.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/nmj7aVvEeAs?si=OcR7USXKGyLcn09q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 **_Step 3:_** Check your frame (this is easiest if your camera has a screen that flips out) to make sure there’s not too much empty space in your shot.
 
 **_Step 4:_** Adjust your camera’s focus so your picture is clear. You may need to set up a lamp, chair, or stuffed animal as a stand-in for yourself while you stand behind the camera adjusting the focus.
@@ -171,10 +163,6 @@ An aperture of f/5.0 is good if you’re going to be moving around a lot, but if
 ISO 400 should be a happy medium for shooting inside with your ring light, but you may need to try out a couple of settings to find one perfect for your situation.
 
 ![set film speed](https://images.wondershare.com/filmora/article-images/set-film-speed3.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/XVsiIO7hWOc?si=UvWnqxaI_yHwEr74" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 For more info on [camera settings for beauty videos, click here](https://www.filmora.io/video-tutorials/how-to-set-up-your-camera-%E2%80%93-the-makeup-series-12.html).
 
@@ -232,10 +220,6 @@ This lightweight ring light is easy to transport, set up, and mount your phone o
 
 This light is dimmable, so you can turn it down if it’s too bright, and the Prismatic Light Stand will allow you to tilt your light to the perfect angle. This will be handy if you’re mounting your camera inside the ring but want to place it slightly above your face instead of having it look at you head on.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/vEYkX2NJgZw?si=IaHqlqJcYipwUOht" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **Build Your Own Diva Ring Light**
 
 A ring light is an important tool for a lot of beauty YouTubers, but it doesn’t fit into everyone’s budget. Here’s one popular way to create your own ring light for about $20\.
@@ -273,10 +257,6 @@ Before you start recording your makeup tutorial there are a few things you shoul
  4. **_Do a video test._** Before you start your video for real, start recording and shoot some test footage. Watch that back to make sure you like the look of your frame, your face is never blurry, and you’re happy with the overall look of things.
  5. **_Do an audio test._** If you’re going to be talking in your video instead of recording a voiceover after, do an audio test to make sure your audience will be able to hear you clearly.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/KdpTAZ9zonQ?si=5Nd5SPW1axA7GPuB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **How to Make a Makeup Tutorial – Recording**
 
 Here are some things to keep in mind while you record your makeup tutorial:
@@ -285,10 +265,6 @@ Here are some things to keep in mind while you record your makeup tutorial:
 If you’re using autofocus, you can hold products up to the screen and wait for it to kick in. If you’re not using autofocus, just hold them up next to you for a moment. You can also shoot separate closeups of each product and cut them into your main tutorial video.
 2. **_Highlight small details._** Describe what you’re doing in a lot of detail and don’t gloss over anything. Assume the person watching your tutorial doesn’t know anything about putting on makeup.
 3. **_Take stills for your thumbnail._** Remember to take some still photos of your finished makeup to use in your YouTube thumbnail.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/q4-YQ9Wjtfg?si=6afn1fydg_Wb9B8z" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **How to Make a Makeup Tutorial – After Shooting**
 
@@ -327,18 +303,21 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-blue.techidaily.com/new-integrating-automatic-speech-conversion-into-powerpoint-presentations/"><u>[New] Integrating Automatic Speech Conversion Into PowerPoint Presentations</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/one-your-vlogs-access-free-sound-tracks-in-2024/"><u>[New] Tone Your Vlogs Access Free Sound Tracks, In 2024</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-in-2024-engaging-audiences-youtube-shorts-vs-tiktok-trends/"><u>[Updated] In 2024, Engaging Audiences Youtube Shorts Vs. TikTok Trends</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-supercharge-your-content-editing-and-enhancing-youtube-tags-for-2024/"><u>[Updated] Supercharge Your Content Editing and Enhancing YouTube Tags for 2024</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/approved-bitevideo-innovator/"><u>2024 Approved BiteVideo Innovator</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/best-ways-on-how-to-unlockbypassswiperemove-poco-m6-pro-4g-fingerprint-lock-by-drfone-android/"><u>Best Ways on How to Unlock/Bypass/Swipe/Remove Poco M6 Pro 4G Fingerprint Lock</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/five-tips-for-writing-dialogue-and-narrative-scripts/"><u>Five Tips for Writing Dialogue and Narrative Scripts</u></a></li>
-<li><a href="https://howto.techidaily.com/fix-app-not-available-in-your-country-play-store-problem-on-oneplus-ace-2v-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Fix App Not Available in Your Country Play Store Problem on OnePlus Ace 2V | Dr.fone</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/how-to-cast-itel-a70-screen-to-pc-using-wifi-drfone-by-drfone-android/"><u>How to Cast Itel A70 Screen to PC Using WiFi | Dr.fone</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/24-elevate-engagement-crafting-effective-youtube-shorts/"><u>In 2024, Elevate Engagement Crafting Effective YouTube Shorts</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/24-youtubes-rivalry-the-leading-3-video-streaming-sites/"><u>In 2024, YouTube's Rivalry The Leading 3 Video Streaming Sites</u></a></li>
-<li><a href="https://win11.techidaily.com/master-the-art-of-converting-videocasts-to-high-quality-mp3-files-in-minutes/"><u>Master the Art of Converting Videocasts to High-Quality MP3 Files in Minutes</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/track-and-monitor-health-metrics-with-ease-the-ultimate-guide-to-androids-measure-app/"><u>Track and Monitor Health Metrics with Ease: The Ultimate Guide to Android's Measure App</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/losing-with-panache-free-youtubes-1-six-in-2024/"><u>[New] Closing with Panache Free YouTube's #1 Six, In 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ow-to-make-collab-videos-and-grow-your-channel/"><u>[New] How to Make Collab Videos and Grow Your Channel?</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-strategies-to-swiftly-remove-unwanted-video-post-comments/"><u>[New] In 2024, Strategies to Swiftly Remove Unwanted Video Post-Comments</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/updated-2024-approved-unparalleled-viewing-premium-hdmi-21-gaming-monitors-ps5/"><u>[Updated] 2024 Approved Unparalleled Viewing Premium HDMI 2.1 Gaming Monitors [PS5]</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-all-you-need-to-know-about-the-youtube-shorts-fund-for-2024/"><u>[Updated] All You Need to Know About the YouTube Shorts Fund for 2024</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/updated-free-photography-tools-that-will-dazzle-you/"><u>[Updated] Free Photography Tools That Will Dazzle You</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-in-2024-youtubes-easy-guide-to-exceptional-thumbnails/"><u>[Updated] In 2024, YouTube's Easy Guide to Exceptional Thumbnails</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-journey-through-youtubes-spectacular-vr-realms-for-2024/"><u>[Updated] Journey Through YouTube's Spectacular VR Realms for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-mastering-quantum-hdr-principles-for-2024/"><u>[Updated] Mastering Quantum HDR Principles for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-the-10-funniest-youtube-shorts-video-ideas/"><u>[Updated] The 10 Funniest YouTube Shorts Video Ideas</u></a></li>
+<li><a href="https://tiktok-video-files.techidaily.com/2024-approved-iphone-mastery-seamless-tiktok-video-acquisition/"><u>2024 Approved IPhone Mastery Seamless TikTok Video Acquisition</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/approved-views-for-livelihood-mastering-youtubes-true-numbers/"><u>2024 Approved Views for Livelihood Mastering YouTube's True Numbers</u></a></li>
+<li><a href="https://extra-information.techidaily.com/free-online-jpggif-converters-the-best-10-list/"><u>Free Online JPG/GIF Converters The Best 10 List</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/how-to-change-your-sim-pin-code-on-your-xiaomi-phone-by-drfone-android/"><u>How To Change Your SIM PIN Code on Your Xiaomi Phone</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/intova-x-reviewed-cutting-edge-action-capture/"><u>Intova X Reviewed Cutting-Edge Action Capture</u></a></li>
+<li><a href="https://common-error.techidaily.com/mastering-the-fix-for-windows-update-challenge-cracking-error-0x8024402c/"><u>Mastering the Fix for Windows Update Challenge: Cracking Error 0X8024402c</u></a></li>
 </ul></div>
 

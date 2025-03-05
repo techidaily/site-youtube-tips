@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Setting Up Personalized Video Shots on YouTube"
-date: 2025-02-15T00:22:17.242Z
-updated: 2025-02-16T11:17:01.319Z
+date: 2025-03-02T06:44:00.396Z
+updated: 2025-03-05T05:45:34.588Z
 tags:
   - ai video
   - ai youtube
@@ -36,10 +36,6 @@ A big part of being a YouTuber involves talking to the camera. How you set up yo
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/JAkb8Bv3AU4?si=2rHwnZYTzTLieKgY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## How to Set Up Your Talking Heads Shots for YouTube Video \[Infographic\]
 
 We’ve summarized the key points about setting up talking head style video shots with the Infographic below. It is welcomed to share on social media.
@@ -47,10 +43,6 @@ We’ve summarized the key points about setting up talking head style video shot
 ![ Setting up Talking Heads Video Shots for YouTube](https://images.wondershare.com/filmora/article-images/talking-heads-youtube-video-shots-set-up.jpg)
 
 ## How to Set Up Your Talking-Head Shots for YouTube \[4 Ways\]
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/TJCye_oCTTw?si=6bVyBphcSgSFdyuq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 1.  Close Quarters Wide-Angle Vlog Set-Up
 
@@ -80,10 +72,6 @@ You can see from how even the background and couch looks across the entire camer
 
 It appears that, to the right of deadmau5 (camera left), there is a key light and to his left (camera right) there may be a fill light for additional lighting. Behind the couch, there’s also a background uplight to create depth between the subject and the background. At the 1:30 mark of this trailer video, you can briefly see how the Masterclass camera crew set up their shot.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/tkpBmccvJ_Q?si=J7ellPL1G1l8Axi_" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 3.  Two Person Vlog Set-Up
 
 If your talking-head shot has got to include two people, you can use a similar set-up as the medium vlog set-up detailed above.
@@ -108,19 +96,11 @@ It is difficult to know whether the movement in his eyes is caused by not being 
 
 Looking to find the right lights for your video recording set? Check out our [Top 17 Video Lighting Equipment For YouTubers](https://www.filmora.io/community-blog/top-17-video-lighting-equipment-for-youtubers-440.html).
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/zmXpl6irBYk?si=BXjGpQr6PXFcqhCI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Tips for Making a Talking Head Video Better
 
 To make a talking-head video more interesting, you can add some background music to the video, apply some interesting texts or elements. [Filmora](https://tools.techidaily.com/wondershare/filmora/download/) has built-in royalty-free music tracks and sound effects as well as [text templates](https://tools.techidaily.com/wondershare/filmora/download/), filters and motivating elements. Download the free trial version below and release your creativity.
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/ZLb1ViO4WR8?si=g_aiHGNCd7eAvmDM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
@@ -145,22 +125,22 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-recording.techidaily.com/new-2024-approved-mozilla-screen-recording-hacks/"><u>[New] 2024 Approved Mozilla Screen Recording Hacks</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/n-2024-the-haven-guide-top-3-non-youtube-video-portals/"><u>[New] In 2024, The Haven Guide Top 3 Non-Youtube Video Portals</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ptimizing-your-youtube-music-selection/"><u>[New] Optimizing Your YouTube Music Selection</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-2024-approved-streamlining-your-mac-techniques-to-remove-green-screen-effects/"><u>[Updated] 2024 Approved Streamlining Your Mac Techniques to Remove Green Screen Effects</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-cost-effective-growth-tactic-for-youtube-fanbases/"><u>[Updated] Cost-Effective Growth Tactic for YouTube Fanbases</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-google-meet-go-live-your-youtube-broadcast-companion-for-2024/"><u>[Updated] Google Meet Go Live - Your YouTube Broadcast Companion for 2024</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-perfect-pick-the-best-microphones-for-all-yt-content-types-for-2024/"><u>[Updated] Perfect Pick The Best Microphones For All YT Content Types for 2024</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/updated-smart-tips-for-gif-lovers-iphone-edition/"><u>[Updated] Smart Tips for GIF Lovers IPhone Edition</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/approved-get-unlimited-echoes-for-online-content-makers/"><u>2024 Approved Get Unlimited Echoes for Online Content Makers</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/approved-the-synergy-between-youtube-and-creative-commons-licensinas/"><u>2024 Approved The Synergy Between YouTube and Creative Commons Licensinas</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209848820-9781633832466-art-of-happiness-yoga-meditation-mindfulness-for-beginners/"><u>Art Of Happiness: Yoga Meditation Mindfulness For Beginners | Free Book</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/charting-course-essential-steps-from-concept-to-content-creation-in-review-channels/"><u>Charting Course Essential Steps From Concept to Content Creation in Review Channels</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/explore-best-practices-for-mastering-finnish-virtually/"><u>Explore Best Practices for Mastering Finnish Virtually</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/here-are-some-reliable-ways-to-get-pokemon-go-friend-codes-for-xiaomi-redmi-12-5g-drfone-by-drfone-virtual-android/"><u>Here Are Some Reliable Ways to Get Pokemon Go Friend Codes For Xiaomi Redmi 12 5G | Dr.fone</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/in-2024-top-10-infinix-note-30-android-sim-unlock-apk-by-drfone-android/"><u>In 2024, Top 10 Infinix Note 30 Android SIM Unlock APK</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/mouse-mastery-quick-scrolling-secrets/"><u>Mouse Mastery: Quick Scrolling Secrets</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/ranch-raiders-best-friendly-farmers-game-roster/"><u>Ranch Raiders Best Friendly Farmer's Game Roster</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-the-ultimate-list-of-15-youtube-openers/"><u>[New] In 2024, The Ultimate List of 15 YouTube Openers</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/new-the-unmarked-manual-for-instagrams-livestream-privacy/"><u>[New] The Unmarked Manual for Instagram's Livestream Privacy</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/nderstanding-the-inner-workings-of-youtube-post-upload-for-2024/"><u>[New] Understanding the Inner Workings of YouTube Post-Upload for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-2024-approved-essential-video-stock-investment-guides/"><u>[Updated] 2024 Approved Essential Video Stock Investment Guides</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/updated-battle-royale-queens-top-10-female-youtubers/"><u>[Updated] Battle Royale Queens Top 10 Female YouTubers</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-expert-endorsed-gpus-for-top-quality-online-video-playback/"><u>[Updated] Expert-Endorsed GPUs for Top Quality Online Video Playback</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-in-2024-pivoting-to-passive-income-the-youtube-expedition-without-ads/"><u>[Updated] In 2024, Pivoting to Passive Income The YouTube Expedition Without Ads</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-instagram-harmony-music-edition/"><u>[Updated] Instagram Harmony Music Edition</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-rookie-riches-profitable-sites-for-beginnere-buyouts-for-2024/"><u>[Updated] Rookie Riches Profitable Sites for Beginner'e Buyouts for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/approved-securing-your-youtube-profile-a-guide/"><u>2024 Approved Securing Your YouTube Profile A Guide</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/googles-newest-addition-discover-the-rumored-specs-and-price-for-upcoming-tv-streamer-device/"><u>Google's Newest Addition? Discover the Rumored Specs & Price for Upcoming TV Streamer Device</u></a></li>
+<li><a href="https://program-issues.techidaily.com/guide-to-resolving-rainbow-six-extraction-driverhardware-incompatibility-issues-easily/"><u>Guide to Resolving Rainbow Six Extraction Driver/Hardware Incompatibility Issues Easily</u></a></li>
+<li><a href="https://win-online.techidaily.com/how-to-activate-microsofts-auto-update-system-for-windows-10-operating-systems-by-yourself-tips-from-yl-tech-solutions/"><u>How To Activate Microsoft's Auto-Update System for Windows 10 Operating Systems by Yourself – Tips From YL Tech Solutions</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/24-your-journey-to-stylish-vlogging-a-beginners-guide-mac-edition/"><u>In 2024, Your Journey to Stylish Vlogging A Beginner's Guide, Mac Edition</u></a></li>
+<li><a href="https://fox-info.techidaily.com/investigating-ffmpeg-for-intact-audio-preservation/"><u>Investigating FFmpeg for Intact Audio Preservation</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/leveraging-seo-in-youtube-a-title-and-tags-guidebook/"><u>Leveraging SEO in Youtube A Title & Tags Guidebook</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/top-44-ideal-deals-for-holiday-storage-and-ssds-spotted/"><u>Top 44 Ideal Deals for Holiday Storage & SSDs - Spotted</u></a></li>
 </ul></div>
 

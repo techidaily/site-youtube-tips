@@ -1,7 +1,7 @@
 ---
 title: "[New] In 2024, Optimal Lighting for Stellar Video Production"
-date: 2025-02-10T04:25:57.826Z
-updated: 2025-02-16T10:01:49.137Z
+date: 2025-02-25T20:03:08.915Z
+updated: 2025-03-05T07:12:10.303Z
 tags:
   - ai video
   - ai youtube
@@ -37,10 +37,6 @@ Going outside and using natural light is the cheapest way to get a lot of light 
 
 ![ Lighting for YouTube Video](https://images.wondershare.com/filmora/article-images/three-point-lighting.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qmQjRcnaq9g?si=jadcGtXemUAlKOTa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 The most common technique of lighting a scene is called **three-point lighting**. It involves three different sources of light in the shot and is used by portrait photographers, which is also a great method for lighting your vlog.
 
 The brightest source of light is also known as the **key light** which need to be high quality. A window will work, but if you do not have access to one where you are filming then consider an LED panel light or a softbox light like the ones used in portrait photography.
@@ -52,10 +48,6 @@ Rather than setting up another light source on the opposite side of the camera, 
 The **fill light** is less bright than the primary source of light and it is placed on the side opposite to the key light. Its purpose is to reduce shadows produced by the key light and the reflector will need to be mounted on a stand.
 
 The final step to creating three point lighting is to set up another light behind you. This is your 'Backlight', and it will help you stand out from your background. **Backlight or Hair light** is always placed behind and above the subject to create separation between the subject in the shot and the background. This basic lighting technique can be applied in almost every scene you shoot, which is why it is important to keep an open mind and to continue experimenting with possible light setups.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LI9nKlbhnw8?si=uUXFVbuEqXtFHHv0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Watch Video! Top Lighting Tips for Vlogging
 
@@ -85,29 +77,17 @@ Sets of reflectors are often under $50, so they are fairly affordable. However, 
 
 ![lighting tips](https://images.wondershare.com/filmora/article-images/lighting-tips01.JPG)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/0nGlyEL5K6Y?si=3KZhTTBvKcPmyS68" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 If your strong main light is too hard on your eyes then you can use a translucent 'reflector' to soften it. Set your translucent reflector, or other screen, up in front of your main light to diffuse it.
 
 If you are hosting a **beauty vlog** then you might consider a slightly different set up. Instead of having your main light off to one side set it up directly in front of you so your entire face is lit evenly. It is still a good idea to use fill lights in this set up to give you some dimension, and a backlight is even more essential for helping you stand out from the background. The even light hitting your face will also make you look flat if you do not use a backlight.
 
 ![lighting tips](https://images.wondershare.com/filmora/article-images/lighting-tips02.JPG)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/PKZUYice-ws?si=L8iMa9T3h7TMSWdQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 If you are using all of the lighting options available to you and your video still looks too dark then you can try brightening it by **opening up the aperture of your camera** lens/setting a lower f-stop. Letting more light into your camera can help your footage look brighter, although you also run the risk of making things look overexposed/ washed out if you are not careful.
 
 If you are stuck shooting in **low light conditions** it is best to use a lens with a wider aperture/lower f-stop. This will make the best of the light you do have.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fHWdQw1gRyI?si=ve9wZnPupiooLThG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -130,17 +110,19 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-sure.techidaily.com/ollaborate-for-success-video-strategies/"><u>[New] Collaborate for Success Video Strategies</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/n-2024-delving-into-tseries-streaming-revenue-model-on-youtube/"><u>[New] In 2024, Delving Into TSeries' Streaming Revenue Model on YouTube</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/n-2024-youtube-mastery-essential-tech-to-enhance-your-streams/"><u>[New] In 2024, YouTube Mastery Essential Tech to Enhance Your Streams</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-igniting-creativity-in-your-channel-top-youtube-video-ideas-for-2024/"><u>[Updated] Igniting Creativity in Your Channel Top YouTube Video Ideas for 2024</u></a></li>
-<li><a href="https://fox-links.techidaily.com/2024-approved-designing-multi-layered-photographic-illusions/"><u>2024 Approved Designing Multi-Layered Photographic Illusions</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/2024-approved-dissecting-insta-video-selfie-validation-necessary-or-not/"><u>2024 Approved Dissecting Insta Video Selfie Validation – Necessary or Not?</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/l-footprint-of-the-mr-beast-empire/"><u>Fiscal Footprint of the Mr. Beast Empire</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/in-2024-here-are-some-pro-tips-for-pokemon-go-pvp-battles-on-honor-x8b-drfone-by-drfone-virtual-android/"><u>In 2024, Here are Some Pro Tips for Pokemon Go PvP Battles On Honor X8b | Dr.fone</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/innovative-recording-tech-the-leaders-choice/"><u>Innovative Recording Tech The Leaders' Choice</u></a></li>
-<li><a href="https://discover-comparisons.techidaily.com/premium-lion-motif-visuals-for-pc-exquisite-images-and-photos-for-your-screen-by-yl-software/"><u>Premium Lion Motif Visuals for PC - Exquisite Images and Photos for Your Screen by YL Software</u></a></li>
-<li><a href="https://win-dash.techidaily.com/troubleshooting-effective-solutions-for-audioscreen-recording-problems-on-sharex/"><u>Troubleshooting Effective Solutions for Audio/Screen Recording Problems on ShareX</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/sh-your-inner-vfx-guru-with-diy-techniques-for-2024/"><u>Unleash Your Inner VFX Guru with DIY Techniques for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/024-approved-edit-like-a-pro-10-must-know-tips-for-newbies/"><u>[New] 2024 Approved Edit Like a Pro 10 Must-Know Tips for Newbies</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/024-approved-unlocking-visual-magic-diy-animation-and-fx-crafts/"><u>[New] 2024 Approved Unlocking Visual Magic DIY Animation and FX Crafts</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-spark-your-audience-with-best-video-content-ideas/"><u>[New] In 2024, Spark Your Audience with Best Video Content Ideas</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/updated-2024-approved-ultimate-guide-to-top-8-android-collaboration-platforms/"><u>[Updated] 2024 Approved Ultimate Guide to Top 8 Android Collaboration Platforms</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-rise-to-youtube-prominence-top-strategies-at-a-glance/"><u>[Updated] Rise to YouTube Prominence Top Strategies at a Glance</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/updated-the-ultimate-guide-to-digital-audio-streaming-and-recording/"><u>[Updated] The Ultimate Guide to Digital Audio Streaming & Recording</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-top-viral-video-tags-tips-for-popular-youtube-shorts/"><u>[Updated] Top Viral Video Tags Tips for Popular YouTube Shorts</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/2024-approved-fusing-iphones-audio-and-visuals-together/"><u>2024 Approved Fusing iPhones' Audio and Visuals Together</u></a></li>
+<li><a href="https://some-tips.techidaily.com/back-from-the-dead-top-choice-for-apple-watch-ultra-add-ons-not-by-apple/"><u>Back From the Dead! Top Choice for Apple Watch Ultra Add-Ons - Not by Apple</u></a></li>
+<li><a href="https://discover-helper.techidaily.com/easy-and-effective-methods-for-bulk-data-backup-across-your-entire-computer-network/"><u>Easy and Effective Methods for Bulk Data Backup Across Your Entire Computer Network</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/in-2024-best-action-recorders-with-front-view-panels/"><u>In 2024, Best Action Recorders with Front View Panels</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/24-foremost-directors-of-cinematic-harmony/"><u>In 2024, Foremost Directors of Cinematic Harmony</u></a></li>
+<li><a href="https://ai-driven-video-production.techidaily.com/new-vlog-like-a-pro-10-essential-editing-apps-for-mobile-devices-for-2024/"><u>New Vlog Like a Pro 10 Essential Editing Apps for Mobile Devices for 2024</u></a></li>
+<li><a href="https://common-error.techidaily.com/resolved-fixing-persistent-keyboard-delays-in-windows-10/"><u>Resolved: Fixing Persistent Keyboard Delays in Windows 10</u></a></li>
 </ul></div>
 

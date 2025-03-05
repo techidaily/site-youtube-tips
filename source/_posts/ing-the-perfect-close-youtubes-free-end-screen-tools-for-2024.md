@@ -1,7 +1,7 @@
 ---
 title: "\"Crafting the Perfect Close  YouTube's Free End Screen Tools for 2024\""
-date: 2025-02-08T21:19:54.126Z
-updated: 2025-02-16T05:53:45.322Z
+date: 2025-03-02T00:31:02.033Z
+updated: 2025-03-04T18:34:10.353Z
 tags:
   - ai video
   - ai youtube
@@ -70,10 +70,6 @@ Those who do not have PhotoShop can use Taha Chimar’s end screen designs that 
 
 ![taha-chimar-youtube-end-screen](https://images.wondershare.com/filmora/article-images/taha-chimar-youtube-end-screen.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/dKjioJQaUh8?si=Ls_AeuvGsSyL5ny2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 To download, you will have to follow a URL link in the description box of the YouTube videos. Be careful, though, as a lot of the links lead to free hosting websites with pop-ups that can harm your computer if you are easily fooled by them.
 
 #### 4. SoapyEdits
@@ -88,27 +84,11 @@ Here’s one for the Minecraft fans:
 
 ![SoapyEdits YouTube end screen template Minecraft ](https://images.wondershare.com/filmora/article-images/SoapyEdits-youtube-end-screen-template-minecraft.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/vFQCEZiYA08?si=xjIu5IAy77RlHWii" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ![SoapyEdits YouTube end screen template  ](https://images.wondershare.com/filmora/article-images/SoapyEdits-youtube-end-screen-template-2.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/L603QXgjb3I?si=sMYHfMGy2kNPSHPt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ![SoapyEdits YouTube end screen template  ](https://images.wondershare.com/filmora/article-images/SoapyEdits-youtube-end-screen-template-3.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/3UyJuZYzjt0?si=W87GeyzVKVORAk7S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Another way to get your YouTube end screens for free, of course, is to make them yourself. Canva is a great free online design tool for this.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/K7fATC_lI7o?si=UFotPJqflDRZr-mv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Part 2: How To Build Your Outro For Free (Step-by-step Canva Tutorial)
 
@@ -129,10 +109,6 @@ Another way to get your YouTube end screens for free, of course, is to make them
 5\. Upload the image onto your Canva project.
 
 ![upload-downloaded-youtube-end-screen-canva ](https://images.wondershare.com/filmora/article-images/upload-downloaded-youtube-end-screen-canva.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/1KKovVi9epE?si=EF7KA7b4KsEpWA-M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 6\. Stretch your image to the ends of your canvas.
 
@@ -173,24 +149,21 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-sharing-recording.techidaily.com/new-2024-approved-streamlining-lecture-recordings-on-imac/"><u>[New] 2024 Approved Streamlining Lecture Recordings on iMac</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/irect-transition-from-youtube-to-instagram-reels-for-2024/"><u>[New] Direct Transition From YouTube to Instagram Reels for 2024</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/issecting-youtubes-features-and-mechanisms-after-uploading-content/"><u>[New] Dissecting YouTube’s Features and Mechanisms After Uploading Content</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/new-mediameld-editsuite/"><u>[New] MediaMeld EditSuite</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/nderstanding-where-youtube-transforms-videos-into-art/"><u>[New] Understanding Where YouTube Transforms Videos Into Art</u></a></li>
-<li><a href="https://facebook-video-files.techidaily.com/new-unlocking-the-power-of-in-stream-ads-strategy-and-metrics-guide/"><u>[New] Unlocking the Power of In-Stream Ads Strategy & Metrics Guide</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-pocket-friendly-pro-mics-for-youtube-enthusiasts-for-2024/"><u>[Updated] Pocket-Friendly Pro Mics for YouTube Enthusiasts for 2024</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-seamlessly-transition-media-formats-with-free-downloader-for-2024/"><u>[Updated] Seamlessly Transition Media Formats with Free Downloader for 2024</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/updated-the-basic-blueprint-for-choosing-gamer-friendly-recordings-and-edits/"><u>[Updated] The Basic Blueprint for Choosing Gamer-Friendly Recordings & Edits</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-youtube-thumbnails-demystified-mac-edition/"><u>[Updated] YouTube Thumbnails Demystified - Mac Edition</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/approved-masterful-guide-to-gaming-banners-on-youtube/"><u>2024 Approved Masterful Guide to Gaming Banners on YouTube</u></a></li>
-<li><a href="https://extra-support.techidaily.com/2024-approved-mastering-the-craft-of-in-depth-and-impactful-interviews/"><u>2024 Approved Mastering the Craft of In-Depth and Impactful Interviews</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/approved-syncing-sound-transferring-music-directly-to-youtube/"><u>2024 Approved Syncing Sound Transferring Music Directly to YouTube</u></a></li>
-<li><a href="https://iphone-transfer.techidaily.com/in-2024-4-ways-to-transfer-messages-from-apple-iphone-14-pro-to-iphone-including-iphone-15-drfone-by-drfone-transfer-from-ios/"><u>In 2024, 4 Ways to Transfer Messages from Apple iPhone 14 Pro to iPhone Including iPhone 15 | Dr.fone</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/in-2024-remove-the-lock-screen-fingerprint-of-your-nokia-c210-by-drfone-android/"><u>In 2024, Remove the Lock Screen Fingerprint Of Your Nokia C210</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ating-through-the-ultimate-guide-to-top-9-free-logos/"><u>Navigating Through The Ultimate Guide to Top 9 Free Logos</u></a></li>
-<li><a href="https://ai-video-editing.techidaily.com/1713966084879-new-would-you-like-to-know-how-to-change-the-ratio-of-the-video-or-which-is-the-correct-aspect-ratio-for-uploading-to-the-online-platform-then-go-through-th/"><u>New Would You Like to Know How to Change the Ratio of the Video or Which Is the Correct Aspect Ratio for Uploading to the Online Platform? Then, Go Through the Article to Get Complete Details About the Video Aspect Ratio for 2024</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/preparation-to-beat-giovani-in-pokemon-go-for-xiaomi-14-pro-drfone-by-drfone-virtual-android/"><u>Preparation to Beat Giovani in Pokemon Go For Xiaomi 14 Pro | Dr.fone</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/quietude-quotient-windowsmac-music-control/"><u>Quietude Quotient Windows/Mac Music Control</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/024-approved-avoiding-content-id-alerts-strategies-on-youtube/"><u>[New] 2024 Approved Avoiding Content ID Alerts Strategies on YouTube</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/harting-out-your-audience-youtubes-blueprint-for-2024/"><u>[New] Charting Out Your Audience YouTube's Blueprint for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/rafting-perfect-youtube-short-content-lessons-for-2024/"><u>[New] Crafting Perfect YouTube Short Content Lessons for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/n-2024-the-content-delivery-spectrum-vimeo-and-youtube-reviewed/"><u>[New] In 2024, The Content Delivery Spectrum Vimeo & YouTube Reviewed</u></a></li>
+<li><a href="https://graphic-issues.techidaily.com/amd-graphics-hardware-unsupported-in-older-windows-oses/"><u>AMD Graphics Hardware Unsupported in Older Windows OSes</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/-to-video-bridge-easy-3-step-guide-for-mp3-to-youtube-uploads-for-2024/"><u>Audio-to-Video Bridge Easy 3-Step Guide for MP3 to YouTube Uploads for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/capture-and-replay-screen-recording-for-instagram-stories-for-2024/"><u>Capture and Replay Screen Recording for Instagram Stories for 2024</u></a></li>
+<li><a href="https://ai-vdieo-software.techidaily.com/discover-the-best-free-3d-animation-apps-for-android-iphone-and-ipad/"><u>Discover the Best Free 3D Animation Apps for Android, iPhone, and iPad</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-easily-unlock-your-xiaomi-redmi-note-12-pro-4g-device-sim-by-drfone-android/"><u>In 2024, Easily Unlock Your Xiaomi Redmi Note 12 Pro 4G Device SIM</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/24-expert-tips-for-dealing-with-youtube-copyright-notifications/"><u>In 2024, Expert Tips for Dealing With YouTube Copyright Notifications</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-unlock-your-nokia-c12-pluss-potential-the-top-20-lock-screen-apps-you-need-to-try-by-drfone-android/"><u>In 2024, Unlock Your Nokia C12 Pluss Potential The Top 20 Lock Screen Apps You Need to Try</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/ipad-pro-and-air-anticipated-launch-in-early-may-latest-features-and-specs-revealed/"><u>IPad Pro & Air: Anticipated Launch in Early May - Latest Features & Specs Revealed</u></a></li>
+<li><a href="https://extra-information.techidaily.com/professional-review-prime-drone-gimbals/"><u>Professional Review Prime Drone Gimbals</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/sh-creativity-with-youtube-clips-make-animation-gifs-easily-for-2024/"><u>Unleash Creativity with YouTube Clips - Make Animation GIFs Easily for 2024</u></a></li>
+<li><a href="https://win-hot.techidaily.com/wbadmin-windows-pc/"><u>WBAdminコマンドを使った Windows サーバー/PC におけるシステム状態バックアップの詳細ガイダンス</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/wide-leaders-in-short-video-download-hubs-free/"><u>Worldwide Leaders in Short Video Download Hubs (FREE)</u></a></li>
 </ul></div>
 

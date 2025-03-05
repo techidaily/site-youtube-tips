@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Shot Securement  Keeping Cameras Still on Arms Only\""
-date: 2024-08-15T22:45:08.235Z
-updated: 2024-08-16T22:45:08.235Z
+date: 2025-02-28T23:36:20.250Z
+updated: 2025-03-05T06:37:04.198Z
 tags:
   - ai video
   - ai youtube
@@ -36,9 +36,6 @@ Wondershare Filmora has the best video stabilization tool is your videos have a 
 
 Here are 3 of our favorite DIY tripods.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620778&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/300__250banner.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ### **DIY smartphone tripod using binder clips or hair clips**
 
 You’re a solo operation and your best camera is on your phone. That’s pretty common.
@@ -52,29 +49,15 @@ Hold your phone in landscape mode (horizontally, so it’s long rather than tall
 Here it is with binder clips:
 
 ![binder clips](https://images.wondershare.com/filmora/article-images/binder-clips.jpg)
-<!-- affiliate ads begin -->
-<a href="https://order.glarysoft.com/order/checkout.php?PRODS=35408920&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/FR-200-1.png" border="0">Glarysoft File Recovery Pro - Helps to recover your lost file/data, even permanently deleted data. </a>
-<!-- affiliate ads end -->
 
 And here it is with hair clips:
 
 ![hair clips](https://images.wondershare.com/filmora/article-images/hair-clips.jpg)
-<!-- affiliate ads begin -->
-<h3 id="200610"><a href="https://sentrypc.7eer.net/c/5597632/200610/3022">Parental Control Software</a></h3>
-<span class="text-ad-content">
-	#1 Rated Parental Control Software.<br/>
-	Monitor & Control all PC Activity!<br/>
-		<cite style="color:green">sentrypc.com/parental-controls/</cite>
-	</span><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/200610/3022" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Now you can set your smartphone upon any stable surface, like a table or a stack of books.
 
  _Here are some more cool ideas!_
 
-<!-- affiliate ads begin -->
-<a href="https://store.revouninstaller.com/order/checkout.php?PRODS=28010250&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4282ec8de8c9be897e7aff4aa231b1a4/336__280a.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ### **DIY adjustable tripod using books and a towel**
 
 You’ve probably heard a million times that you can stabilize your camera by sitting it down on any stable surface – on your desk, on a stack of books, up in a tree, etc. This is very true!
@@ -92,9 +75,6 @@ To get similar functions from the ‘any stable surface’ solution you can use 
 
 Now if your camera isn’t up high enough, or is too high, you can adjust it just by adding or taking away books. If you want to move it closer or farther away from you, just pull the towel forwards or backward.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=174416&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.easygifanimator.net/images/gif-animator.png" border="0">Easy GIF Animator is a powerful animated GIF editor and the top tool for creating animated pictures, banners, buttons and GIF videos. You get extensive animation editing features, animation effects, unmatched image quality and optimization for the web. No other GIF animation software matches our features and ease of use, that's why Easy GIF Animator is so popular.</a>
-<!-- affiliate ads end -->
 ### **DIY gripping ‘Gorillapod’ using wire and tape**
 
 Gorillapod’s are cool because you can use them like normal tripods, carry them around like selfie sticks, or attach them to things like fences and posts. Here’s how you can make something similar using **wire**, **electrical tape** or **duct tape**, and a **1/4 bolt**.
@@ -124,9 +104,6 @@ _**Step 2:**_ After all the legs are attached, wrap some more tape around all 3 
 _Note: make sure the bolt is a fit for your camera before you get too far into this process._
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
-<!-- affiliate ads begin -->
-<a href="https://newchic.sjv.io/c/5597632/1659704/14420" target="_top" id="1659704"><img src="//a.impactradius-go.com/display-ad/14420-1659704" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1659704/14420" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -134,14 +111,11 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -150,6 +124,23 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-help.techidaily.com/new-from-draft-to-edit-essential-film-techniques-via-youtube/"><u>[New] From Draft to Edit Essential Film Techniques via YouTube</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-from-novice-to-master-the-ultimate-periscope-handbook/"><u>[New] From Novice to Master The Ultimate Periscope Handbook</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-prime-phone-video-and-image-capturing-best-apps-for-iphones-and-android/"><u>[New] In 2024, Prime Phone Video & Image Capturing Best Apps for iPhones and Android</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/trategic-steps-towards-uncovering-youtubes-secret-videos/"><u>[New] Strategic Steps Towards Uncovering YouTube's Secret Videos</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-2024-approved-effortlessly-engage-with-an-array-of-available-youtube-content/"><u>[Updated] 2024 Approved Effortlessly Engage with an Array of Available YouTube Content</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-discover-top-affordable-video-editors-of-2023-today/"><u>[Updated] Discover Top Affordable Video Editors of 2023 Today!</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-the-cutting-room-floor-experts-share-tips-on-video-editing-for-2024/"><u>[Updated] The Cutting Room Floor Experts Share Tips on Video Editing for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-unbeatable-video-popularity-tracker-in-youtube-arena-for-2024/"><u>[Updated] Unbeatable Video Popularity Tracker in YouTube Arena for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-your-youtube-shorts-have-been-restored-for-2024/"><u>[Updated] Your YouTube Shorts Have Been Restored for 2024</u></a></li>
+<li><a href="https://fox-info.techidaily.com/2024-approved-a-comprehensive-list-of-15-competitors-to-gopro-cameras/"><u>2024 Approved A Comprehensive List of 15 Competitors to GoPro Cameras</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/boost-your-capacity-20-premier-gratis-cloud-storage-options-for-2024/"><u>Boost Your Capacity 20 Premier Gratis Cloud Storage Options for 2024</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/clear-android-cache-effectively-a-comprehensive-tutorial/"><u>Clear Android Cache Effectively: A Comprehensive Tutorial</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/24-mastering-audio-and-visual-quality-in-youtube-videos/"><u>In 2024, Mastering Audio & Visual Quality in YouTube Videos</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/in-2024-transforming-your-twitter-feed-adding-custom-thumbnails-to-videos/"><u>In 2024, Transforming Your Twitter Feed Adding Custom Thumbnails to Videos</u></a></li>
+<li><a href="https://extra-support.techidaily.com/jestjungle-your-gateway-to-universal-comedy-for-2024/"><u>JestJungle Your Gateway to Universal Comedy for 2024</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/pro-capture-not-just-point-and-shoot-mastering-the-hero5-black-for-2024/"><u>Pro Capture, Not Just Point-and-Shoot Mastering the Hero5 Black for 2024</u></a></li>
+</ul></div>
 

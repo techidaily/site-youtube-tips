@@ -1,7 +1,7 @@
 ---
 title: "[New] Strategic Steps for Effective Annotations & Cards on Your YouTube Videos for 2024"
-date: 2025-02-10T02:23:26.191Z
-updated: 2025-02-15T19:03:23.487Z
+date: 2025-03-03T06:27:26.782Z
+updated: 2025-03-05T01:26:02.465Z
 tags:
   - ai video
   - ai youtube
@@ -50,10 +50,6 @@ The main difference between annotation and cards is their outlook. Cards are mor
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/OZQJUTr44rA?si=ADA0nD1VnXjR_sH0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## How to add YouTube Cards
 
 YouTube **Cards** are similar to annotations but more interactive. They allow the owner of the video to add images and other links. A small box appears, clicking on which will activate the cards.
@@ -66,10 +62,6 @@ YouTube **Cards** are similar to annotations but more interactive. They allow th
 * Click on the "Cards" tab
 
 ![](https://images.wondershare.com/filmora/article-images/youtube-cards01.png)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/K4lRBnNnd9k?si=5e0MbdOz-fF6Ry_k" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 * On the right panel click on "Add Card" drop down menu and select the type of card you want to add
 * Click on the create button which will open the corresponding video
@@ -90,18 +82,10 @@ YouTube Annotation is addition of a text layer, link or hotspots over your video
 
 ![](https://images.wondershare.com/filmora/article-images/add-annotations-to-youtube-video.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/On0Jw2oMZf0?si=Pm-FJoEt8XWmtMbr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 * On the right panel click on "+ Add Element" and select the kind of annotation you want to add
 * Adjust the position of Annotation, you can drag the rectangle to locate it at any position of the video, move the slide to set the start and end time of the annotation
 
 ![](https://images.wondershare.com/filmora/article-images/add-annotation-to-youtube-1.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/h5uImbOWmTg?si=z4kP-R0QbXbBAJTa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 * Apply changes
 
@@ -141,10 +125,6 @@ No matter what kind of annotations you are using, you should never use more than
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/vQbNyknjJJ8?si=RGVIEWLdPbvRC_r6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
@@ -166,24 +146,17 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-sure.techidaily.com/omparing-dailymovements-and-youtubes-income-models-for-2024/"><u>[New] Comparing DailyMovement's and Youtube's Income Models for 2024</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/n-2024-elevating-privacy-share-exclusive-youtube-clips-through-gmail/"><u>[New] In 2024, Elevating Privacy Share Exclusive YouTube Clips Through Gmail</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/n-2024-green-screen-mastery-essential-free-lessons-from-youtubes-best-4-channels/"><u>[New] In 2024, Green Screen Mastery Essential Free Lessons From YouTube's Best 4 Channels</u></a></li>
-<li><a href="https://facebook-video-files.techidaily.com/new-in-2024-solve-facebook-messenger-not-sending-videos-on-iphone-and-android/"><u>[New] In 2024, Solve “Facebook Messenger Not Sending Videos” On iPhone and Android</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/new-joke-jugglers-androids-in-the-dead-zone/"><u>[New] Joke Jugglers Androids in the Dead Zone</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-in-2024-stream-like-a-pro-on-youtube-best-webcams-reviewed/"><u>[Updated] In 2024, Stream Like a Pro on YouTube Best Webcams Reviewed</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-prime-selection-of-7-top-rated-android-adblocking-apps-for-2024/"><u>[Updated] Prime Selection of 7 Top-Rated Android AdBlocking Apps for 2024</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-transforming-video-tutorials-into-playable-animated-gifs-online/"><u>[Updated] Transforming Video Tutorials Into Playable Animated GIFs Online</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-youtube-triumphs-how-to-turn-your-cell-phone-into-an-editing-machine/"><u>[Updated] YouTube Triumphs How to Turn Your Cell Phone Into an Editing Machine</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/approved-pioneers-in-online-mastery-meet-up/"><u>2024 Approved Pioneers in Online Mastery Meet-Up</u></a></li>
-<li><a href="https://fox-http.techidaily.com/find-your-custom-box-top-10-online-stores-offering-tailored-packaging/"><u>Find Your Custom Box Top 10 Online Stores Offering Tailored Packaging</u></a></li>
-<li><a href="https://ios-unlock.techidaily.com/in-2024-how-to-unlock-disabled-iphone-14-pro-maxipad-without-computer-by-drfone-ios/"><u>In 2024, How to Unlock Disabled iPhone 14 Pro Max/iPad Without Computer</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/in-2024-top-10-best-spy-watches-for-your-motorola-moto-g14-drfone-by-drfone-virtual-android/"><u>In 2024, Top 10 Best Spy Watches For your Motorola Moto G14 | Dr.fone</u></a></li>
-<li><a href="https://win-answers.techidaily.com/solving-assassins-creed-origins-glitches-top-strategies-for-smooth-play/"><u>Solving Assassin's Creed Origins Glitches: Top Strategies for Smooth Play</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/top-5-low-cost-solar-panels-powering-your-tech-for-2024/"><u>Top 5 Low-Cost Solar Panels Powering Your Tech for 2024</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/el-the-mystery-of-the-overly-green-hue-in-mac-recordings-for-2024/"><u>Unravel the Mystery of the Overly Green Hue in Mac Recordings for 2024</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/for-cash-a-compreomed-analysis-of-monetization-plays/"><u>Vids for Cash A Compreomed Analysis of Monetization Plays</u></a></li>
-<li><a href="https://howto.techidaily.com/why-your-vivo-y56-5g-screen-might-be-unresponsive-and-how-to-fix-it-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Why Your Vivo Y56 5G Screen Might be Unresponsive and How to Fix It | Dr.fone</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/youtube-video-magic-comprehensive-editing-for-professionals/"><u>YouTube Video Magic Comprehensive Editing for Professionals</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-hidden-instagram-techniques-that-lead-to-success-for-2024/"><u>[New] Hidden Instagram Techniques That Lead to Success for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-hashtag-heroes-the-ultimate-list-for-popularizing-your-youtube-snippets/"><u>[New] In 2024, Hashtag Heroes The Ultimate List for Popularizing Your YouTube Snippets</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-comparative-livestrandexperience-analysis-twitch-and-youtube-for-2024/"><u>[Updated] Comparative Livestrandexperience Analysis Twitch & YouTube for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-the-filmmakers-guide-producing-engaging-youtube-splits-for-2024/"><u>[Updated] The Filmmaker's Guide Producing Engaging YouTube Splits for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/approved-mastering-the-art-of-freefire-a-gaming-youtubers-guide/"><u>2024 Approved Mastering the Art of FreeFire A Gaming Youtuber’s Guide</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/2024-approved-navigating-the-maze-to-find-your-ideal-4k-screen/"><u>2024 Approved Navigating the Maze to Find Your Ideal 4K Screen</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/2024-approved-preserving-your-online-reputation-amidst-faux-endorsements/"><u>2024 Approved Preserving Your Online Reputation Amidst Faux Endorsements</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/how-can-we-bypass-infinix-hot-30-5g-frp-by-drfone-android/"><u>How Can We Bypass Infinix Hot 30 5G FRP?</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/24-revenue-sharing-explained-maximizing-profits-with-snippet-videos/"><u>In 2024, Revenue Sharing Explained Maximizing Profits with Snippet Videos</u></a></li>
+<li><a href="https://win-blog.techidaily.com/navigating-and-fixing-minecrafts-troublesome-black-screen-issue-insider-tips/"><u>Navigating and Fixing Minecraft’s Troublesome Black Screen Issue – Insider Tips</u></a></li>
+<li><a href="https://win-latest.techidaily.com/quick-guide-high-quality-conversion-of-dvds-to-ipad-air-speedy-methods-explored/"><u>Quick Guide: High-Quality Conversion of DVDs to iPad Air - Speedy Methods Explored</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/-url-minification-the-best-tools-for-youtubers-convenience/"><u>Video URL Minification The Best Tools for Youtubers' Convenience</u></a></li>
 </ul></div>
 

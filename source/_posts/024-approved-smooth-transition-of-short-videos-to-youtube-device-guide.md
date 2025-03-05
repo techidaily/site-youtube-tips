@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Smooth Transition of Short Videos to YouTube - Device Guide\""
-date: 2024-08-15T22:46:52.812Z
-updated: 2024-08-16T22:46:52.812Z
+date: 2025-03-04T12:22:57.801Z
+updated: 2025-03-05T09:31:39.796Z
 tags:
   - ai video
   - ai youtube
@@ -76,18 +76,12 @@ For macOS 10.12 or later
 
 ---
 
-<!-- affiliate ads begin -->
-<a href="https://shop.manycam.com/order/checkout.php?PRODS=17729331&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/mcaffbanner600x500.png" border="0"></a>
-<!-- affiliate ads end -->
 ## Part 2: How to Upload Short Video on YouTube Mobile App?
 
 The process of **uploading YouTube Shorts** from the mobile app is fairly simple compared to the method used on a computer. While using the app, you can either upload an existing video or shoot a new one from within the program itself then and there, add music and text, and upload it right away. Both these methods are explained below in detail:
 
 **Note:** The guidelines for creating and uploading short videos to YouTube remain the same, regardless of the platform or device you use.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4699091&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/bccefcc1b1eee9eca3ae4f5c1a281482/products/1_jutoh-logo-1200x1600.jpg" border="0">Jutoh Plus -  Jutoh is an ebook creator for Epub, Kindle and more. It's fast, runs on Windows, Mac, and Linux, comes with a cover design editor, and allows book variations to be created with alternate text, style sheets and cover designs. Jutoh Plus adds scripting so you can automate ebook import and creation operations. It also allows customisation of ebook HTML via templates and source code documents; and you can create Windows CHM and wxWidgets HTB help files. </a>
-<!-- affiliate ads end -->
 ### Method 1: Upload an Existing Short Video
 
 **Note:** Make sure to have the target video on the smartphone and that you have downloaded, installed, and signed in to the YouTube app before proceeding.
@@ -95,9 +89,6 @@ The process of **uploading YouTube Shorts** from the mobile app is fairly simple
 #### Step 1: Select a Video to Upload
 
 ![Select a Video to Upload as Shorts](https://images.wondershare.com/filmora/article-images/select-shorts-videos-to-upload-on-youtube.jpg)
-<!-- affiliate ads begin -->
-<a href="https://zonlipartnershipprogram.pxf.io/c/5597632/1611407/17882" target="_top" id="1611407"><img src="//a.impactradius-go.com/display-ad/17882-1611407" border="0" alt="" width="300" height="485"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1611407/17882" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 On your Android or iOS smartphone, launch the YouTube app, tap the **+** (**Create**) icon from the bottom, tap **Create a Short** from the **Create** box that pops up from the bottom, tap **Upload** from the bottom-right corner of the next screen, and select and upload a short, 60 seconds video recorded in portrait orientation from your device’s storage to the app.
 
@@ -120,9 +111,6 @@ Previously, I have introduced [how to record and upload YouTube Shorts videos](h
 Please note you will not see the **Create a Short** option if you are outsides of India.
 
 ![Record YouTube Shorts video](https://images.wondershare.com/filmora/article-images/record-create-youtube-short-video-mobile.jpg)
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4709458&QTY=1&AFFILIATE=108875&CART=1"><img src="https://3d-kstudio.com/wp-content/uploads/2014/02/Project-Manager-3D-Models-4-800x800.jpg" border="0">Project Manager - Asset Browser for 3Ds Max</a>
-<!-- affiliate ads end -->
 
 In the YouTube app, tap the **+** (**Add**) button and select **Create** **a Short**. Please note you will not see the **Create a Short** option if you are outsides of India.
 
@@ -145,14 +133,8 @@ On the **Add details** window, enter a name for the video along with the **#Shor
 Learning the process of **how to post short videos on YouTube** is fairly simple as long as you have the video recorded in the portrait orientation, it is up to 60 seconds long, and contains the ‘#Shorts’ tag (without quotes) in the title or description. The good thing is, if you don’t have access to the YouTube app on your smartphone, the method for **how to upload short video on YouTube** explained in the first section can be followed while using your desktop computer.
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
-<!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BGeneral%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/general-970x90.gif" border="0"></a>
-<!-- affiliate ads end -->
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
-<!-- affiliate ads begin -->
-<a href="https://lightailing.sjv.io/c/5597632/1638364/17190" target="_top" id="1638364"><img src="//a.impactradius-go.com/display-ad/17190-1638364" border="0" alt="" width="1280" height="720"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1638364/17190" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -160,14 +142,11 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -176,6 +155,23 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-tips.techidaily.com/ackwards-play-mastering-youtube-video-reversals-for-2024/"><u>[New] Backwards Play Mastering YouTube Video Reversals for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-humor-havens-discovering-comedy-gems-on-youtube/"><u>[New] In 2024, Humor Havens Discovering Comedy Gems on YouTube</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/eel-them-in-a-step-by-step-approach-to-livestreaming-on-youtube/"><u>[New] Reel Them In A Step-by-Step Approach to Livestreaming on Youtube</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-convert-and-share-with-ease-selecting-the-top-flv-to-youtube-applications-for-2024/"><u>[Updated] Convert & Share with Ease Selecting the Top FLV-to-YouTube Applications for 2024</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/updated-non-standard-windows-media-development-tools/"><u>[Updated] Non-Standard Windows Media Development Tools</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-professional-selfies-elevating-your-online-presence-for-2024/"><u>[Updated] Professional Selfies Elevating Your Online Presence for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-surging-profits-with-three-steps-an-easy-way-to-tally-your-youtube-earning-for-2024/"><u>[Updated] Surging Profits with Three Steps An Easy Way to Tally Your YouTube Earning for 2024</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/apc-be600m1-uninterruptible-power-supply-assessment-featuring-a-reliable-battery-system-and-integrated-usb-charging/"><u>APC BE600M1 Uninterruptible Power Supply Assessment: Featuring a Reliable Battery System & Integrated USB Charging</u></a></li>
+<li><a href="https://win-dash.techidaily.com/direct-links-to-the-most-recent-nvidia-drivers-for-geforce-rtx-1080-on-windows-11-secure-and-fast-download/"><u>Direct Links to the Most Recent Nvidia Drivers for GeForce RTX 1080 on Windows 11 – Secure & Fast Download</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/t-guide-to-creating-compact-engaging-youtube-content-for-2024/"><u>Expert Guide to Creating Compact, Engaging YouTube Content for 2024</u></a></li>
+<li><a href="https://article-files.techidaily.com/in-2024-7-essential-gif-creation-techniques/"><u>In 2024, 7 Essential GIF Creation Techniques</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-how-to-reset-gmail-password-on-tecno-spark-20-pro-devices-by-drfone-android/"><u>In 2024, How to Reset Gmail Password on Tecno Spark 20 Pro Devices</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/in-2024-the-complete-guide-to-xiaomi-redmi-note-12-4g-frp-bypass-everything-you-need-to-know-by-drfone-android/"><u>In 2024, The Complete Guide to Xiaomi Redmi Note 12 4G FRP Bypass Everything You Need to Know</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/in-depth-assessment-of-nook-glowlight-4-reviews-and-features/"><u>In-Depth Assessment of Nook GlowLight 4: Reviews & Features</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/portable-balance-enhancer-for-shooting-blurs-for-2024/"><u>Portable Balance Enhancer for Shooting Blurs for 2024</u></a></li>
+<li><a href="https://app-tips.techidaily.com/swift-solutions-for-disabling-iphone-activation-via-apples-icloud-service/"><u>Swift Solutions for Disabling iPhone Activation via Apple's iCloud Service</u></a></li>
+</ul></div>
 

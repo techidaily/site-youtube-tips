@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  4 Ways To Set Up Your Talking-Head Shots For YouTube\""
-date: 2025-02-09T00:55:04.645Z
-updated: 2025-02-16T08:27:47.520Z
+date: 2025-03-01T00:12:56.744Z
+updated: 2025-03-05T06:49:05.616Z
 tags:
   - ai video
   - ai youtube
@@ -42,10 +42,6 @@ We’ve summarized the key points about setting up talking head style video shot
 
 ![ Setting up Talking Heads Video Shots for YouTube](https://images.wondershare.com/filmora/article-images/talking-heads-youtube-video-shots-set-up.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qObsqoJB9LI?si=ppqxfXzP0UL4J6Tp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## How to Set Up Your Talking-Head Shots for YouTube \[4 Ways\]
 
 ### 1.  Close Quarters Wide-Angle Vlog Set-Up
@@ -76,10 +72,6 @@ You can see from how even the background and couch looks across the entire camer
 
 It appears that, to the right of deadmau5 (camera left), there is a key light and to his left (camera right) there may be a fill light for additional lighting. Behind the couch, there’s also a background uplight to create depth between the subject and the background. At the 1:30 mark of this trailer video, you can briefly see how the Masterclass camera crew set up their shot.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/JMgRzDANfSQ?si=NDy01ntXGGOi1Uxs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 3.  Two Person Vlog Set-Up
 
 If your talking-head shot has got to include two people, you can use a similar set-up as the medium vlog set-up detailed above.
@@ -87,10 +79,6 @@ If your talking-head shot has got to include two people, you can use a similar s
 If you look back at the 39-second mark of deadmau5’s Masterclass trailer, you can see that there’s a lot of space to the left and right of deadmau5\. Now imagine the same shot but with two people.
 
 With two people, though, you’ll want to set up your mic slightly differently. Rather than using a directional shotgun mic with a narrow area of sensitivity, you’ll want to use a directional mic with a wider area of sensitivity.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/SDUPd69Qfls?si=uIGZG-riskwmVZYg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 4.  Long Teleprompter Vlog Set-Up
 
@@ -114,15 +102,7 @@ To make a talking-head video more interesting, you can add some background music
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/epKTCSREjhI?si=Ez_hObK1FZrmEE7f" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fJlICvacgJY?si=jNeijBVj7ia4ammA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -145,16 +125,18 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-access.techidaily.com/new-in-2024-evaluating-max-360-and-hero-11-the-ultimate-gopro-video-battle/"><u>[New] In 2024, Evaluating Max 360 & Hero 11 The Ultimate GoPro Video Battle</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/new-innovative-methods-for-creating-luts/"><u>[New] Innovative Methods for Creating LUTs</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-comprehensible-guide-to-high-quality-audios-on-youtube-for-2024/"><u>[Updated] Comprehensible Guide to High-Quality Audios on YouTube for 2024</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-massive-hit-videos-of-youtube-all-time-standouts/"><u>[Updated] Massive Hit Videos of YouTube All Time Standouts</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/approved-unlocking-mini-music-magic-tips-for-shortform-soundtracks/"><u>2024 Approved Unlocking Mini-Music Magic Tips for Shortform Soundtracks</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/e-with-colors-youtube-banner-creation-guide/"><u>Create with Colors YouTube Banner Creation Guide</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/how-to-transfer-music-from-motorola-moto-g73-5g-to-ipod-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Music from Motorola Moto G73 5G to iPod | Dr.fone</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-stream-anything-from-motorola-razr-40-ultra-to-apple-tv-drfone-by-drfone-android/"><u>In 2024, How To Stream Anything From Motorola Razr 40 Ultra to Apple TV | Dr.fone</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/proficient-approaches-to-purge-stickers-from-tiktoks-for-2024/"><u>Proficient Approaches to Purge Stickers From TikToks for 2024</u></a></li>
-<li><a href="https://change-location.techidaily.com/top-15-augmented-reality-games-like-pokemon-go-to-play-on-vivo-x-flip-drfone-by-drfone-virtual-android/"><u>Top 15 Augmented Reality Games Like Pokémon GO To Play On Vivo X Flip | Dr.fone</u></a></li>
-<li><a href="https://win-workspace.techidaily.com/tuto-guide-facile-a-suivre-pour-installer-windows-nouvelle-version-directement-en-externe-avec-cle-usb/"><u>Tuto-Guide Facile À Suivre Pour Installer Windows Nouvelle Version Directement en Externe Avec Clé USB.</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/dvanced-guide-to-virtual-backgrounds-in-videography/"><u>[New] Advanced Guide to Virtual Backgrounds in Videography</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-keep-your-youtube-stream-lining-in-background/"><u>[New] In 2024, Keep Your YouTube Stream Lining in Background</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/updated-2024-approved-from-novice-to-pro-an-extensive-guide-to-capturing-top-notch-audio-on-zoom/"><u>[Updated] 2024 Approved From Novice to Pro An Extensive Guide to Capturing Top-Notch Audio on Zoom</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/in-the-ideal-aspect-ratio-for-stunning-youtube-videos-for-2024/"><u>Dial in the Ideal Aspect Ratio for Stunning YouTube Videos for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/24-become-a-science-whiz-with-these-prime-15-youtube-picks/"><u>In 2024, Become a Science Whiz with These Prime 15 YouTube Picks</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/24-crafting-content-for-success-how-to-start-your-own-youtube-chanel/"><u>In 2024, Crafting Content for Success How to Start Your Own YouTube Chanel</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-how-to-change-netflix-location-to-get-more-country-version-on-motorola-moto-g-stylus-2023-drfone-by-drfone-virtual-android/"><u>In 2024, How to Change Netflix Location to Get More Country Version On Motorola Moto G Stylus (2023) | Dr.fone</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/24-quick-ways-to-reshuffle-youtube-tracks-on-pcphonetv/"><u>In 2024, Quick Ways to Reshuffle YouTube Tracks on PC/Phone/TV</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/is-it-worth-the-upgrade-a-comprehensive-guide-to-samsung-galaxy-s24-ultra-and-s23-ultra/"><u>Is It Worth the Upgrade? A Comprehensive Guide to Samsung Galaxy S24 Ultra and S23 Ultra</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/latest-hp-officejet-4650-print-driver-software-for-windows-systems/"><u>Latest HP OfficeJet 4650 Print Driver Software for Windows Systems</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/outstanding-affordability-meets-top-athletics-why-fossil-is-a-go-to-for-sports-enthusiasts/"><u>Outstanding Affordability Meets Top Athletics: Why Fossil Is a Go-To for Sports Enthusiasts</u></a></li>
+<li><a href="https://win-able.techidaily.com/overcoming-detected-errors-for-our-data-centers-in-halo-infinite-gameplay/"><u>Overcoming Detected Errors for Our Data Centers in Halo Infinite Gameplay</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ess-sound-shift-ultimate-guide-to-video-to-audio-tools-for-2024/"><u>Seamless Sound Shift Ultimate Guide to Video-to-Audio Tools for 2024</u></a></li>
 </ul></div>
 
