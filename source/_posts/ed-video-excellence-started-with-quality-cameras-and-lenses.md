@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Video Excellence Started with Quality Cameras and Lenses"
-date: 2025-02-02T00:51:06.302Z
-updated: 2025-02-04T19:38:11.522Z
+date: 2025-02-15T05:39:51.856Z
+updated: 2025-02-15T16:04:34.697Z
 tags:
   - ai video
   - ai youtube
@@ -32,7 +32,7 @@ A DSLR is the ideal camera for some vlogs, and using a DSLR means you get to cus
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/cKRBWf1EDZo?si=CTNd4q450biit4eM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GU08CQVsZz0?si=V-SvPfzRsQysMS0e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 1\. Understanding Lenses: Zoom lens, Fixed lens, aperture, f-stop
@@ -44,7 +44,7 @@ We have explained the differences between Fixed lens and Zoom lens and advantage
 Before we get into the recommendations here is a little background information on lenses in general:
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/yDuvbv0QOYI?si=byottcEM_Rrvi4EL" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=M69YSY0Mk_gsdU0Q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Beginner's Guide to Aperture and F-Stops
@@ -66,7 +66,7 @@ F-stops are written like ‘f/1.8’ or ‘f/4’ on your lens. For more informa
 **F-stops** or f-numbers indicate how open the aperture is, so for example if your camera is displaying f/32 value it means that your camera is letting very little light to get through to the camera's sensor. The f-number depends on a few other parameters such as shutter speed, exposure or ISO values. Large apertures provide a shallow depth of field which creates a smooth and artistic background blur, while a small aperture enables you to keep both the background and the foreground of your shot in focus.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/-Bov2KfWQ_Y?si=MnVczisgeJ-sGW2r" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JNxZ4Z6BVCg?si=522oz1OPSQDhNYWT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 2: Types of Camera Lenses
@@ -119,7 +119,7 @@ Canon released this lens in 2014 and shortly after it has gained the reputation 
 ![camera lens](https://images.wondershare.com/filmora/article-images/camera-lens-rec01.JPG)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/0nGlyEL5K6Y?si=3KZhTTBvKcPmyS68" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/djPqRkskaBo?si=O6FEI-KVW0HwN417" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 The EF 50mm is a fixed lens with an f-stop of 1.8, which means it is great for blurring your background and performs well even in poorer lighting conditions. This is a really great lens for an opinion or beauty vlog, where you do not need to move around. You can stay put right where the focus is sharpest and stand out by blurring everything behind you. If you tend to reuse the same sets then you do not really need a zoom feature. If your shooting conditions rarely change then it is just as easy to use a reliable fixed lens like the EF 50mm since you will not need to be rethinking your set up and adjusting.
@@ -134,6 +134,10 @@ Recording **moving objects** from a distance requires you to have a lens that al
 
 ![camera lens rec02](https://images.wondershare.com/filmora/article-images/camera-lens-rec02.JPG)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fvAC8jgs62o?si=xqEXZ7dpAXZ4sZ7A" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 The Tamron's standard zoom lens offers good value at a very reasonable price. The maximum aperture is f/2.8, while the minimum aperture value this lens supports is f/32, which means that its users can easily experiment with different **depths of field.** The lens is **compatible with most Canon cameras** so if you have a camera from another manufacturer you may have to use the lens adapter in order to mount it onto your camera. Like most standard zoom lenses, Tamron SP AF model is **highly versatile** and you can use it to record **a wide range of different scenes**.
 
 A lot of zoom lenses do not have wide enough apertures to create blurred backgrounds, but this Tamron lens is an exception at f/2.8\. This low f-stop also means that it performs better in poor lighting conditions than a lot of other zoom lenses. If your shooting conditions change a lot – if you often change locations, for example – then it will be good to have a sturdy, well-built, zoom lens like the AF 17-mm that can be quickly adapted to new angles and distances.
@@ -145,10 +149,6 @@ All Sony's APS-C format E mount cameras are compatible with this multi-purpose l
 If you are using a 4k camera to shoot your YouTube video, check out [best camera lens for 4k professional production.](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/C3cJe7Wgn6I?si=EckDFML-VJ_2sYz8" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -171,14 +171,18 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://some-approaches.techidaily.com/new-perfected-edits-on-the-go-leading-apps-for-macos-big-surs-video-editors/"><u>[New] Perfected Edits on the Go Leading Apps for macOS Big Sur's Video Editors</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/updated-experience-unlimited-recording-review-of-free-screen-tools-for-cameras/"><u>[Updated] Experience Unlimited Recording – Review of Free Screen Tools for Cameras</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-mirthful-melodies-best-song-caricatures/"><u>[Updated] Mirthful Melodies Best Song Caricatures</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-unleashing-creativity-in-education-making-amazing-videography-a-reality-on-youtube-for-2024/"><u>[Updated] Unleashing Creativity in Education Making Amazing Videography a Reality on YouTube for 2024</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/2024-approved-high-end-psd-lighting-tweaks/"><u>2024 Approved High-End PSD Lighting Tweaks</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/approved-imovie-clip-integration-into-youtubes-vast-network/"><u>2024 Approved IMovie Clip Integration Into YouTube's Vast Network</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/craft-the-perfect-livestream-on-youtube-and-twitch-with-obs/"><u>Craft the Perfect Livestream on YouTube & Twitch with OBS</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/superior-stellar-file-destruction-pro-the-go-to-scheduled-eraser-for-mac-users/"><u>Superior Stellar File Destruction Pro: The Go-To Scheduled Eraser for MAC Users</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/unpacking-language-processing-vs-learning-techniques/"><u>Unpacking Language Processing vs Learning Techniques</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/onvert-and-share-optimal-tools-for-youtube-to-avi-transfers-for-2024/"><u>[New] Convert & Share Optimal Tools for YouTube-to-AVI Transfers for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-digital-broadcasting-platform-critique-for-2024/"><u>[Updated] Digital Broadcasting Platform Critique for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-ghostly-replay-techniques-for-editors/"><u>[Updated] Ghostly Replay Techniques for Editors</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-the-fundamentals-of-earnings-on-youtube/"><u>[Updated] The Fundamentals of Earnings on YouTube</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-the-ultimate-comparison-of-gif-creators/"><u>[Updated] The Ultimate Comparison of GIF Creators</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/2024-approved-comprehensive-guide-to-adding-music-icons-in-instagram-posts/"><u>2024 Approved Comprehensive Guide to Adding Music Icons in Instagram Posts</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/approved-from-tape-to-trending-seamless-mp3-to-youtube-transition/"><u>2024 Approved From Tape to Trending Seamless MP3 to YouTube Transition</u></a></li>
+<li><a href="https://blog-min.techidaily.com/5-ways-to-teach-you-to-transfer-files-from-zte-nubia-flip-5g-to-other-android-devices-easily-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>5 Ways To Teach You To Transfer Files from ZTE Nubia Flip 5G to Other Android Devices Easily | Dr.fone</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/download-the-latest-zexmt-smartphone-compatible-bluetooth-driver-for-windows-11-8-and-7/"><u>Download the Latest ZEXMT Smartphone Compatible Bluetooth Driver for Windows 11, 8 & 7</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-3-ways-to-track-infinix-smart-8-plus-without-them-knowing-drfone-by-drfone-virtual-android/"><u>In 2024, 3 Ways to Track Infinix Smart 8 Plus without Them Knowing | Dr.fone</u></a></li>
+<li><a href="https://program-issues.techidaily.com/mastering-the-art-of-starting-fallout-3-proven-fixes-and-guides/"><u>Mastering the Art of Starting Fallout 3: Proven Fixes and Guides</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/return-engineer-toolkit-for-2024/"><u>Return Engineer Toolkit for 2024</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/top-4-irresistible-features-of-apples-latest-ipad-air-insider-perspective-that-makes-you-want-one/"><u>Top 4 Irresistible Features of Apple's Latest iPad Air: Insider Perspective That Makes You Want One!</u></a></li>
 </ul></div>
 

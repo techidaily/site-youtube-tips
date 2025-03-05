@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Transforming Views Into Virtual Winnings  YouTube Edition\""
-date: 2025-01-20T09:44:14.165Z
-updated: 2025-01-24T19:22:36.511Z
+date: 2025-02-09T22:39:28.100Z
+updated: 2025-02-16T07:15:42.349Z
 tags:
   - ai video
   - ai youtube
@@ -83,6 +83,10 @@ You'll need to ensure that you have a Google Adsense account set up and ready to
 
 We know that making money from YouTube can be challenging but not impossible. We'll help you figure out how to get paid. Whether you want to create your videos and monetize them or you want to take advantage of the huge pool of talent. We'll show you what the impact of the Youtube Partner program is on the revenue of YouTube channel owners:
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/hXIq2G0nShk?si=5Z4Fwv7ZB6oKWsdd" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Video length
 
 One of the most noteworthy characteristics of a YouTube video is its length. A longer video provides a greater amount of information, which means a greater likelihood of the viewer actually watching it to completion.
@@ -95,13 +99,13 @@ The two main qualities that differentiate high-quality YouTube ads are relevance
 
 The number of times your video ad is shown is an important factor in how much it makes. You can increase your ads' revenue potential by increasing the ad's number of clicks. Advertisers use this metric to gauge the effectiveness of their campaigns, which is why optimizing the number of clicks your ads get is so important.
 
-### Ad Blockers
-
-And there are two problems with ad blocking. The first is that it cuts off revenue. The second problem is that it reduces user engagement. Ad blocking decreases the amount of time that users spend watching videos. Youtube videos that rely on advertising to generate revenue may decrease their income.
-
 <!-- affiliate ads begin -->
 <iframe width="560" height="315" src="https://www.youtube.com/embed/4DJKH1uY7P0?si=tCG66XVlbwSKoATj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
+### Ad Blockers
+
+And there are two problems with ad blocking. The first is that it cuts off revenue. The second problem is that it reduces user engagement. Ad blocking decreases the amount of time that users spend watching videos. Youtube videos that rely on advertising to generate revenue may decrease their income.
 
 ### Bonus: See how much you can get by YouTube Pay Calculator
 
@@ -125,10 +129,6 @@ This tool only requires your channel URL. Copy and paste the URL and click 'Chec
 
 ![total earnings by channel and video](https://images.wondershare.com/filmora/article-images/2022/11/how-does-youtube-pay-you-3.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LlVkEwpjKKo?si=hXi-mchMaJvbnIzM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 The Youtube money calculator will show you the exact profit you are earning per day and will let you track your earnings daily, weekly and monthly. You can use the youtube money calculator to see if you should stop or continue your videos. You will also get to know how to improve your income.
 
 ### How does YouTube send you money? Illustrate the mechanism
@@ -146,6 +146,10 @@ The videos and the ads you'll put on your channel will get you money from Youtub
 When you think about the top YouTube earners, most name recognition is due to big-name influencers like PewDiePie and T-Series. Both these Youtubers, and the rest of the big names like Emma Chamberlain, Ryan Higa, Markiplier, and Hannah Hart, have significantly impacted the world of YouTube by becoming some of the best at what they do.
 
 Now you must be wondering who the richest YouTubers are. We rounded up the top of the richest YouTubers in 2022\. Read on to see which YouTube celebrities are worth the most.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/mK1lEBRm_1w?si=FSaM0OKO0XBCgjtT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 20\. [Emma Chamberlain](https://www.youtube.com/c/emmachamberlain)– $12 million
 
@@ -175,6 +179,10 @@ David, a viral social media star, has gathered 18.2 million subscribers and over
 
 Nastya is an eight-year-old Russian girl who, in just a few years, has become one of the known children's YouTubers in the world. Nowadays, she has over 110 million subscribers combining her six channels with over 42 billion views. In 2017, she partnered with Yoolato to monetize the content. It was worth it – Radzinskaya is now worth a massive $20 million.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UUPt2zKtJ5k?si=LLHdsFDLzVByJsKj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 13\. [Rhett McLaughlin and Link Neal](https://www.youtube.com/c/rhettandlink)– $20 million
 
 They are Best known as the comedy duo Rhett and Link, one of the best comedy channels on youtube. Their YouTube channel has made them a combined $20 million fortune thanks to the success of their TV show Good Mythical Morning, which currently has around 17.5 million subscribers and over 7.8 billion views.
@@ -191,10 +199,6 @@ Preston Arsement has made it to Forbes magazine as one of the most paid internet
 
 James Charles is a makeup artist who started by making YouTube videos about makeup tutorials and has since made a career. His makeup collection and clothing line business, along with youtube tutorials, made him a fortune of $22 million.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/PNw3Lb26wFA?si=5NR1XRVSp41EQYMy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 9\. [Evan Fong](https://www.youtube.com/user/VanossGaming) – $25 million
 
 Evan Fong started the channel VanossGaming, which produces gaming videos on YouTube. His channel was launched in 2011 and now has over 25 million subscribers and over 7 billion views. His career as a star in computer animated series and directory in games made him an estimated worth of $25 million.
@@ -208,7 +212,7 @@ Jimmy's YouTube career started in 2012 at the age of 13\. With over 100 million 
 Daniel Middleton has made millions from his gaming YouTube channel DanTDM. He's got 26 million subscribers and 10 billion views. This man also amassed a fortune of more than $35 million and set many world records in the most popular games.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LBCobAYzzcc?si=J3eSTQ3AdyxWAjGo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DxUX4R6Cf7c?si=prHevNQJivSkIfUt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 6\. [Mark Fischbach (AKA Markiplier)](https://www.youtube.com/c/markiplier) – $35 million
@@ -224,7 +228,7 @@ Pewdiepie channel is often among the most subscribed channels on YouTube, and to
 Logan is one of the most popular YouTubers of today's generation. His channel of 23.6 million subscribers, along with successful merchandise and boxing career, make a total worth of $45 million.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/jpdGEJJwMLY?si=eKgXOPpNeYvYKcel" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/5FWCFI3f_cs?si=Kt2Onr_E4c616tbH" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 3\. [Dude Perfect](https://www.youtube.com/c/DudePerfect) \- $50 million
@@ -254,10 +258,6 @@ Creating content that is both entertaining and informative helps people to make 
 A powerful video editing software can help you a lot. With an impactful editor software like Filmora, it allows you to add titles, music, and transition effects to give your video more visual appeal.
 
 ![total earnings by channel and video](https://images.wondershare.com/filmora/article-images/2022/11/how-does-youtube-pay-you-4.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/P6Wfzj6YNDM?si=WRZQD9zCdQ1_tW1b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 The current most popular video editing software application on the market is, hands down, Wondershare Filmora. Editing is incredibly easy with Filmora. Even the most inexperienced user can create a compelling, professional-looking video with Filmora in minutes. With Filmora's video creation tools, anyone can easily edit, add effects, change text, and even make voiceovers. Filmora's intuitive interface is a dream for non-experts as well. Some of its unique features include:
 
@@ -293,6 +293,10 @@ But brands tend to sponsor only content deemed relevant to the brand. So if you 
 
 ## Hot FAQs on YouTube channel monetization
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YezPJZzPJ8Q?si=xF1t4BQHFquzvnzE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 1\. What if I don't meet the program threshold?
 
 While trying to meet the threshold, focus on making content that will stand out from the competition and build your channel.
@@ -300,10 +304,6 @@ While trying to meet the threshold, focus on making content that will stand out 
 ### 2\. If I meet the threshold, do I automatically get into the YouTube Partner Program (YPP)?
 
 No, the Youtube team will review every channel that passes the threshold. You cannot apply to join the YPP if your account has any active Community Guidelines strike. Plus, your channel must follow Youtube policies and guidelines.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/y3VlwHTQQMs?si=BXYwD1pKiaTuev4y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 3\. How much money does 1 million views make?
 
@@ -326,6 +326,10 @@ As a YouTuber, do you feel like you're always struggling to reach some "threshol
 ### 1\. 1K subscribers
 
 The first requirement to monetize your channel is to increase your subscribers to at least 1000.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/umvX4ZdWbxk?si=tPXL0-Kzf9SQaY8z" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 2\. Follow all the YouTube channel monetization policies
 
@@ -354,10 +358,6 @@ We know that making money from YouTube can be challenging but not impossible. We
 ### Video length
 
 One of the most noteworthy characteristics of a YouTube video is its length. A longer video provides a greater amount of information, which means a greater likelihood of the viewer actually watching it to completion.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/6kzbT13ds3M?si=hBInu0Or-cX2ANJF" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Ad Quality
 
@@ -419,6 +419,10 @@ Emma Chamberlain, a vlogger and a social media personality, has a net worth of $
 
 Roman Atwood became famous with prank videos on his YouTube channel back in 2009\. He started another channel, "RomanAtwoodVlogs", which now has over 15.5 million subscribers and 5.5 billion views. Total of all his endeavors is a staggering net worth of $14.5 million.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1rCjQ09iG7s?si=Si1fUBric8MH1VHI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 18\. [JJ Olatunji (AKA KSI)](https://www.youtube.com/user/KSIOlajidebtHD) – $15 million
 
 KSI is number 18 on our list, with a net worth of $15 million. In 2009, he created a new channel under the name moniker KSI. Now his channel has about 23.7 million subscribers and over 5.8 billion views.
@@ -438,6 +442,10 @@ David, a viral social media star, has gathered 18.2 million subscribers and over
 ### 14\. [Anastasia Radzinskaya (AKA Like Nastya)](https://www.youtube.com/channel/UCJplp5SjeGSdVdwsfb9Q7lQ) – $20 million
 
 Nastya is an eight-year-old Russian girl who, in just a few years, has become one of the known children's YouTubers in the world. Nowadays, she has over 110 million subscribers combining her six channels with over 42 billion views. In 2017, she partnered with Yoolato to monetize the content. It was worth it – Radzinskaya is now worth a massive $20 million.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FLO5dwmJAVs?si=1OYH8rv8aPaMsCiU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 13\. [Rhett McLaughlin and Link Neal](https://www.youtube.com/c/rhettandlink)– $20 million
 
@@ -462,10 +470,6 @@ Evan Fong started the channel VanossGaming, which produces gaming videos on YouT
 ### 8\. [Jimmy Donaldson (AKA MrBeast)](https://www.youtube.com/user/MrBeast6000) – $25 million
 
 Jimmy's YouTube career started in 2012 at the age of 13\. With over 100 million subscribers and more than 22.5 billion views on his multiple channels, this social media king is in a league of his own. MrBeast, who can afford to give away $1 million in a single video, has a net worth of $25 million.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/epKTCSREjhI?si=Ez_hObK1FZrmEE7f" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 7\. [Daniel Middleton](https://www.youtube.com/c/DanTDM) – $35 million
 
@@ -494,10 +498,6 @@ Logan's little brother Jake Paul started his content creation career at 16\. His
 ### 1\. [Ryan Kaji](https://www.youtube.com/c/RyanToysReview/featured) – $100 million
 
 You don't normally meet a 10-year-old with a $100 million fortune, but Ryan Kaji is a rare exception. Ryan's toy reviews have attracted more than two million subscribers and more than 50.7 billion views.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/e4Nt2xXXtmE?si=CtKwFry4b0AJXnaN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Part 4: Alternative ways to earn more money from YouTube
 
@@ -592,20 +592,16 @@ Your content must be unique so your viewers will want to stick around and engage
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-files.techidaily.com/new-deep-insight-into-using-google-writers-tools-for-audio-conversion/"><u>[New] Deep Insight Into Using Google' Writers Tools for Audio Conversion</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/rom-live-action-to-youtube-recording-your-device-display-for-2024/"><u>[New] From Live Action to YouTube Recording Your Device Display for 2024</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/n-2024-how-to-make-a-playlist-on-youtube/"><u>[New] In 2024, How to Make a Playlist on YouTube</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-affordable-tutorial-on-professional-looking-youtube-introsends-for-2024/"><u>[Updated] Affordable Tutorial on Professional Looking YouTube Intros/Ends for 2024</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/updated-brushstrokes-of-color-expert-shift-strategies/"><u>[Updated] Brushstrokes of Color Expert Shift Strategies</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-leading-5-video-editors-outside-youtube-realm-for-2024/"><u>[Updated] Leading 5 Video Editors Outside YouTube Realm for 2024</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-step-by-step-success-on-youtube-with-spectacision-music-videos-for-2024/"><u>[Updated] Step-by-Step Success on Youtube with Spectacision Music Videos for 2024</u></a></li>
-<li><a href="https://techidaily.com/complete-tutorial-for-honor-70-lite-5g-hard-reset-drfone-by-drfone-reset-android-reset-android/"><u>Complete Tutorial for Honor 70 Lite 5G Hard Reset | Dr.fone</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/connect-airpods-to-hp-pc-effortlessly-the-ultimate-how-to-tutorial/"><u>Connect AirPods to HP PC Effortlessly - The Ultimate How-To Tutorial</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/essential-ingredients-for-triumphant-tiktok-marketing-plans-for-2024/"><u>Essential Ingredients for Triumphant TikTok Marketing Plans for 2024</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/in-2024-elevate-your-digital-presence-mastering-the-art-of-video-reacts/"><u>In 2024, Elevate Your Digital Presence Mastering the Art of Video Reacts</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-how-to-come-up-with-the-best-pokemon-team-on-tecno-pova-5-pro-drfone-by-drfone-virtual-android/"><u>In 2024, How to Come up With the Best Pokemon Team On Tecno Pova 5 Pro? | Dr.fone</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/in-2024-talecraft-triumphs-the-leading-academies-in-narrative-arts/"><u>In 2024, Talecraft Triumphs The Leading Academies in Narrative Arts</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/nd-youtube-a-beginners-live-stream-blueprint/"><u>OBS and Youtube A Beginner's Live Stream Blueprint</u></a></li>
-<li><a href="https://os-tips.techidaily.com/why-unsubscribing-from-apple-arcade-is-out-of-the-question-a-deep-dive-into-three-compelling-reasons/"><u>Why Unsubscribing From Apple Arcade Is Out of the Question: A Deep Dive Into Three Compelling Reasons</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/024-approved-transform-your-channels-image-a-pathway-to-more-subscribers-and-followers/"><u>[New] 2024 Approved Transform Your Channels' Image A Pathway to More Subscribers and Followers</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/new-navigating-whatsapp-with-ease-advanced-functions-revealed/"><u>[New] Navigating WhatsApp with Ease Advanced Functions Revealed</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-strategic-steps-for-effective-annotations-and-cards-on-your-youtube-videos/"><u>[Updated] 2024 Approved Strategic Steps for Effective Annotations & Cards on Your YouTube Videos</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-in-2024-newly-eligible-users-see-revenue-uplift/"><u>[Updated] In 2024, Newly Eligible Users See Revenue Uplift</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-unveiling-15-favorite-youtube-video-intros-for-2024/"><u>[Updated] Unveiling 15 Favorite YouTube Video Intros for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/approved-analyzing-youtubes-process-for-selective-comment-showcasing/"><u>2024 Approved Analyzing YouTube's Process for Selective Comment Showcasing</u></a></li>
+<li><a href="https://fox-web3.techidaily.com/easy-to-follow-tutorial-on-deploying-activex-controls-in-projects/"><u>Easy-to-Follow Tutorial on Deploying ActiveX Controls in Projects</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/effortless-enhancement-streamlined-file-exploration-for-windows-11/"><u>Effortless Enhancement: Streamlined File Exploration for Windows 11</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-complete-review-and-guide-to-techeligible-frp-bypass-and-more-for-poco-c55-by-drfone-android/"><u>In 2024, Complete Review & Guide to Techeligible FRP Bypass and More For Poco C55</u></a></li>
+<li><a href="https://win-community.techidaily.com/keep-your-system-safe-a-guide-on-regularly-installing-operating-system-patches-with-advice-from-yl-software-gurus/"><u>Keep Your System Safe: A Guide on Regularly Installing Operating System Patches with Advice From YL Software Gurus</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/leading-ipads-detailed-inspections-and-expert-opinions-featured/"><u>Leading iPads : Detailed Inspections & Expert Opinions Featured</u></a></li>
 </ul></div>
 

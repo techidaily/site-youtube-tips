@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Unlock Free YouTube Intro/End Customization\""
-date: 2024-07-29T14:00:05.957Z
-updated: 2024-07-30T14:00:05.957Z
+date: 2025-02-12T05:28:57.900Z
+updated: 2025-02-16T10:30:34.432Z
 tags:
   - ai video
   - ai youtube
@@ -18,9 +18,6 @@ thumbnail: https://thmb.techidaily.com/32c4cc7803fd0fa7e8699abcd5e09dfd5773975b7
 
 # How to Create YouTube Intros & End Cards - Free and Easy
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620780&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/728__90banner.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ![](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 ##### Shanoon Cox
@@ -44,8 +41,9 @@ thumbnail: https://thmb.techidaily.com/32c4cc7803fd0fa7e8699abcd5e09dfd5773975b7
 [How To Make an End Card](#how-to)
 
 <!-- affiliate ads begin -->
-<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BSysTools%2BPDF%2BUnlocker"><img src="https://www.systoolsgroup.com/box/pdf-unlocker.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/E3yY7lZ-FKA?si=g8VEuExP8GH59B69" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Part1: Intros
 
 #### Elements of an Intro
@@ -72,10 +70,11 @@ This is another site with really professional looking intros for $5\. They only 
 
 You can create a simple intro card in **Filmora**.
 
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2090698/16836" target="_top" id="2090698"><img src="//a.impactradius-go.com/display-ad/16836-2090698" border="0" alt="" width="720" height="300"/></a>
-<!-- affiliate ads end -->
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3koT_-kvbks?si=sQV7FzPiz6GYITrE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 1. Choose your background. You may want to use a short clip as your intro, or you may just want a colored background.
 2. Drag your clip or background into the video track of your timeline and trim it down to five seconds.
@@ -87,8 +86,9 @@ You can create a simple intro card in **Filmora**.
 8. Export your video and save it for use in all of your other videos.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=2337838&QTY=1&AFFILIATE=108875&CART=1"><iframe width="640" height="390" src="https://www.youtube.com/embed/rzZwphIv4RM" title="APFill - Ink and Toner Coverage Calculator" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/sXLLPY11of0?si=-3YNnpnO0wbc0K_-" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Part 2: End Cards
 
 When your video ends, YouTube will recommend a selection of videos users may want to watch next. Often, these recommendations will not include more of your videos.
@@ -122,10 +122,11 @@ Some creators will leave their end cards at that and play music overtop, but it 
 13. Repeat for any other thumbnails. For your subscribe button, change where it said ‘Video’ to ‘Subscribe’ and enter your channel URL.
 14. Click **Apply Changes**.
 
-<!-- affiliate ads begin -->
-<a href="https://store.absolute.com/order/checkout.php?PRODS=4601998&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/ef70e26a0b5da778eda3f48014d087cd/728x90_larger-shield.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/lCpzYpVPIZA?si=hNte-mPRIzjvqpRy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Shanoon Cox
 
@@ -133,14 +134,11 @@ Shanoon Cox is a writer and a lover of all things video.
 
 Follow @Shanoon Cox
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -149,4 +147,21 @@ Follow @Shanoon Cox
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-unlock-the-secret-to-massive-engagement-3-top-tips-for-making-powerful-two-pov-reaction-videos-on-youtube/"><u>[New] In 2024, Unlock the Secret to Massive Engagement 3 Top Tips for Making Powerful Two-POV Reaction Videos on YouTube</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/op-10-free-stock-footage-websites-you-should-know/"><u>[New] Top 10 Free Stock Footage Websites You Should Know</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-2024-approved-make-a-statement-with-free-profile-pics/"><u>[Updated] 2024 Approved Make a Statement With Free Profile Pics</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-hourly-high-stakes-views-yts-1-to-10-rankings-for-2024/"><u>[Updated] Hourly High-Stakes Views YT's #1 to #10 Rankings for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-in-2024-googles-quick-fix-for-photo-collage-enthusiasts/"><u>[Updated] In 2024, Google's Quick Fix for Photo Collage Enthusiasts</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-your-essential-guide-to-mobile-asmr-sounds/"><u>[Updated] Your Essential Guide to Mobile ASMR Sounds</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/2024-approved-clear-images-made-easy-picart-backdrop-takedown-technique/"><u>2024 Approved Clear Images Made Easy PicArt Backdrop Takedown Technique</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/2024-approved-top-5-economical-hd-camcorders-for-adventure/"><u>2024 Approved Top 5 Economical HD Camcorders for Adventure</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-data-from-realme-note-50-to-other-android-devices-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Data from Realme Note 50 to Other Android Devices? | Dr.fone</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ring-online-monetization-with-universal-studio-use/"><u>Mastering Online Monetization with Universal Studio Use</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-the-world-of-facebook-group-queries/"><u>Navigating the World of Facebook Group Queries</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/prueba-y-analisis-comparativo-entre-winx-dvd-ripper-y-handbrake-escogiendo-la-herramienta-gratuita-de-rip-de-dvd-mas-eficiente/"><u>Prueba Y Análisis Comparativo Entre WinX DVD Ripper Y HandBrake: Escogiendo La Herramienta Gratuita De Rip De DVD Más Eficiente</u></a></li>
+<li><a href="https://some-tips.techidaily.com/unveiling-the-truth-is-googles-lamda-authentically-intelligent-or-a-clever-chatbot-imitation-zdnet-analysis/"><u>Unveiling the Truth: Is Google's LaMDA Authentically Intelligent or a Clever Chatbot Imitation (ZDNet Analysis)</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/next-best-source-for-world-exploration/"><u>Your Next-Best Source for World Exploration</u></a></li>
+</ul></div>
 

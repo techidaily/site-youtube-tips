@@ -1,7 +1,7 @@
 ---
 title: "The Art of Video Thumbnail Making for Popular Content for 2024"
-date: 2025-02-03T09:17:49.552Z
-updated: 2025-02-04T18:43:38.651Z
+date: 2025-02-11T02:35:07.414Z
+updated: 2025-02-16T07:19:40.362Z
 tags:
   - ai video
   - ai youtube
@@ -44,7 +44,7 @@ Here are 5 easy tips for creating thumbnails that get views.
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fJlICvacgJY?si=jNeijBVj7ia4ammA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/y3VlwHTQQMs?si=BXYwD1pKiaTuev4y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Edit Your Videos Before Creating Video Thumbnails
@@ -52,7 +52,7 @@ Here are 5 easy tips for creating thumbnails that get views.
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/KaqfZcWg5sE?si=LPmSKk7AFp8VxDFD" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_7AYCS7zBU0?si=7R9oIpE4hyEbtk3x" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 1\. Have a Consistent Layout
@@ -62,6 +62,10 @@ Your thumbnails all must look like part of the same set. You want viewers to rec
 An example of a standard layout could be you in the middle of the screen wearing an expression that matches the theme of your video, with your title written underneath your face. Every individual thumbnail would still be different, but you and the text would always be in the same spot.
 
 ![Consistent Layout](https://images.wondershare.com/filmora/article-images/consistent-layout.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/7JBG_O3Vnh4?si=lUO0fta6YPJ50qjg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **2\. Use Your Face**
 
@@ -75,10 +79,6 @@ Anybody can take a screenshot of themselves in their video and use it as a thumb
 
 Make sure the images you choose are relevant to the topic of your video.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qNrOsjUdRz0?si=xGzhmNmtgxNTsRxN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## 4\. Make Your Text Huge
 
 If you use text in your thumbnail (you don’t have to) then it should be to add context. For example, if the main image is just you smiling then you might need some text to let viewers know the video is a makeup tutorial.
@@ -86,7 +86,7 @@ If you use text in your thumbnail (you don’t have to) then it should be to add
 Thumbnails might look large while you’re putting them together in your image editor, but when they’re displayed on YouTube they’re a lot smaller. That goes double if a viewer is watching on their phone. So, make sure that any text you use is large enough that it can be read easily on small screens.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9Jfq2Wx1Bcs?si=YQrYpTy0g4aV5QaO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/wNhKhWc0wLc?si=1XLYV0sXV52Xc0lu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 5\. Keep it Clutter-Free
@@ -102,7 +102,7 @@ Use these tips to make video thumbnails for YouTube, and tell us what kind of re
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/OZQJUTr44rA?si=ADA0nD1VnXjR_sH0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/OdlXe5RELW0?si=Iz1H1QnLQVw-Eu3e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -126,16 +126,21 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-video-capture.techidaily.com/new-2024-approved-effortlessly-record-high-quality-mac-audio-using-audacity/"><u>[New] 2024 Approved Effortlessly Record High-Quality Mac Audio Using Audacity</u></a></li>
-<li><a href="https://article-posts.techidaily.com/new-2024-approved-individual-differences/"><u>[New] 2024 Approved Individual Differences</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/he-audio-advantage-elevating-sound-quality-in-youtube-productions/"><u>[New] The Audio Advantage Elevating Sound Quality in YouTube Productions</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/updated-in-2024-secrets-of-the-masters-top-6-signature-removal-apps-revealed/"><u>[Updated] In 2024, Secrets of the Masters Top 6 Signature Removal Apps Revealed</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-mastering-youtubes-networking-finding-and-creating-video-co-ops/"><u>[Updated] Mastering YouTube's Networking Finding and Creating Video Co-Ops</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-rethink-your-youtube-videos-with-these-non-youtube-edits-for-2024/"><u>[Updated] Rethink Your YouTube Videos with These Non-Youtube Edits for 2024</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-video-wizardry-your-guide-to-the-top-10-editing-hacks-for-2024/"><u>[Updated] Video Wizardry Your Guide to the Top 10 Editing Hacks for 2024</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/cast-excellence-incorrante-video-loops-into-television/"><u>Broadcast Excellence Incorrante Video Loops Into Television</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/expanding-your-social-horizon-connect-tiktok-to-facebook-for-2024/"><u>Expanding Your Social Horizon Connect TikTok to Facebook for 2024</u></a></li>
-<li><a href="https://apple-account.techidaily.com/how-to-reset-the-security-questions-of-your-apple-id-from-your-iphone-7-by-drfone-ios/"><u>How To Reset the Security Questions of Your Apple ID From Your iPhone 7</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/path-to-youtube-prominence-effective-tactics-unveiled/"><u>Your Path to YouTube Prominence Effective Tactics Unveiled</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-crafting-a-pro-sports-youtube-feed-on-macos/"><u>[New] 2024 Approved Crafting a Pro Sports YouTube Feed on MacOS</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/iscover-top-ten-unforgettable-youtube-vr-videos/"><u>[New] Discover Top Ten Unforgettable YouTube VR Videos</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-in-2024-navigating-googles-podcast-uploading-guide/"><u>[New] In 2024, Navigating Google's Podcast Uploading Guide</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/aunch-free-youtube-events-a-step-by-step-guide/"><u>[New] Launch Free Youtube Events A Step-by-Step Guide</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/he-initial-step-in-youtube-fame-account-registration/"><u>[New] The Initial Step in YouTube Fame Account Registration</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/updated-harnessing-the-power-of-azure-transcript-services/"><u>[Updated] Harnessing the Power of Azure Transcript Services</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-in-2024-bridging-youtube-and-imovie-with-seamless-audio-transfer/"><u>[Updated] In 2024, Bridging YouTube and iMovie with Seamless Audio Transfer</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-in-2024-whos-gaining-thunder-in-the-video-cosmos/"><u>[Updated] In 2024, Who's Gaining Thunder in the Video Cosmos?</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-shine-on-mastering-the-art-of-illumination-for-youtube-videos-for-2024/"><u>[Updated] Shine On Mastering the Art of Illumination for YouTube Videos for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-the-legalities-of-capturing-live-video-on-online-platforms-youtube-for-2024/"><u>[Updated] The Legalities of Capturing Live Video on Online Platforms (YouTube) for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/2024-approved-youtubes-updated-strategy-for-content-creators/"><u>2024 Approved YouTube's Updated Strategy for Content Creators</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/boost-efficiency-with-these-3-tips-for-utilizing-chatgpt-and-excel-together/"><u>Boost Efficiency with These 3 Tips for Utilizing ChatGPT and Excel Together</u></a></li>
+<li><a href="https://win-community.techidaily.com/complete-step-by-step-tutorial-upgrading-your-dhcp-servers-from-windows-server-2012-to-server-2022/"><u>Complete Step-by-Step Tutorial: Upgrading Your DHCP Servers From Windows Server 2012 to Server 2022</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/correcting-failed-windows-updates-error-0x8024800c/"><u>Correcting Failed Windows Updates (Error 0X8024800C)</u></a></li>
+<li><a href="https://fox-tips.techidaily.com/customizing-image-settings-during-software-installation-process/"><u>Customizing Image Settings During Software Installation Process</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/in-2024-swift-skillz-best-high-speed-games-for-laptopsmobile/"><u>In 2024, Swift Skillz Best High-Speed Games for Laptops/Mobile</u></a></li>
 </ul></div>
 

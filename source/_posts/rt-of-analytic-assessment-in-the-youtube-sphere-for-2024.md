@@ -1,7 +1,7 @@
 ---
 title: "The Art of Analytic Assessment in the YouTube Sphere for 2024"
-date: 2025-01-20T12:10:00.418Z
-updated: 2025-01-25T05:14:02.329Z
+date: 2025-02-10T20:04:54.822Z
+updated: 2025-02-16T04:19:39.290Z
 tags:
   - ai video
   - ai youtube
@@ -30,6 +30,10 @@ thumbnail: https://thmb.techidaily.com/3c3e9aebd6b49c0af91473b8783124a08a04e227f
 >
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PNw3Lb26wFA?si=5NR1XRVSp41EQYMy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## How to analyze your own YouTube channel/video?
 
@@ -63,10 +67,6 @@ thumbnail: https://thmb.techidaily.com/3c3e9aebd6b49c0af91473b8783124a08a04e227f
 
 ![](https://images.wondershare.com/filmora/article-images/youtube-analytics-traffic-source.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/zXUt81WsQpI?si=W3DKIAsa2-qbGadJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 #### 5\.  Audience Retention
 
  This data explains how far your video has engaged your audience. Along with views, the duration that a viewer is on your video weighs too. From the audience retention page, you can find out the specific time that a viewer has exited your video and see what made them do so. There are 2 types of audience retention features – absolute audience retention and relative audience retention.
@@ -74,7 +74,7 @@ thumbnail: https://thmb.techidaily.com/3c3e9aebd6b49c0af91473b8783124a08a04e227f
 ![](https://images.wondershare.com/filmora/article-images/youtube-analytics-audience-retention.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/4qA2pGQ5qmw?si=1mAA9WTi2Z5F7n6s" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/epKTCSREjhI?si=Ez_hObK1FZrmEE7f" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 #### 6\.  Devices
@@ -84,7 +84,7 @@ thumbnail: https://thmb.techidaily.com/3c3e9aebd6b49c0af91473b8783124a08a04e227f
 ![](https://images.wondershare.com/filmora/article-images/youtube-analytics-devices.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/umvX4ZdWbxk?si=tPXL0-Kzf9SQaY8z" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/grbt-5VvbuI?si=qnoirlmljslpqcQj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 #### 7\.  Likes and dislikes
@@ -109,10 +109,6 @@ thumbnail: https://thmb.techidaily.com/3c3e9aebd6b49c0af91473b8783124a08a04e227f
 
 ![](https://images.wondershare.com/filmora/article-images/youtube-analytics-annotations.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/lxv4NM-89CU?si=Uj5rOkhrwZ_6QIuW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 #### 10\.  Comments
 
  Audience engagement on any YouTube video can easily be gauged by using the vital aspect known as comments. Either it touched a chord in their heart, inspired or motivated them, or simply made them smile, the comments will say it all. Sometimes the audience simply taps 'Like' in place of commenting at their convenient.
@@ -126,7 +122,7 @@ thumbnail: https://thmb.techidaily.com/3c3e9aebd6b49c0af91473b8783124a08a04e227f
 ![](https://images.wondershare.com/filmora/article-images/youtube-analytics-cards.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Rxyki8-Y630?si=dHLkIxG59zdlZeN0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fHWdQw1gRyI?si=ve9wZnPupiooLThG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 #### 12\.  Sharing
@@ -135,15 +131,15 @@ thumbnail: https://thmb.techidaily.com/3c3e9aebd6b49c0af91473b8783124a08a04e227f
 
 ![](https://images.wondershare.com/filmora/article-images/youtube-analytics-sharing.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/UCqHbpxQGP4?si=XGkajFHdqyoKNAFM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 #### 13\.  Videos in playlists
 
  Favorites has been renamed to 'Videos in playlists'. Your reach broadens as people keep marking your videos as favorites on their playlist. This is visible to the public on the YouTube channel itself.
 
 ![](https://images.wondershare.com/filmora/article-images/youtube-analytics-playlists.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Nl0Z0eth1u4?si=0eecOBNfc--51AJO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## How to analyze your competitors
 
@@ -158,6 +154,10 @@ thumbnail: https://thmb.techidaily.com/3c3e9aebd6b49c0af91473b8783124a08a04e227f
  InflueNex is a helpful influencer marketing tool for Analyzing, searching, and managing YouTubers. With the help of this YouTube analytics tool, you're able to learn your competitors' channels and videos with detailed information.
 
 ![InflueNex YouTube Marketing Paltform ](https://images.wondershare.com/filmora/article-images/influenex-youtube-marketing-paltform.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Lp78eFEGwVU?si=-4orJBLvJJrggCJ2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 #### 2\. [Rival IQ](https://www.rivaliq.com/)
 
@@ -192,14 +192,22 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-tips.techidaily.com/n-2024-maximizing-your-creations-uploading-imovie-videos-to-youtube/"><u>[New] In 2024, Maximizing Your Creations Uploading IMovie Videos to YouTube</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/new-insightful-guide-on-the-best-gopro-headsets-6-and-beyond/"><u>[New] Insightful Guide on The Best GoPro Headsets #6 & Beyond</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-2024-approved-earning-big-on-youtube-shorts-what-you-need-and-how-much-can-you-make/"><u>[Updated] 2024 Approved Earning Big on Youtube Shorts What You Need & How Much Can You Make?</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-elite-7-cameras-elevating-interactive-learning-vlogs-and-tutorials-for-2024/"><u>[Updated] Elite 7 Cameras Elevating Interactive Learning Vlogs & Tutorials for 2024</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/approved-recovering-youtube-gems-2-easy-watch-methods-revealed/"><u>2024 Approved Recovering Youtube Gems 2 Easy Watch Methods Revealed</u></a></li>
-<li><a href="https://printer-issues.techidaily.com/fix-for-post-update-printer-failure/"><u>Fix for Post-Update Printer Failure</u></a></li>
-<li><a href="https://fake-location.techidaily.com/how-to-fake-gps-on-lava-blaze-pro-5g-for-mobile-legends-drfone-by-drfone-virtual-android/"><u>How To Fake GPS On Lava Blaze Pro 5G For Mobile Legends? | Dr.fone</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/cket-your-subscribers-with-these-easy-strategies-for-2024/"><u>Skyrocket Your Subscribers with These Easy Strategies for 2024</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/srt-conversion-essentials-ttml-xml-ssa-and-beyond/"><u>SRT Conversion Essentials TTML, XML, SSA, and Beyond</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/024-approved-tastemakers-playbook-recipes-for-attractive-channel-names/"><u>[New] 2024 Approved Tastemakers' Playbook Recipes for Attractive Channel Names</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-effortless-engagement-how-to-craft-a-direct-subscribe-link/"><u>[New] In 2024, Effortless Engagement How to Craft a Direct Subscribe Link</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-sky-gazers-rejoice-discovering-the-elevation-expertise-of-dji-spark/"><u>[New] Sky Gazers Rejoice! Discovering the Elevation Expertise of DJI Spark</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-2024-approved-inspiration-boost-with-leading-hr-tapes/"><u>[Updated] 2024 Approved Inspiration Boost with Leading HR Tapes</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-2024-approved-unleash-creativity-unlimited-samples-of-50-youtube-banners-for-free/"><u>[Updated] 2024 Approved Unleash Creativity Unlimited Samples of 50 YouTube Banners for Free!</u></a></li>
+<li><a href="https://extra-information.techidaily.com/updated-achieving-the-pinnacle-of-color-accuracy-in-11-crucial-edits/"><u>[Updated] Achieving the Pinnacle of Color Accuracy in 11 Crucial Edits</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-elevate-your-videos-with-complimentary-banners-here-in-2024/"><u>[Updated] Elevate Your Videos with Complimentary Banners, Here, In 2024</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/updated-in-2024-from-oven-to-screen-cooking-videos-unveiled/"><u>[Updated] In 2024, From Oven to Screen Cooking Videos Unveiled</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-in-2024-harness-youtube-opportunities-via-strategic-creator-studio-application/"><u>[Updated] In 2024, Harness YouTube Opportunities via Strategic Creator Studio Application</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-kickstart-your-social-life-setting-up-a-facebook-account/"><u>[Updated] Kickstart Your Social Life Setting up a Facebook Account</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/2024-approved-navigating-best-options-expert-picks-from-top-9-free-logomakers/"><u>2024 Approved Navigating Best Options Expert Picks From Top 9 Free Logomakers</u></a></li>
+<li><a href="https://win11.techidaily.com/avoiding-the-pitfalls-of-error-xffffff-in-print-tasks/"><u>Avoiding the Pitfalls of Error XFFFFFF in Print Tasks</u></a></li>
+<li><a href="https://android-location.techidaily.com/easy-ways-to-manage-your-infinix-zero-5g-2023-turbo-location-settings-drfone-by-drfone-virtual/"><u>Easy Ways to Manage Your Infinix Zero 5G 2023 Turbo Location Settings | Dr.fone</u></a></li>
+<li><a href="https://ai-editing-video.techidaily.com/expert-tips-to-correct-acrocefexeexe-error-and-enhance-stability/"><u>Expert Tips to Correct acrocefexe.exe Error and Enhance Stability</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/24-key-strategies-for-adding-timestamps-in-youtube-content/"><u>In 2024, Key Strategies for Adding Timestamps in YouTube Content</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/izing-mastery-harness-the-power-of-your-youtube-content-on-mobile-for-2024/"><u>Monetizing Mastery Harness the Power of Your YouTube Content on Mobile for 2024</u></a></li>
+<li><a href="https://win-dash.techidaily.com/update-your-system-with-intels-iris-plus-graphics-655-driver-compatible-with-win10-and-win11/"><u>Update Your System with Intel's Iris Plus Graphics 655 Driver Compatible with Win10 and Win11</u></a></li>
 </ul></div>
 

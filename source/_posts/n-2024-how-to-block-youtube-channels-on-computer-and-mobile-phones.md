@@ -1,7 +1,7 @@
 ---
 title: "[New] In 2024, How to Block YouTube Channels on Computer and Mobile Phones"
-date: 2025-01-30T16:13:22.683Z
-updated: 2025-02-05T05:22:47.365Z
+date: 2025-02-11T20:55:48.333Z
+updated: 2025-02-15T18:53:44.804Z
 tags:
   - ai video
   - ai youtube
@@ -51,7 +51,7 @@ thumbnail: https://thmb.techidaily.com/5962b87511edddba346cb57d7aca143b8c59fba6d
 ![find about option](https://images.wondershare.com/filmora/article-images/find-about-option.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/jjGL9wFdlbo?si=Vb1JgZqRXNc03UGG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Rxyki8-Y630?si=dHLkIxG59zdlZeN0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 * 3\. On the right-hand side right under the **Stats**, you will find a **flag** icon. Press the icon and it will show a drop-down menu, select **Block user**.
@@ -72,16 +72,16 @@ thumbnail: https://thmb.techidaily.com/5962b87511edddba346cb57d7aca143b8c59fba6d
 
 ![find users](https://images.wondershare.com/filmora/article-images/find-users.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aqeO4ed766s?si=AWtKHxP4hvQRd_lk" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 * 4\. When you’re on the account page, open the menu at the top-right corner of the screen and tap Block user.
 
 ![tap block users](https://images.wondershare.com/filmora/article-images/tap-block-user2.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/cC-HtDQVoG0?si=nQcoa7q8q2IL8U0m" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/grbt-5VvbuI?si=qnoirlmljslpqcQj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/g6xXIR_Uh1A?si=TMXzklPEY50MUM05" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Part 3: Block content on YouTube kids**
@@ -93,10 +93,6 @@ thumbnail: https://thmb.techidaily.com/5962b87511edddba346cb57d7aca143b8c59fba6d
 * 1\. Open the YouTube Kids app and tap on **I’m a parent** to set up the app.
 
 ![confirm parent](https://images.wondershare.com/filmora/article-images/a-parent3.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/gyGoQi7hsZk?si=8OcKcPUj2wSBmVZ1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 * 2\. Sign in with your preferred Google account.
 
@@ -120,7 +116,11 @@ thumbnail: https://thmb.techidaily.com/5962b87511edddba346cb57d7aca143b8c59fba6d
 ![get passcode](https://images.wondershare.com/filmora/article-images/pass-code6.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/cDNwgyE0nbY?si=3k_WBhpIw3WudJot" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XIUatTFH0Zw?si=ZCtoBtIy18y2F5Vc" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UUPt2zKtJ5k?si=LLHdsFDLzVByJsKj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### **II. Block from Watch Page**
@@ -134,14 +134,14 @@ thumbnail: https://thmb.techidaily.com/5962b87511edddba346cb57d7aca143b8c59fba6d
 
 ![block this channel](https://images.wondershare.com/filmora/article-images/block-this-channel8.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/l4R7_qNIQvY?si=2zJOPfEcm6_3udzn" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 * 4\. Select any of the two options and then press **Block** again.
 * 5\. Enter the numbers you calculate from the presented numbers or a custom passcode.
 
 ![get passcode again](https://images.wondershare.com/filmora/article-images/pass-code-again8.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=heERQcpMi77lqToE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Conclusion**
 
@@ -150,7 +150,7 @@ thumbnail: https://thmb.techidaily.com/5962b87511edddba346cb57d7aca143b8c59fba6d
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/d-COuhPT5mk?si=wLZU6jkkAdJuAn6h" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KaqfZcWg5sE?si=LPmSKk7AFp8VxDFD" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -174,21 +174,18 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-access.techidaily.com/new-2024-approved-investment-in-top-tier-hdr-cameras-a-buyers-guide/"><u>[New] 2024 Approved Investment in Top-Tier HDR Cameras A Buyer's Guide</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/nlock-the-secret-of-youtube-to-gif-conversion-begin-here-for-2024/"><u>[New] Unlock the Secret of YouTube-to-GIF Conversion - Begin Here for 2024</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-2024-approved-decoding-the-best-of-beauty-youtubes-elite-artists-showcased/"><u>[Updated] 2024 Approved Decoding the Best of Beauty YouTube's Elite Artists Showcased</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/updated-2024-approved-ideal-photo-and-video-shows-from-x-to-ios14/"><u>[Updated] 2024 Approved Ideal Photo & Video Shows From X to IOS14</u></a></li>
-<li><a href="https://fox-links.techidaily.com/updated-2024-approved-pro-photo-and-video-with-gopro-hero5-black-mastery-essentials/"><u>[Updated] 2024 Approved Pro Photo & Video with GoPro Hero5 Black Mastery Essentials</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/updated-2024-approved-the-professionals-secret-utilizing-windows-movie-maker-expertly-in-windows-8-systems/"><u>[Updated] 2024 Approved The Professional's Secret Utilizing Windows Movie Maker Expertly in Windows 8 Systems</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-in-2024-transform-your-videos-on-demand-freedom-through-editing-android-edition/"><u>[Updated] In 2024, Transform Your Videos on Demand Freedom Through Editing, Android Edition</u></a></li>
-<li><a href="https://some-skills.techidaily.com/updated-selecting-the-ultimate-steadicams-for-flawless-dslr-shoots/"><u>[Updated] Selecting the Ultimate Steadicams for Flawless DSLR Shoots</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/approved-capturing-the-unseen-9-must-have-camgear-for-aspiring-vloggers/"><u>2024 Approved Capturing the Unseen 9 Must-Have CamGear for Aspiring Vloggers</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/approved-fusing-genres-a-youtube-music-strategy/"><u>2024 Approved Fusing Genres A YouTube Music Strategy</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/approved-mastering-online-income-from-youtubes-adsense-to-direct-payments/"><u>2024 Approved Mastering Online Income From YouTube's AdSense to Direct Payments</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/2024-approved-windowsnap-tool-for-straightforward-recording/"><u>2024 Approved WindowSnap Tool for Straightforward Recording</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ce-your-asmr-experience-with-top-tier-mics/"><u>Enhance Your ASMR Experience with Top-Tier Mics</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/in-2024-3-ways-to-track-tecno-spark-10-pro-without-them-knowing-drfone-by-drfone-virtual-android/"><u>In 2024, 3 Ways to Track Tecno Spark 10 Pro without Them Knowing | Dr.fone</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/optimize-your-productivity-uncovering-7-gpt-secrets-to-efficiency/"><u>Optimize Your Productivity: Uncovering 7 GPT Secrets to Efficiency</u></a></li>
-<li><a href="https://common-error.techidaily.com/revive-your-pcs-performance-by-installing-required-media-drivers/"><u>Revive Your PC's Performance by Installing Required Media Drivers</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-2024-approved-avoid-posting-mistakes-on-twitter-by-knowing-the-aspect-ratio/"><u>[New] 2024 Approved Avoid Posting Mistakes on Twitter by Knowing the Aspect Ratio</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ultivating-a-community-the-key-to-surpassing-1000-views-for-2024/"><u>[New] Cultivating a Community The Key to Surpassing 1000 Views for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/nhance-listening-pleasure-constructing-a-youtube-playlist/"><u>[New] Enhance Listening Pleasure Constructing a YouTube Playlist</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-cooking-crusaders-youtube-stars-serving-up-deliciousness/"><u>[New] In 2024, Cooking Crusaders YouTube Stars Serving Up Deliciousness</u></a></li>
+<li><a href="https://article-helps.techidaily.com/new-in-2024-digital-glow-up-video-quality-boosting-tools-list/"><u>[New] In 2024, Digital Glow-Up Video Quality Boosting Tools List</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/new-journey-into-the-creative-realm-top-25-tiktok-anime-ideas/"><u>[New] Journey Into the Creative Realm Top 25 TikTok Anime Ideas</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/astering-video-visibility-settings-on-youtube/"><u>[New] Mastering Video Visibility Settings on YouTube</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/he-youtube-creator-summit-a-getaway-for-top-talent/"><u>[New] The YouTube Creator Summit - A Getaway for Top Talent</u></a></li>
+<li><a href="https://article-files.techidaily.com/updated-the-essence-of-ffmpeg-original-audio-capture-for-2024/"><u>[Updated] The Essence of FFmpeg Original Audio Capture for 2024</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/2024-approved-how-to-remove-recommended-podcasts-from-spotify/"><u>2024 Approved How To Remove Recommended Podcasts From Spotify</u></a></li>
+<li><a href="https://solve-luxury.techidaily.com/drm-free-conversion-techniques-for-selecting-pages-in-ebooks/"><u>DRM-Free Conversion Techniques for Selecting Pages in eBooks</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/how-does-the-stardust-trade-cost-in-pokemon-go-on-xiaomi-redmi-13c-drfone-by-drfone-virtual-android/"><u>How does the stardust trade cost In pokemon go On Xiaomi Redmi 13C? | Dr.fone</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/sh-needed-for-youtube-audio-check-out-this-list-of-23-crackers-for-2024/"><u>No Cash Needed for YouTube Audio? Check Out This List of 23 Crackers for 2024</u></a></li>
 </ul></div>
 

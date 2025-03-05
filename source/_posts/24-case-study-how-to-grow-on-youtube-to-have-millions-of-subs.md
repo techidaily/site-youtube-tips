@@ -1,7 +1,7 @@
 ---
 title: "\"In 2024, Case Study  How to Grow on YouTube to Have Millions of Subs\""
-date: 2024-07-29T14:00:42.247Z
-updated: 2024-07-30T14:00:42.247Z
+date: 2025-02-13T02:19:59.401Z
+updated: 2025-02-15T23:09:46.274Z
 tags:
   - ai video
   - ai youtube
@@ -18,9 +18,6 @@ thumbnail: https://thmb.techidaily.com/d4d65dffa6d108b05861c08e391929dff0db7f6eb
 
 # Case Study: How to Grow on YouTube to Have Millions of Subs
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4726807&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/c14a8df1e1b4d5297e9cb30cb34d5a00/products/copy_copy_power-tools-48.png" border="0">Power Tools add-on for Google Sheets, Lifetime subscription</a>
-<!-- affiliate ads end -->
 ![](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 ##### Shanoon Cox
@@ -34,14 +31,16 @@ You’ve probably heard of stories about individuals who managed to find financi
 Jesse Ridgway is the owner of the vlog [McJuggerNuggets](https://www.youtube.com/user/McJuggerNuggets), which has grown to over 3.4 million subscribers. He makes enough money to live off of YouTube alone. Here is a case study of how he made his first $10,000 on YouTube:
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4709458&QTY=1&AFFILIATE=108875&CART=1"><img src="https://3d-kstudio.com/wp-content/uploads/2019/10/Project-Manager-version-3-1600x900-768x419.jpg" border="0">Project Manager - Asset Browser for 3Ds Max</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/sn2STvYRVb8?si=Z-XhJJ1Mc-Em5Kqy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Case Study of McJuggerNuggets
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=174416&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.easygifanimator.net/images/gif-animator.png" border="0">Easy GIF Animator is a powerful animated GIF editor and the top tool for creating animated pictures, banners, buttons and GIF videos. You get extensive animation editing features, animation effects, unmatched image quality and optimization for the web. No other GIF animation software matches our features and ease of use, that's why Easy GIF Animator is so popular.</a>
-<!-- affiliate ads end -->
 ![Case Study McJugger Nuggets](https://images.wondershare.com/filmora/article-images/case-study-mcjugger-nuggets.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/W5aJC8okA8s?si=L2rnYAp-gmGlLQSf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Jesse was one of the earliest YouTubers. He started his channel on December 9, 2006\. Jesse never guessed that he would make enough money to live off of the videos he was creating. Here are some of the ways that he monetized his channel:
 
@@ -92,19 +91,22 @@ Regular research into your target market will help you to create the trendiest n
 Timing and luck are definitely two of the biggest factors in becoming a success on YouTube. If you are willing to keep working and don’t get discouraged you will eventually earn profits.
 
 <!-- affiliate ads begin -->
-<a href="https://united.elfm.net/c/5597632/748964/4704" target="_top" id="748964"><img src="//a.impactradius-go.com/display-ad/4704-748964" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://united.elfm.net/i/5597632/748964/4704" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/OZQJUTr44rA?si=ADA0nD1VnXjR_sH0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Edit Your Videos with High-Quality Video Editor
 
-<!-- affiliate ads begin -->
-<iframe id="iframe_672" src="//a.impactradius-go.com/gen-ad-code/5597632/1959812/17834/" width="720" height="300" scrolling="no" frameborder="0" marginheight="0" marginwidth="0"></iframe>
-<!-- affiliate ads end -->
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<a href="https://checkout.abbyy.com/order/checkout.php?PRODS=39254549&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/0e5fb5c76fca16adbee503c9aff393cd/products/8_FR-Badges-NEW-FR-Standard-16-WIN-200.png" border="0"> PDF application, powered by AI-based OCR, for unified workflows with both digital and scanned documents. </a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oP8grXxuy2o?si=uIRNhTYbecTcaC7J" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LdVT_-3gESA?si=_HfjpbUEHSRKTXjt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Shanoon Cox
 
@@ -112,14 +114,11 @@ Shanoon Cox is a writer and a lover of all things video.
 
 Follow @Shanoon Cox
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -128,4 +127,24 @@ Follow @Shanoon Cox
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-tips.techidaily.com/ecoding-youtube-cpm-for-content-creators-success/"><u>[New] Decoding YouTube CPM for Content Creators' Success</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/new-in-2024-the-ultimate-transformation-mp4-plus-srt-success/"><u>[New] In 2024, The Ultimate Transformation MP4 + SRT Success</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-the-beat-of-branding-mixing-music-into-your-instareel/"><u>[New] The Beat of Branding Mixing Music Into Your InstaReel</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/updated-beating-the-market-top-file-managers/"><u>[Updated] Beating the Market Top File Managers</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/updated-eye-catchers-of-tomorrow-discovering-6-future-oriented-genres/"><u>[Updated] Eye Catchers of Tomorrow Discovering 6 Future-Oriented Genres</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-fast-techniques-to-restructure-your-youtube-sequence/"><u>[Updated] Fast Techniques to Restructure Your YouTube Sequence</u></a></li>
+<li><a href="https://article-files.techidaily.com/updated-immortalize-instants-with-ease-dive-into-gratis-cloud-services-and-paid-alternatives-for-2024/"><u>[Updated] Immortalize Instants with Ease Dive Into Gratis Cloud Services & Paid Alternatives for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-showcase-your-brand-with-our-50-free-youtube-banners/"><u>[Updated] Showcase Your Brand with Our 50 Free YouTube Banners!</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-the-graphic-gaze-decoding-youtubes-factful-17-narrative/"><u>[Updated] The Graphic Gaze Decoding YouTube's Factful '17 Narrative</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-youtubes-top-tools-studio-vs-latest-beta-features-for-2024/"><u>[Updated] YouTube's Top Tools Studio Vs. Latest Beta Features for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/approved-beyond-borders-blurring-techniques-for-global-audienes/"><u>2024 Approved Beyond Borders Blurring Techniques for Global Audienes</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/2024-approved-which-is-the-top-screener-bandicam-or-camtasia/"><u>2024 Approved Which Is the Top Screener? - Bandicam Or Camtasia</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/blending-photography-and-sonic-artistry-for-2024/"><u>Blending Photography & Sonic Artistry for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/t-tips-on-tracking-your-videos-view-counts-and-earnings-potential/"><u>Expert Tips on Tracking Your Video's View Counts & Earnings Potential</u></a></li>
+<li><a href="https://common-error.techidaily.com/how-to-repair-a-wacom-tablet-when-it-stops-responding-or-wont-turn-on/"><u>How to Repair a Wacom Tablet When It Stops Responding or Won't Turn On</u></a></li>
+<li><a href="https://apple-account.techidaily.com/in-2024-how-to-reset-the-security-questions-of-your-apple-id-on-your-iphone-8-plus-by-drfone-ios/"><u>In 2024, How To Reset the Security Questions of Your Apple ID On Your iPhone 8 Plus</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/24-integrating-royalty-free-songs-into-video-projects/"><u>In 2024, Integrating Royalty-Free Songs Into Video Projects</u></a></li>
+</ul></div>
 

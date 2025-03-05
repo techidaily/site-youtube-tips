@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Step-by-Step  Integrating Comments in YouTube Videos\""
-date: 2025-01-22T21:15:15.244Z
-updated: 2025-01-25T06:32:36.021Z
+date: 2025-02-14T05:42:45.710Z
+updated: 2025-02-16T00:58:02.190Z
 tags:
   - ai video
   - ai youtube
@@ -50,10 +50,6 @@ The main difference between annotation and cards is their outlook. Cards are mor
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/h5uImbOWmTg?si=z4kP-R0QbXbBAJTa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## How to add YouTube Cards
 
 YouTube **Cards** are similar to annotations but more interactive. They allow the owner of the video to add images and other links. A small box appears, clicking on which will activate the cards.
@@ -62,18 +58,10 @@ YouTube **Cards** are similar to annotations but more interactive. They allow th
 
 ![](https://images.wondershare.com/filmora/article-images/video-manager-in-youtube.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/W5aJC8okA8s?si=L2rnYAp-gmGlLQSf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 * Click "Edit" tab under the video screen shot you want to add the card on
 * Click on the "Cards" tab
 
 ![](https://images.wondershare.com/filmora/article-images/youtube-cards01.png)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/On0Jw2oMZf0?si=Pm-FJoEt8XWmtMbr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 * On the right panel click on "Add Card" drop down menu and select the type of card you want to add
 * Click on the create button which will open the corresponding video
@@ -82,7 +70,15 @@ YouTube **Cards** are similar to annotations but more interactive. They allow th
 
 ![](https://images.wondershare.com/filmora/article-images/add-cards-to-youtube-video.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Q_69vX9wnRE?si=FtLxkpRhPORqcMeE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 * Apply changes and exit
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fvAC8jgs62o?si=xqEXZ7dpAXZ4sZ7A" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## How to add YouTube annotations
 
@@ -94,13 +90,17 @@ YouTube Annotation is addition of a text layer, link or hotspots over your video
 
 ![](https://images.wondershare.com/filmora/article-images/add-annotations-to-youtube-video.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/bXmwwSmYqq4?si=Bb-eJfLnlpeeClyt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 * On the right panel click on "+ Add Element" and select the kind of annotation you want to add
 * Adjust the position of Annotation, you can drag the rectangle to locate it at any position of the video, move the slide to set the start and end time of the annotation
 
 ![](https://images.wondershare.com/filmora/article-images/add-annotation-to-youtube-1.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/vPGg53vbOsk?si=CkSEN5HFPS7vDuAa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/On0Jw2oMZf0?si=Pm-FJoEt8XWmtMbr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 * Apply changes
@@ -142,7 +142,7 @@ No matter what kind of annotations you are using, you should never use more than
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/S0b9szh8vEk?si=NlGzpJ6MN_SJNk5A" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_O8m9KphYzs?si=jITthzeyX_Kmt9X2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -166,24 +166,22 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-tips.techidaily.com/n-2024-new-age-monetization-cost-effective-channel-options/"><u>[New] In 2024, New Age Monetization Cost-Effective Channel Options</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/n-2024-tap-into-endless-visual-archives-from-top-4-video-platforms/"><u>[New] In 2024, Tap Into Endless Visual Archives From Top 4 Video Platforms</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/o-cost-audio-archives-for-professional-youtube-makers-for-2024/"><u>[New] No-Cost Audio Archives for Professional YouTube Makers for 2024</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/new-resolution-showdown-hero4-to-hero5/"><u>[New] Resolution Showdown Hero4 to Hero5</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-in-2024-the-expert-market-approach-rapid-eradication-on-youtube/"><u>[Updated] In 2024, The Expert' Market Approach Rapid Eradication on YouTube</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-your-first-leap-onto-youtubes-platform/"><u>[Updated] Your First Leap Onto YouTube's Platform</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/approved-a-deep-dive-into-video-platform-profit-margins-dailymovement-vs-youtube/"><u>2024 Approved A Deep-Dive Into Video Platform Profit Margins DailyMovement vs YouTube</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/2024-approved-avoiding-malware-downloading-safe-and-gratis-vlc-on-apple-devices/"><u>2024 Approved Avoiding Malware Downloading Safe and Gratis VLC on Apple Devices</u></a></li>
-<li><a href="https://games-able.techidaily.com/challenging-high-res-narrative-in-console-games/"><u>Challenging High-Res Narrative in Console Games</u></a></li>
-<li><a href="https://some-skills.techidaily.com/in-2024-make-a-splash-on-social-media-adding-animated-text-to-instagram-stories/"><u>In 2024, Make a Splash on Social Media Adding Animated Text to Instagram Stories</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/24-youtubers-ultimate-guide-10-keys-to-unique-short-form-videos/"><u>In 2024, Youtubers' Ultimate Guide 10 Keys to Unique Short-Form Videos</u></a></li>
-<li><a href="https://driver-download.techidaily.com/insignia-ns-pcy5bma2-printer-drivers-download-guide-for-windows-11-10-and-7/"><u>Insignia NS-PCY5BMA2 Printer Drivers: Download Guide for Windows 11, 10 & 7</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/tart-your-journey-essential-youtubing-skills-course/"><u>Jumpstart Your Journey Essential YouTubing Skills Course</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/edge-currents-best-yt-for-academic-growth/"><u>Knowledge Currents Best YT for Academic Growth</u></a></li>
-<li><a href="https://solve-latest.techidaily.com/1726029950636-pc/"><u>PCでテレビ朝日の生放送動画を成功させるための簡単な録画ガイド</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/sed-caught-in-the-web-of-missing-shorts/"><u>Released Caught in the Web of Missing Shorts</u></a></li>
-<li><a href="https://some-skills.techidaily.com/stream-video-freely-on-any-os-no-cost-video-player-for-2024/"><u>Stream Video Freely on Any OS No-Cost VIDEO Player for 2024</u></a></li>
-<li><a href="https://hardware-tips.techidaily.com/the-ultimate-selection-of-2024s-most-efficient-cpu-coolers-all-in-one-and-air-variants/"><u>The Ultimate Selection of 2024'S Most Efficient CPU Coolers: All-in-One and Air Variants</u></a></li>
-<li><a href="https://ai-driven-video-production.techidaily.com/updated-cut-mp4-videos-for-free-9-excellent-options-for-2024/"><u>Updated Cut MP4 Videos for Free 9 Excellent Options for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/024-approved-clear-screen-clear-content-how-to-disable-youtube-channels-efficiently/"><u>[New] 2024 Approved Clear Screen, Clear Content How to Disable YouTube Channels Efficiently</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/024-approved-growth-catalysts-increasing-audience-engagement-on-youtube/"><u>[New] 2024 Approved Growth Catalysts Increasing Audience Engagement on YouTube</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-yt-thumbnail-mastery-guide-to-your-videos-best-images/"><u>[New] In 2024, YT Thumbnail Mastery Guide to Your Video's Best Images</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ourney-through-virtuality-youtubes-best-10-for-2024/"><u>[New] Journey Through Virtuality YouTube's Best 10 for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-taking-solo-shots-from-videos-in-windows-10-photos-interface/"><u>[New] Taking Solo Shots From Videos in Windows 10 Photos Interface</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-in-2024-wallet-friendly-microphones-for-social-media-stars/"><u>[Updated] In 2024, Wallet-Friendly Microphones for Social Media Stars</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-master-your-mp3-ultimate-guide-to-youtube-converters/"><u>[Updated] Master Your MP3 Ultimate Guide to YouTube Converters</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-puns-and-plots-developing-7-funny-video-storylines-for-2024/"><u>[Updated] Puns & Plots Developing 7 Funny Video Storylines for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/approved-access-youtube-tracks-without-spending-a-dime-25plus-no-cost-audio-extractors/"><u>2024 Approved Access YouTube Tracks Without Spending a Dime 25+ No-Cost Audio Extractors</u></a></li>
+<li><a href="https://location-social.techidaily.com/edit-and-send-fake-location-on-telegram-for-your-apple-iphone-12-mini-in-3-ways-drfone-by-drfone-virtual-ios/"><u>Edit and Send Fake Location on Telegram For your Apple iPhone 12 mini in 3 Ways | Dr.fone</u></a></li>
+<li><a href="https://extra-information.techidaily.com/exclusive-access-download-your-own-tailored-tracks/"><u>Exclusive Access Download Your Own Tailored Tracks</u></a></li>
+<li><a href="https://fake-location.techidaily.com/how-to-fix-realme-gt-neo-5-find-my-friends-no-location-found-drfone-by-drfone-virtual-android/"><u>How to Fix Realme GT Neo 5 Find My Friends No Location Found? | Dr.fone</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/identifying-common-issues-and-error-messages-in-device-manager-insights-from-yl-computing/"><u>Identifying Common Issues and Error Messages in Device Manager - Insights From YL Computing</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/in-2024-how-to-bypass-icloud-lock-from-iphone-8-plus-by-drfone-ios/"><u>In 2024, How to Bypass iCloud Lock from iPhone 8 Plus</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/leveraging-slacks-features-to-improve-your-workplace-communication-and-collaboration/"><u>Leveraging Slack's Features to Improve Your Workplace Communication and Collaboration</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/reasons-for-nokia-g42-5g-stuck-on-boot-screen-and-ways-to-fix-them-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Reasons for Nokia G42 5G Stuck on Boot Screen and Ways To Fix Them | Dr.fone</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/mline-your-soundtrack-with-these-playlist-tips-for-youtube/"><u>Streamline Your Soundtrack with These Playlist Tips for YouTube</u></a></li>
 </ul></div>
 

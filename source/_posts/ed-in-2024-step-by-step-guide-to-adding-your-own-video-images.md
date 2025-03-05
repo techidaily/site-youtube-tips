@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] In 2024, Step-by-Step Guide to Adding Your Own Video Images\""
-date: 2025-01-19T01:02:56.044Z
-updated: 2025-01-24T20:30:17.824Z
+date: 2025-02-15T12:04:25.010Z
+updated: 2025-02-15T22:53:25.369Z
 tags:
   - ai video
   - ai youtube
@@ -51,7 +51,7 @@ We have just made a video tutorial about how to make a YouTube video thumbnail, 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/1CdWd06fCwc?si=wzg-68q0jAksPRXp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Jng92DT1n_Y?si=LvxQhsEJoymsM2iZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Part 1: How to Make a Thumbnail for YouTube and Add Custom Thumbnails to YouTube
@@ -67,6 +67,10 @@ In Thumbnail Editor, you can use the still images in the video as a thumbnail, c
 2\. And now, you can **add text, image and shape overlays to the thumbnail.** You can change the text font, size, opacity and more.
 
 ![YouTube Thumbnail](https://images.wondershare.com/filmora/article-images/youtube-thumbnail-editor-edit.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Rxyki8-Y630?si=dHLkIxG59zdlZeN0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 3\. Click **Next** to save the thumbnail and you will see how the thumbnail displays on different platforms such as YouTube, Facebook and Twitter. Click **Save** to save the video thumbnail.
 
@@ -93,7 +97,7 @@ Check this video tutorial to see how to Make a Youtube Thumbnail using Canva.
 Check this video tutorial to see how to make professional Thumbnails for YouTube Videos with Gimp:
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Nyp7-xVwqHA?si=XCuZbpKLFIdrGQQh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ZeYbTVeaXg0?si=rwLL1DbBoX26BGjm" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Part 3: How to Change A Thumbnail On YouTube
@@ -110,16 +114,20 @@ In this part, we’ll be going over how to change a thumbnail image on YouTube. 
 
 ![Change YouTube Video Info](https://images.wondershare.com/filmora/article-images/change-youtube-thumbnail-from-video-details.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9sk53d1bBhY?si=yaTeDogLb3D4dYu1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 * Find the Thumbnail section in the basic video details tab, and then click the **Upload thumbnail** to select the image that you want to upload.
 * Finally, click on the **Save** button on the right upper corner. And just like that, in seven easy steps, we’re done changing the thumbnail of a YouTube video.
 
 ![Change YouTube Video Thumbnail](https://images.wondershare.com/filmora/article-images/change-thumbnail-on-youtube.jpg)
 
-If you don't have an image to upload but you want to check out some online resources to make your own, check out our [Top YouTube Thumbnail Makers](https://tools.techidaily.com/wondershare/filmora/download/).
-
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/MmTJlcwgyrQ?si=x3hba82M0tT57fj7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/nlwr9LjJ-ng?si=I6UNAtfBkY2FTceu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
+If you don't have an image to upload but you want to check out some online resources to make your own, check out our [Top YouTube Thumbnail Makers](https://tools.techidaily.com/wondershare/filmora/download/).
 
 ## Part 4: Things You Need to Know Before Making a Custom Thumbnail
 
@@ -137,10 +145,6 @@ To make a creative YouTube video, you may also need a powerful video editing sof
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
 You may also like: [Best video editing software for YouTube](https://tools.techidaily.com/wondershare/filmora/download/)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Q-mXUpVQijU?si=f1MzflPJ8-bD2_iQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Part 5: Tips on How to Make Good YouTube Thumbnails - Get More Clicks
 
@@ -199,7 +203,7 @@ Beyond simply using colors that are different from other people’s colors, you 
 ![ YouTube Thumbnail Making Tips](https://images.wondershare.com/filmora/article-images/youtube-thumbnail-use-color.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/5FWCFI3f_cs?si=Kt2Onr_E4c616tbH" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aIx71tPaWKg?si=lG5OiUe-M6eBJf5b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 _Maybe don’t use a lot of green and yellow in the thumbnail for your angry video rant?_
@@ -230,10 +234,6 @@ When you get more people watching your video for longer, it increases your watch
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LlYIdWQc-jw?si=ZQ5809CbQGEar0vg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
@@ -255,16 +255,22 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-tips.techidaily.com/everaging-seo-in-youtube-a-title-and-tags-guidebook/"><u>[New] Leveraging SEO in Youtube A Title & Tags Guidebook</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/urge-video-popularity-with-essential-seo-aids/"><u>[New] Surge Video Popularity with Essential SEO Aids</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-2024-approved-channel-name-inspiration-strategies-for-success/"><u>[Updated] 2024 Approved Channel Name Inspiration Strategies for Success</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/updated-2024-approved-full-review-of-camstudios-screen-capture-features/"><u>[Updated] 2024 Approved Full Review of CamStudio's Screen Capture Features</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/updated-in-2024-nextgen-vidhack-fb-to-mp4-download-with-no-hassle/"><u>[Updated] In 2024, NextGen VidHack FB to MP4 Download with No Hassle</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-the-essential-list-free-youtube-subtitle-extractor-apps-for-2024/"><u>[Updated] The Essential List Free YouTube Subtitle Extractor Apps for 2024</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/complete-guide-for-recovering-pictures-files-on-vivo-t2-pro-5g-by-fonelab-android-recover-pictures/"><u>Complete guide for recovering pictures files on Vivo T2 Pro 5G.</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/discover-the-hidden-gem-in-tech-an-understated-asus-laptop-with-creative-professionals-dream-features-insights/"><u>Discover the Hidden Gem in Tech: An Understated Asus Laptop with Creative Professionals' Dream Features - Insights</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/in-2024-forgotten-the-voicemail-password-of-vivo-y17s-try-these-fixes-by-drfone-android/"><u>In 2024, Forgotten The Voicemail Password Of Vivo Y17s? Try These Fixes</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/in-2024-platform-pick-go-live-with-obs-or-twitch-studio/"><u>In 2024, Platform Pick Go Live with OBS or Twitch Studio</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/simplified-blue-screen-usage-guide-for-2024/"><u>Simplified Blue Screen Usage Guide for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-mirthful-melodies-best-song-caricatures/"><u>[New] In 2024, Mirthful Melodies Best Song Caricatures</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-multi-platform-mastery-delivering-content-to-youtube-and-others/"><u>[New] In 2024, Multi-Platform Mastery Delivering Content to YouTube & Others</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/nside-look-at-youtubes-creator-workshop-space-for-2024/"><u>[New] Inside Look at YouTube's Creator Workshop Space for 2024</u></a></li>
+<li><a href="https://driver-error.techidaily.com/solved-device-driver-software-was-not-successfully-installed/"><u>[SOLVED] Device Driver Software Was Not Successfully Installed</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-understanding-and-implementing-cc-licenses-wisely/"><u>[Updated] 2024 Approved Understanding & Implementing CC Licenses Wisely</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-best-screen-grabber-gadgets-for-youtube-channels/"><u>[Updated] Best Screen Grabber Gadgets for YouTube Channels</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-in-2024-the-essential-yoda-of-youtube-analytics-deciphering-earnings-and-viewer-counts/"><u>[Updated] In 2024, The Essential Yoda of YouTube Analytics Deciphering Earnings & Viewer Counts</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-top-thumbnails-the-ultimate-guide-to-optimal-youtube-sizes/"><u>[Updated] Top Thumbnails The Ultimate Guide to Optimal YouTube Sizes</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-unlocking-online-income-the-creators-path-to-prosperity/"><u>[Updated] Unlocking Online Income The Creator’s Path to Prosperity</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/2024-approved-goovision-promax-high-res-os-capturer/"><u>2024 Approved GooVision ProMax High-Res OS Capturer</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/approved-is-it-legal-to-screen-record-youtube-videos/"><u>2024 Approved Is It Legal to Screen Record YouTube Videos</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/dissecting-the-huawei-p10s-battery-life-and-efficiency/"><u>Dissecting the Huawei P10’s Battery Life & Efficiency</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/how-the-chatgpt-desktop-version-outperforms-its-online-interface/"><u>How the ChatGPT Desktop Version Outperforms Its Online Interface</u></a></li>
+<li><a href="https://techtrends.techidaily.com/inside-scoop-on-teslas-upcoming-smartphone-launch-date-cost-and-features-revealed/"><u>Inside Scoop on Tesla's Upcoming Smartphone - Launch Date, Cost & Features Revealed</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/latest-way-to-get-shiny-meltan-box-in-pokemon-go-mystery-box-on-realme-c51-drfone-by-drfone-virtual-android/"><u>Latest way to get Shiny Meltan Box in Pokémon Go Mystery Box On Realme C51 | Dr.fone</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/optimize-system-storage-download-updated-intel-rapid-storage-technology-drivers-now/"><u>Optimize System Storage - Download Updated Intel Rapid Storage Technology Drivers Now!</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/step-by-step-guide-repairing-dysfunctional-fn-key-performance/"><u>Step-by-Step Guide: Repairing Dysfunctional Fn Key Performance</u></a></li>
 </ul></div>
 

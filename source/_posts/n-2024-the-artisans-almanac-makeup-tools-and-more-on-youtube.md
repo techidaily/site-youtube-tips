@@ -1,7 +1,7 @@
 ---
 title: "\"[New] In 2024, The Artisan's Almanac  Makeup, Tools & More on Youtube\""
-date: 2025-01-22T02:37:18.331Z
-updated: 2025-01-24T19:40:18.473Z
+date: 2025-02-13T07:09:07.149Z
+updated: 2025-02-15T22:54:37.388Z
 tags:
   - ai video
   - ai youtube
@@ -52,6 +52,10 @@ Wondershare Filmora is specifically made keeping quality on priority and to make
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/umvX4ZdWbxk?si=tPXL0-Kzf9SQaY8z" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Finding Your Niche in Beauty or Lifestyle**
 
 As a new makeup, beauty, or lifestyle YouTuber you’ll be jumping into a category that’s already packed with thousands of channels. In order to gain any momentum, you’ll have to decide on a particular thing you want to be known for. That’s your niche.
@@ -100,6 +104,10 @@ Here are some common types of beauty and lifestyle videos:
 * Kid’s Makeup Challenge
 * No Mirror Makeup Challenge
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kZVDkvMZvP4?si=xAugrCf-Ud6EMMpm" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **How to Get Products to Review**
 
  You probably already know that a lot of the products popular beauty YouTubers review in their videos were sent to them for free. Brands want to get their products into the hands of creators who have ‘influence’ both in the hopes that their audiences will decide to buy them and as part of generating buzz – getting more people talking about their products so more people become interested.
@@ -147,7 +155,7 @@ You might want to experiment with sitting at different distances to see how the 
 ![tilt down your camera](https://images.wondershare.com/filmora/article-images/tilt-down-camera1.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/PD0vq5qAYkw?si=5H3KWtCfUOYg1Nlv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/L603QXgjb3I?si=sMYHfMGy2kNPSHPt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 **_Step 3:_** Check your frame (this is easiest if your camera has a screen that flips out) to make sure there’s not too much empty space in your shot.
@@ -162,10 +170,6 @@ An aperture of f/5.0 is good if you’re going to be moving around a lot, but if
 
 ![set f stop](https://images.wondershare.com/filmora/article-images/set-f-stop2.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/PKZUYice-ws?si=L8iMa9T3h7TMSWdQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 **Step 6:** Set your ISO (film speed). A lower ISO will give you a darker, but higher quality, image. A higher ISO will lower your quality and give you a brighter image.
 
 ISO 400 should be a happy medium for shooting inside with your ring light, but you may need to try out a couple of settings to find one perfect for your situation.
@@ -173,14 +177,10 @@ ISO 400 should be a happy medium for shooting inside with your ring light, but y
 ![set film speed](https://images.wondershare.com/filmora/article-images/set-film-speed3.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/cDNwgyE0nbY?si=3k_WBhpIw3WudJot" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/pRR3Oq03EuE?si=ZTy8-WH0AesA9zRh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 For more info on [camera settings for beauty videos, click here](https://www.filmora.io/video-tutorials/how-to-set-up-your-camera-%E2%80%93-the-makeup-series-12.html).
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/KF793jv1LIc?si=fJOogQJ2f8JUfTzZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **Lighting for Beauty**
 
@@ -273,6 +273,10 @@ Before you start recording your makeup tutorial there are a few things you shoul
  4. **_Do a video test._** Before you start your video for real, start recording and shoot some test footage. Watch that back to make sure you like the look of your frame, your face is never blurry, and you’re happy with the overall look of things.
  5. **_Do an audio test._** If you’re going to be talking in your video instead of recording a voiceover after, do an audio test to make sure your audience will be able to hear you clearly.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/yr0yS_Ywrjs?si=QxzYiX1KmUaExmlo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **How to Make a Makeup Tutorial – Recording**
 
 Here are some things to keep in mind while you record your makeup tutorial:
@@ -283,7 +287,7 @@ If you’re using autofocus, you can hold products up to the screen and wait for
 3. **_Take stills for your thumbnail._** Remember to take some still photos of your finished makeup to use in your YouTube thumbnail.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/nlwr9LjJ-ng?si=I6UNAtfBkY2FTceu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DCARjc5g5VI?si=9OfovbKBrpoJeXTY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **How to Make a Makeup Tutorial – After Shooting**
@@ -301,10 +305,6 @@ Remember to include what type of video you made, i.e. ‘tutorial’, ‘review�
  Are you already making beauty videos? If so, let us know if you have any of your own tips!
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/tPgf_wSdhS8?si=BHoH1ryaxmwk-8FV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -327,24 +327,18 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://extra-information.techidaily.com/new-become-a-streaming-guru-utilizing-zooms-features-for-effective-youtube-broadcasts/"><u>[New] Become a Streaming Guru Utilizing Zoom's Features for Effective YouTube Broadcasts</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/reakdown-of-earnings-how-much-does-a-clicky-make/"><u>[New] Breakdown of Earnings How Much Does a Clicky Make?</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/scaping-a-stroke-on-your-youtube-channel-for-2024/"><u>[New] Escaping a Stroke on Your YouTube Channel for 2024</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/n-2024-expert-speaker-change-devices-for-youtube-gurus/"><u>[New] In 2024, Expert Speaker Change Devices for YouTube Gurus</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/new-in-2024-revolutionize-your-audio-pazera-free-extractor-insights/"><u>[New] In 2024, Revolutionize Your Audio Pazera Free Extractor Insights</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/n-2024-understanding-the-impact-of-youtubes-creative-commons-on-videos/"><u>[New] In 2024, Understanding the Impact of YouTube's Creative Commons on Videos</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/n-2024-youtube-outros-that-grow-your-channel-faster/"><u>[New] In 2024, YouTube Outros that Grow Your Channel Faster</u></a></li>
-<li><a href="https://fox-links.techidaily.com/new-the-art-of-conversion-boosting-click-through-rates-on-social-platforms/"><u>[New] The Art of Conversion Boosting Click-Through Rates on Social Platforms</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-comfortable-viewing-looping-youtube-videos-on-big-displays/"><u>[Updated] Comfortable Viewing Looping YouTube Videos on Big Displays</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-maximizing-youtube-shorts-earnings-essentials-and-profit-prospects-for-2024/"><u>[Updated] Maximizing Youtube Shorts Earnings Essentials and Profit Prospects for 2024</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-the-insiders-look-at-facebook-sharing-for-youtube-creators-for-2024/"><u>[Updated] The Insider's Look at Facebook Sharing for YouTube Creators for 2024</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-youtube-expertise-pathway-choosing-between-standard-studio-and-beta/"><u>[Updated] YouTube Expertise Pathway Choosing Between Standard Studio and Beta</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/nce-to-youtube-music-mix/"><u>Guidance to YouTube Music Mix</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/how-to-unlock-vivo-v27-phone-without-password-by-drfone-android/"><u>How To Unlock Vivo V27 Phone Without Password?</u></a></li>
-<li><a href="https://review-topics.techidaily.com/in-2024-complete-tutorial-to-use-gps-joystick-to-fake-gps-location-on-poco-c55-drfone-by-drfone-virtual-android/"><u>In 2024, Complete Tutorial to Use GPS Joystick to Fake GPS Location On Poco C55 | Dr.fone</u></a></li>
-<li><a href="https://fake-location.techidaily.com/is-pgsharp-legal-when-you-are-playing-pokemon-on-tecno-pova-5-drfone-by-drfone-virtual-android/"><u>Is pgsharp legal when you are playing pokemon On Tecno Pova 5? | Dr.fone</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/mastering-bings-ai-chat-on-android-devices-essential-tips/"><u>Mastering Bing's AI Chat on Android Devices: Essential Tips</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/mastering-craft-the-ultimate-guide-to-mac-document-management-and-creation-tips/"><u>Mastering Craft: The Ultimate Guide to Mac Document Management & Creation - Tips</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/revolutionizing-task-management-the-power-of-ez-grabber-for-2024/"><u>Revolutionizing Task Management The Power of EZ Grabber for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-youtube-shorts-and-tiktok-which-one-is-better-for-personal-usage/"><u>[New] In 2024, YouTube Shorts & TikTok Which One Is Better for Personal Usage?</u></a></li>
+<li><a href="https://extra-support.techidaily.com/new-step-by-step-periscope-broadcasting-101/"><u>[New] Step-by-Step Periscope Broadcasting 101</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/treamline-your-youtube-presence-using-premiere-pro-for-2024/"><u>[New] Streamline Your YouTube Presence Using Premiere Pro for 2024</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-2024-approved-light-up-the-screen-tips-and-steps-for-adding-gifs-to-snapchats/"><u>[Updated] 2024 Approved Light Up the Screen Tips and Steps for Adding GIFs to Snapchats</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-weaving-whirlwind-writings-for-2024/"><u>[Updated] Weaving Whirlwind Writings for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/approved-the-future-of-content-creation-profitability-on-youtube/"><u>2024 Approved The Future of Content Creation Profitability on YouTube</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/cutting-down-high-bitrate-obs-streams-for-2024/"><u>Cutting Down High-Bitrate OBS Streams for 2024</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-7-ways-to-unlock-a-locked-nubia-phone-by-drfone-android/"><u>In 2024, 7 Ways to Unlock a Locked Nubia Phone</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/in-2024-frp-hijacker-by-hagard-download-and-bypass-your-vivo-s18e-frp-locks-by-drfone-android/"><u>In 2024, FRP Hijacker by Hagard Download and Bypass your Vivo S18e FRP Locks</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/24-the-chefs-roadmap-creating-culinary-content/"><u>In 2024, The Chef's Roadmap Creating Culinary Content</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-two-ways-to-sync-contacts-from-samsung-galaxy-f04-to-gmail-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, Two Ways to Sync Contacts from Samsung Galaxy F04 to Gmail | Dr.fone</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/er-your-way-through-youtube-shorts-production-for-2024/"><u>Pioneer Your Way Through YouTube Shorts Production for 2024</u></a></li>
+<li><a href="https://fox-tips.techidaily.com/why-does-my-audio-device-keep-failing-insights-from-yl-computing-and-yl-software/"><u>Why Does My Audio Device Keep Failing? Insights From YL Computing and YL Software</u></a></li>
 </ul></div>
 
